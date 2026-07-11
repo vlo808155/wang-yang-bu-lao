@@ -1,33 +1,41 @@
 ---
-title: "雷军让卖车的和卖房的都沉默了"
-description: "7月10日，雷军官宣小米全新SUV系列“澎程”，车内布局的“户型图”让卖车的和卖房的都沉默了！网友：第一次在车上看到户型图。"
+title: "日本可回收火箭着陆成功 仅飞11米"
+description: "7月11日，日本宇宙航空研究开发机构（JAXA）在秋田县能代火箭试验中心完成‌可回收火箭实验机“RV-X”‌首次飞行测试，该机体垂直升空高度仅为11米左右。"
 keywords: "百度热搜, 实时热搜, 热点资讯, 程门立雪, cheng-men-li-xue"
 tags:
   - "百度热搜"
   - "实时热搜"
   - "热点资讯"
 source: "百度热搜"
-source_url: "https://www.baidu.com/s?wd=%E9%9B%B7%E5%86%9B%E8%AE%A9%E5%8D%96%E8%BD%A6%E7%9A%84%E5%92%8C%E5%8D%96%E6%88%BF%E7%9A%84%E9%83%BD%E6%B2%89%E9%BB%98%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news"
+source_url: "https://www.baidu.com/s?wd=%E6%97%A5%E6%9C%AC%E5%8F%AF%E5%9B%9E%E6%94%B6%E7%81%AB%E7%AE%AD%E7%9D%80%E9%99%86%E6%88%90%E5%8A%9F+%E4%BB%85%E9%A3%9E11%E7%B1%B3&sa=fyb_news&rsv_dl=fyb_news"
 rank: 13
-updated_at: "2026-07-11T20:30:11+08:00"
-content_fingerprint: "6eda347ff4061de1183f"
+updated_at: "2026-07-11T20:42:49+08:00"
+content_fingerprint: "9460228067e8e7cfb260"
 ---
 
-[热点索引](README.md) / 程门立雪 / 雷军让卖车的和卖房的都沉默了
+[热点索引](README.md) / 程门立雪 / 日本可回收火箭着陆成功 仅飞11米
 
-# 雷军让卖车的和卖房的都沉默了
+# 日本可回收火箭着陆成功 仅飞11米
 
-> 来源：百度热搜 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:30:11+08:00
+> 来源：百度热搜 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:42:49+08:00
 
 ## 事件概览
 
-7月10日，雷军官宣小米全新SUV系列“澎程”，车内布局的“户型图”让卖车的和卖房的都沉默了！网友：第一次在车上看到户型图。
+7月11日，日本宇宙航空研究开发机构（JAXA）在秋田县能代火箭试验中心完成‌可回收火箭实验机“RV-X”‌首次飞行测试，该机体垂直升空高度仅为11米左右。
+
+## 热点正文
+
+根据百度热搜当前公开榜单，“日本可回收火箭着陆成功 仅飞11米”位列第 13 位，公开热度指标为 6559135。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+
+来源公开摘要显示：7月11日，日本宇宙航空研究开发机构（JAXA）在秋田县能代火箭试验中心完成‌可回收火箭实验机“RV-X”‌首次飞行测试，该机体垂直升空高度仅为11米左右。
+
+阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 当前榜单信息
 
 - 来源平台：百度热搜
 - 当前排名：第 13 位
-- 热度：6569080
+- 热度：6559135
 - 固定索引：程门立雪（cheng-men-li-xue）
 
 ## 阅读关注点
@@ -42,26 +50,86 @@ content_fingerprint: "6eda347ff4061de1183f"
 
 ## 相关热点
 
-- [上海天空](shou-bu-shi-juan.md)（手不释卷）
-- [四川再发山洪灾害蓝色预警](xue-fu-wu-che.md)（学富五车）
+- [台风巴威1小时走30到50公里](shou-bu-shi-juan.md)（手不释卷）
+- [广西贵港原副市长潘汉胜被双开](xue-fu-wu-che.md)（学富五车）
 - [如何评价凡人修仙传182集，慕兰之战第六集？](bo-wen-qiang-ji.md)（博闻强记）
-- [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](wen-gu-zhi-xin.md)（温故知新）
+- [金鳞岂是池中物，哄好岳母便化龙](wen-gu-zhi-xin.md)（温故知新）
 
 ## 前后篇导航
 
-- 上一篇：[金鳞岂是池中物，哄好岳母便化龙](nang-ying-ying-xue.md)（囊萤映雪）
-- 下一篇：[上海天空](shou-bu-shi-juan.md)（手不释卷）
+- 上一篇：[《大扫除是你的谎言》](nang-ying-ying-xue.md)（囊萤映雪）
+- 下一篇：[台风巴威1小时走30到50公里](shou-bu-shi-juan.md)（手不释卷）
 
 ## 热点仓库导航
 
-- [hua-she-tian-zu](https://github.com/vlo808155/hua-she-tian-zu)
-- [shou-zhu-dai-tu](https://github.com/vlo808155/shou-zhu-dai-tu)
-- [ke-zhou-qiu-jian](https://github.com/vlo808155/ke-zhou-qiu-jian)
-- [wang-yang-bu-lao](https://github.com/vlo808155/wang-yang-bu-lao)
-- [jing-di-zhi-wa](https://github.com/vlo808155/jing-di-zhi-wa)
+- [wu-gu-feng-deng.md](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)（五谷丰登）
+- [po-fu-chen-zhou.md](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)（破釜沉舟）
+- [ye-gong-hao-long.md](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)（叶公好龙）
+- [cheng-men-li-xue.md](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)（程门立雪）
+- [yun-chou-wei-wo.md](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)（运筹帷幄）
+
+## 标签扩展阅读
+
+以下链接按照本页标签从 `url.txt` 模板生成，共 50 条。
+
+<details>
+<summary>查看 50 条标签相关链接</summary>
+
+- [百度热搜延伸阅读 1](https://www.abc.com/afwqhvqn.html)
+- [实时热搜延伸阅读 2](https://www.abc.com/uwcqndle.html)
+- [热点资讯延伸阅读 3](https://www.abc.com/7370136.html)
+- [百度热搜延伸阅读 4](https://www.abc.com/jtgjcgsw.html)
+- [实时热搜延伸阅读 5](https://www.abc.com/1548408.html)
+- [热点资讯延伸阅读 6](https://www.abc.com/4195552.html)
+- [百度热搜延伸阅读 7](https://www.abc.com/jhahcuuz.html)
+- [实时热搜延伸阅读 8](https://www.abc.com/9188532.html)
+- [热点资讯延伸阅读 9](https://www.abc.com/4378806.html)
+- [百度热搜延伸阅读 10](https://www.abc.com/0730164.html)
+- [实时热搜延伸阅读 11](https://www.abc.com/2410390.html)
+- [热点资讯延伸阅读 12](https://www.abc.com/waymwuab.html)
+- [百度热搜延伸阅读 13](https://www.abc.com/2325784.html)
+- [实时热搜延伸阅读 14](https://www.abc.com/5145997.html)
+- [热点资讯延伸阅读 15](https://www.abc.com/wpdpxexq.html)
+- [百度热搜延伸阅读 16](https://www.abc.com/xyjkuxic.html)
+- [实时热搜延伸阅读 17](https://www.abc.com/8859360.html)
+- [热点资讯延伸阅读 18](https://www.abc.com/vwakhoah.html)
+- [百度热搜延伸阅读 19](https://www.abc.com/2157774.html)
+- [实时热搜延伸阅读 20](https://www.abc.com/ngpptadj.html)
+- [热点资讯延伸阅读 21](https://www.abc.com/jamfosdp.html)
+- [百度热搜延伸阅读 22](https://www.abc.com/ngklevzd.html)
+- [实时热搜延伸阅读 23](https://www.abc.com/iorolynq.html)
+- [热点资讯延伸阅读 24](https://www.abc.com/jebvjlvl.html)
+- [百度热搜延伸阅读 25](https://www.abc.com/zbaeihrl.html)
+- [实时热搜延伸阅读 26](https://www.abc.com/4846099.html)
+- [热点资讯延伸阅读 27](https://www.abc.com/9201579.html)
+- [百度热搜延伸阅读 28](https://www.abc.com/0920240.html)
+- [实时热搜延伸阅读 29](https://www.abc.com/0931085.html)
+- [热点资讯延伸阅读 30](https://www.abc.com/pcwrnveq.html)
+- [百度热搜延伸阅读 31](https://www.abc.com/9493152.html)
+- [实时热搜延伸阅读 32](https://www.abc.com/4379621.html)
+- [热点资讯延伸阅读 33](https://www.abc.com/mmoupbmz.html)
+- [百度热搜延伸阅读 34](https://www.abc.com/2842187.html)
+- [实时热搜延伸阅读 35](https://www.abc.com/1279415.html)
+- [热点资讯延伸阅读 36](https://www.abc.com/xjudkafn.html)
+- [百度热搜延伸阅读 37](https://www.abc.com/3644311.html)
+- [实时热搜延伸阅读 38](https://www.abc.com/1769590.html)
+- [热点资讯延伸阅读 39](https://www.abc.com/hjyhndhm.html)
+- [百度热搜延伸阅读 40](https://www.abc.com/ceqrhbms.html)
+- [实时热搜延伸阅读 41](https://www.abc.com/xnndisxg.html)
+- [热点资讯延伸阅读 42](https://www.abc.com/0161445.html)
+- [百度热搜延伸阅读 43](https://www.abc.com/rwwveson.html)
+- [实时热搜延伸阅读 44](https://www.abc.com/1612182.html)
+- [热点资讯延伸阅读 45](https://www.abc.com/5664988.html)
+- [百度热搜延伸阅读 46](https://www.abc.com/1404131.html)
+- [实时热搜延伸阅读 47](https://www.abc.com/6026956.html)
+- [热点资讯延伸阅读 48](https://www.abc.com/lkrpvkgp.html)
+- [百度热搜延伸阅读 49](https://www.abc.com/8107257.html)
+- [实时热搜延伸阅读 50](https://www.abc.com/ykkboqdy.html)
+
+</details>
 
 ## 来源与延伸阅读
 
-- [雷军让卖车的和卖房的都沉默了](https://www.baidu.com/s?wd=%E9%9B%B7%E5%86%9B%E8%AE%A9%E5%8D%96%E8%BD%A6%E7%9A%84%E5%92%8C%E5%8D%96%E6%88%BF%E7%9A%84%E9%83%BD%E6%B2%89%E9%BB%98%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.baidu.com/s?wd=%E6%97%A5%E6%9C%AC%E5%8F%AF%E5%9B%9E%E6%94%B6%E7%81%AB%E7%AE%AD%E7%9D%80%E9%99%86%E6%88%90%E5%8A%9F+%E4%BB%85%E9%A3%9E11%E7%B1%B3&sa=fyb_news&rsv_dl=fyb_news)
 
 本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。
