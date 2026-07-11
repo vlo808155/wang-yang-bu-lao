@@ -10,15 +10,15 @@ tags:
 source: "知乎热榜"
 source_url: "https://www.zhihu.com/question/2058119231846322566"
 rank: 13
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "823d87f7bce4a53e4413"
+updated_at: "2026-07-11T20:30:11+08:00"
+content_fingerprint: "11518ad407587d11dbda"
 ---
 
 [热点索引](README.md) / 凿壁偷光 / 世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？
 
 # 世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？
 
-> 来源：知乎热榜 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：知乎热榜 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:30:11+08:00
 
 ## 事件概览
 
@@ -46,7 +46,7 @@ content_fingerprint: "823d87f7bce4a53e4413"
 
 - [金鳞岂是池中物，哄好岳母便化龙](nang-ying-ying-xue.md)（囊萤映雪）
 - [雷军让卖车的和卖房的都沉默了](cheng-men-li-xue.md)（程门立雪）
-- [功夫女足票房已破2亿](shou-bu-shi-juan.md)（手不释卷）
+- [上海天空](shou-bu-shi-juan.md)（手不释卷）
 - [四川再发山洪灾害蓝色预警](xue-fu-wu-che.md)（学富五车）
 
 ## 前后篇导航

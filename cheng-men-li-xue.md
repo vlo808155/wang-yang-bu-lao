@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E9%9B%B7%E5%86%9B%E8%AE%A9%E5%8D%96%E8%BD%A6%E7%9A%84%E5%92%8C%E5%8D%96%E6%88%BF%E7%9A%84%E9%83%BD%E6%B2%89%E9%BB%98%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news"
 rank: 13
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "84128754f9dd5735c984"
+updated_at: "2026-07-11T20:30:11+08:00"
+content_fingerprint: "6eda347ff4061de1183f"
 ---
 
 [热点索引](README.md) / 程门立雪 / 雷军让卖车的和卖房的都沉默了
 
 # 雷军让卖车的和卖房的都沉默了
 
-> 来源：百度热搜 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：百度热搜 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:30:11+08:00
 
 ## 事件概览
 
@@ -27,7 +27,7 @@ content_fingerprint: "84128754f9dd5735c984"
 
 - 来源平台：百度热搜
 - 当前排名：第 13 位
-- 热度：6564145
+- 热度：6569080
 - 固定索引：程门立雪（cheng-men-li-xue）
 
 ## 阅读关注点
@@ -42,7 +42,7 @@ content_fingerprint: "84128754f9dd5735c984"
 
 ## 相关热点
 
-- [功夫女足票房已破2亿](shou-bu-shi-juan.md)（手不释卷）
+- [上海天空](shou-bu-shi-juan.md)（手不释卷）
 - [四川再发山洪灾害蓝色预警](xue-fu-wu-che.md)（学富五车）
 - [如何评价凡人修仙传182集，慕兰之战第六集？](bo-wen-qiang-ji.md)（博闻强记）
 - [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](wen-gu-zhi-xin.md)（温故知新）
@@ -50,7 +50,7 @@ content_fingerprint: "84128754f9dd5735c984"
 ## 前后篇导航
 
 - 上一篇：[金鳞岂是池中物，哄好岳母便化龙](nang-ying-ying-xue.md)（囊萤映雪）
-- 下一篇：[功夫女足票房已破2亿](shou-bu-shi-juan.md)（手不释卷）
+- 下一篇：[上海天空](shou-bu-shi-juan.md)（手不释卷）
 
 ## 热点仓库导航
 

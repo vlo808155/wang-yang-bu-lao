@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=15%E5%B2%81%E7%94%B7%E7%94%9F%E5%9B%A0%E5%A5%B3%E5%90%8C%E6%A1%8C%E9%80%81%E7%94%BB%E9%81%AD%E5%9B%B4%E6%AE%B4&sa=fyb_news&rsv_dl=fyb_news"
 rank: 15
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "559c2dc5da6552514a90"
+updated_at: "2026-07-11T20:30:11+08:00"
+content_fingerprint: "1f86ba0f1a2355329a7f"
 ---
 
 [热点索引](README.md) / 精益求精 / 15岁男生因女同桌送画遭围殴
 
 # 15岁男生因女同桌送画遭围殴
 
-> 来源：百度热搜 · 榜单排名：第 15 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：百度热搜 · 榜单排名：第 15 位 · 更新时间：2026-07-11T20:30:11+08:00
 
 ## 事件概览
 
@@ -27,7 +27,7 @@ content_fingerprint: "559c2dc5da6552514a90"
 
 - 来源平台：百度热搜
 - 当前排名：第 15 位
-- 热度：6381808
+- 热度：6375694
 - 固定索引：精益求精（jing-yi-qiu-jing）
 
 ## 阅读关注点
@@ -42,7 +42,7 @@ content_fingerprint: "559c2dc5da6552514a90"
 
 ## 相关热点
 
-- [上海已转移3.4万人](jiao-ta-shi-di.md)（脚踏实地）
+- [小米澎程起售价预测](jiao-ta-shi-di.md)（脚踏实地）
 - [雁荡山大龙湫瀑布出现飞瀑倒流景象](shi-shi-qiu-shi.md)（实事求是）
 - [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](chi-zhi-yi-heng.md)（持之以恒）
 - [没有人！比我！更懂！重庆！](jian-ren-bu-ba.md)（坚韧不拔）
@@ -50,7 +50,7 @@ content_fingerprint: "559c2dc5da6552514a90"
 ## 前后篇导航
 
 - 上一篇：[《和最讨厌的人灵魂互换了》完整版](qu-chang-bu-duan.md)（取长补短）
-- 下一篇：[上海已转移3.4万人](jiao-ta-shi-di.md)（脚踏实地）
+- 下一篇：[小米澎程起售价预测](jiao-ta-shi-di.md)（脚踏实地）
 
 ## 热点仓库导航
 

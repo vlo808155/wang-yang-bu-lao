@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1AyNJ6CE2i"
 rank: 13
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "71ee0e0430fb8d3fd935"
+updated_at: "2026-07-11T20:30:11+08:00"
+content_fingerprint: "3537b4e2712b067eff73"
 ---
 
 [热点索引](README.md) / 囊萤映雪 / 金鳞岂是池中物，哄好岳母便化龙
 
 # 金鳞岂是池中物，哄好岳母便化龙
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:30:11+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "71ee0e0430fb8d3fd935"
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 13 位
-- 热度：474938
+- 热度：476800
 - 分类：短片
 - 固定索引：囊萤映雪（nang-ying-ying-xue）
 
@@ -45,7 +45,7 @@ content_fingerprint: "71ee0e0430fb8d3fd935"
 ## 相关热点
 
 - [雷军让卖车的和卖房的都沉默了](cheng-men-li-xue.md)（程门立雪）
-- [功夫女足票房已破2亿](shou-bu-shi-juan.md)（手不释卷）
+- [上海天空](shou-bu-shi-juan.md)（手不释卷）
 - [四川再发山洪灾害蓝色预警](xue-fu-wu-che.md)（学富五车）
 - [如何评价凡人修仙传182集，慕兰之战第六集？](bo-wen-qiang-ji.md)（博闻强记）
 

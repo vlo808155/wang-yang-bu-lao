@@ -10,15 +10,15 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1mpNs6wEkE"
 rank: 14
-updated_at: "2026-07-11T20:29:32+08:00"
-content_fingerprint: "16e93a9decc50d1721a9"
+updated_at: "2026-07-11T20:30:11+08:00"
+content_fingerprint: "1903f406ceaf1c165118"
 ---
 
 [热点索引](README.md) / 温故知新 / 足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！
 
 # 足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 14 位 · 更新时间：2026-07-11T20:29:32+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 14 位 · 更新时间：2026-07-11T20:30:11+08:00
 
 ## 事件概览
 
@@ -28,7 +28,7 @@ content_fingerprint: "16e93a9decc50d1721a9"
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 14 位
-- 热度：905684
+- 热度：906474
 - 分类：足球
 - 固定索引：温故知新（wen-gu-zhi-xin）
 
@@ -45,7 +45,7 @@ content_fingerprint: "16e93a9decc50d1721a9"
 ## 相关热点
 
 - [哈兰德PK凯恩 世一锋终极对决](ju-yi-fan-san.md)（举一反三）
-- [Jennie神图诞生了](rong-hui-guan-tong.md)（融会贯通）
+- [功夫女足票房已破2亿](rong-hui-guan-tong.md)（融会贯通）
 - [如何评价追光动画出品的电影《三国第一部：争洛阳》？](ji-si-guang-yi.md)（集思广益）
 - [《和最讨厌的人灵魂互换了》完整版](qu-chang-bu-duan.md)（取长补短）
 
