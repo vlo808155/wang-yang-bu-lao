@@ -1,32 +1,32 @@
 ---
-title: "Jennie神图诞生了"
-description: "“Jennie神图诞生了”目前位于微博热搜热门榜单第 16 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。"
-keywords: "微博热搜, 实时热搜, 热点资讯, 艺人, 实事求是, shi-shi-qiu-shi"
+title: "HLE翻车"
+description: "“HLE翻车”目前位于微博热搜热门榜单第 16 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。"
+keywords: "微博热搜, 实时热搜, 热点资讯, 电竞, 实事求是, shi-shi-qiu-shi"
 tags:
   - "微博热搜"
   - "实时热搜"
   - "热点资讯"
-  - "艺人"
+  - "电竞"
 source: "微博热搜"
-source_url: "https://s.weibo.com/weibo?q=Jennie%E7%A5%9E%E5%9B%BE%E8%AF%9E%E7%94%9F%E4%BA%86"
+source_url: "https://s.weibo.com/weibo?q=HLE%E7%BF%BB%E8%BD%A6"
 rank: 16
-updated_at: "2026-07-11T20:44:47+08:00"
-content_fingerprint: "60a30ca00751b8177106"
+updated_at: "2026-07-11T20:50:44+08:00"
+content_fingerprint: "9110eb90dbed72f6604e"
 ---
 
-[热点索引](README.md) / 实事求是 / Jennie神图诞生了
+[热点索引](README.md) / 实事求是 / HLE翻车
 
-# Jennie神图诞生了
+# HLE翻车
 
-> 来源：微博热搜 · 榜单排名：第 16 位 · 更新时间：2026-07-11T20:44:47+08:00
+> 来源：微博热搜 · 榜单排名：第 16 位 · 更新时间：2026-07-11T20:50:44+08:00
 
 ## 事件概览
 
-“Jennie神图诞生了”目前位于微博热搜热门榜单第 16 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。
+“HLE翻车”目前位于微博热搜热门榜单第 16 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“Jennie神图诞生了”位列第 16 位，公开热度指标为 538812，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“HLE翻车”位列第 16 位，公开热度指标为 673452，榜单分类为“电竞”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -36,8 +36,8 @@ content_fingerprint: "60a30ca00751b8177106"
 
 - 来源平台：微博热搜
 - 当前排名：第 16 位
-- 热度：538812
-- 分类：艺人
+- 热度：673452
+- 分类：电竞
 - 固定索引：实事求是（shi-shi-qiu-shi）
 
 ## 阅读关注点
@@ -48,11 +48,11 @@ content_fingerprint: "60a30ca00751b8177106"
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`微博热搜` `实时热搜` `热点资讯` `电竞`
 
 ## 相关热点
 
-- [浙江海边掀起10多米巨浪](chi-zhi-yi-heng.md)（持之以恒）
+- [哈兰德被评“世界第一玩得起的人”](chi-zhi-yi-heng.md)（持之以恒）
 - [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](jian-ren-bu-ba.md)（坚韧不拔）
 - [《和最讨厌的人灵魂互换了》完整版](zi-qiang-bu-xi.md)（自强不息）
 - [最新研判！台风巴威登陆时间或提前](fen-fa-tu-qiang.md)（奋发图强）
@@ -60,7 +60,7 @@ content_fingerprint: "60a30ca00751b8177106"
 ## 前后篇导航
 
 - 上一篇：[15岁男生因女同桌送画遭围殴](jiao-ta-shi-di.md)（脚踏实地）
-- 下一篇：[浙江海边掀起10多米巨浪](chi-zhi-yi-heng.md)（持之以恒）
+- 下一篇：[哈兰德被评“世界第一玩得起的人”](chi-zhi-yi-heng.md)（持之以恒）
 
 ## 热点仓库导航
 
@@ -77,61 +77,61 @@ content_fingerprint: "60a30ca00751b8177106"
 <details>
 <summary>查看 50 条标签相关链接</summary>
 
-- [微博热搜延伸阅读 1](https://www.abc.com/ohmbdaxt.html)
-- [实时热搜延伸阅读 2](https://www.abc.com/ufhdkkcz.html)
-- [热点资讯延伸阅读 3](https://www.abc.com/xtabrxip.html)
-- [艺人延伸阅读 4](https://www.abc.com/3986862.html)
-- [微博热搜延伸阅读 5](https://www.abc.com/2701960.html)
-- [实时热搜延伸阅读 6](https://www.abc.com/4228262.html)
-- [热点资讯延伸阅读 7](https://www.abc.com/ennneakx.html)
-- [艺人延伸阅读 8](https://www.abc.com/sloofjlt.html)
-- [微博热搜延伸阅读 9](https://www.abc.com/3981487.html)
-- [实时热搜延伸阅读 10](https://www.abc.com/nuianpih.html)
-- [热点资讯延伸阅读 11](https://www.abc.com/rxzzycez.html)
-- [艺人延伸阅读 12](https://www.abc.com/wukmaakf.html)
-- [微博热搜延伸阅读 13](https://www.abc.com/qujwwfdw.html)
-- [实时热搜延伸阅读 14](https://www.abc.com/vqslslyz.html)
-- [热点资讯延伸阅读 15](https://www.abc.com/lldtlefv.html)
-- [艺人延伸阅读 16](https://www.abc.com/rrggikkc.html)
-- [微博热搜延伸阅读 17](https://www.abc.com/mabtcjku.html)
-- [实时热搜延伸阅读 18](https://www.abc.com/elymozxg.html)
-- [热点资讯延伸阅读 19](https://www.abc.com/3404997.html)
-- [艺人延伸阅读 20](https://www.abc.com/gghonmdi.html)
-- [微博热搜延伸阅读 21](https://www.abc.com/shazuawf.html)
-- [实时热搜延伸阅读 22](https://www.abc.com/yrpzxjvf.html)
-- [热点资讯延伸阅读 23](https://www.abc.com/3446096.html)
-- [艺人延伸阅读 24](https://www.abc.com/enevglrw.html)
-- [微博热搜延伸阅读 25](https://www.abc.com/irhabohe.html)
-- [实时热搜延伸阅读 26](https://www.abc.com/etyyhdlv.html)
-- [热点资讯延伸阅读 27](https://www.abc.com/7533930.html)
-- [艺人延伸阅读 28](https://www.abc.com/ergwayrv.html)
-- [微博热搜延伸阅读 29](https://www.abc.com/7446219.html)
-- [实时热搜延伸阅读 30](https://www.abc.com/joqdsacy.html)
-- [热点资讯延伸阅读 31](https://www.abc.com/sgjmuwmq.html)
-- [艺人延伸阅读 32](https://www.abc.com/rjhjiujq.html)
-- [微博热搜延伸阅读 33](https://www.abc.com/zyapefln.html)
-- [实时热搜延伸阅读 34](https://www.abc.com/5349682.html)
-- [热点资讯延伸阅读 35](https://www.abc.com/1993360.html)
-- [艺人延伸阅读 36](https://www.abc.com/3122961.html)
-- [微博热搜延伸阅读 37](https://www.abc.com/uxobzdfi.html)
-- [实时热搜延伸阅读 38](https://www.abc.com/3933723.html)
-- [热点资讯延伸阅读 39](https://www.abc.com/1110924.html)
-- [艺人延伸阅读 40](https://www.abc.com/vndpmbil.html)
-- [微博热搜延伸阅读 41](https://www.abc.com/fliuovlz.html)
-- [实时热搜延伸阅读 42](https://www.abc.com/1111925.html)
-- [热点资讯延伸阅读 43](https://www.abc.com/prkllquc.html)
-- [艺人延伸阅读 44](https://www.abc.com/5203792.html)
-- [微博热搜延伸阅读 45](https://www.abc.com/ftojxcbr.html)
-- [实时热搜延伸阅读 46](https://www.abc.com/0299998.html)
-- [热点资讯延伸阅读 47](https://www.abc.com/2448003.html)
-- [艺人延伸阅读 48](https://www.abc.com/ecmclvys.html)
-- [微博热搜延伸阅读 49](https://www.abc.com/0427930.html)
-- [实时热搜延伸阅读 50](https://www.abc.com/3988958.html)
+- [HLE翻车](https://www.abc.com/ohmbdaxt.html)
+- [HLE翻车](https://www.abc.com/ufhdkkcz.html)
+- [HLE翻车](https://www.abc.com/xtabrxip.html)
+- [HLE翻车](https://www.abc.com/3986862.html)
+- [HLE翻车](https://www.abc.com/2701960.html)
+- [HLE翻车](https://www.abc.com/4228262.html)
+- [HLE翻车](https://www.abc.com/ennneakx.html)
+- [HLE翻车](https://www.abc.com/sloofjlt.html)
+- [HLE翻车](https://www.abc.com/3981487.html)
+- [HLE翻车](https://www.abc.com/nuianpih.html)
+- [HLE翻车](https://www.abc.com/rxzzycez.html)
+- [HLE翻车](https://www.abc.com/wukmaakf.html)
+- [HLE翻车](https://www.abc.com/qujwwfdw.html)
+- [HLE翻车](https://www.abc.com/vqslslyz.html)
+- [HLE翻车](https://www.abc.com/lldtlefv.html)
+- [HLE翻车](https://www.abc.com/rrggikkc.html)
+- [HLE翻车](https://www.abc.com/mabtcjku.html)
+- [HLE翻车](https://www.abc.com/elymozxg.html)
+- [HLE翻车](https://www.abc.com/3404997.html)
+- [HLE翻车](https://www.abc.com/gghonmdi.html)
+- [HLE翻车](https://www.abc.com/shazuawf.html)
+- [HLE翻车](https://www.abc.com/yrpzxjvf.html)
+- [HLE翻车](https://www.abc.com/3446096.html)
+- [HLE翻车](https://www.abc.com/enevglrw.html)
+- [HLE翻车](https://www.abc.com/irhabohe.html)
+- [HLE翻车](https://www.abc.com/etyyhdlv.html)
+- [HLE翻车](https://www.abc.com/7533930.html)
+- [HLE翻车](https://www.abc.com/ergwayrv.html)
+- [HLE翻车](https://www.abc.com/7446219.html)
+- [HLE翻车](https://www.abc.com/joqdsacy.html)
+- [HLE翻车](https://www.abc.com/sgjmuwmq.html)
+- [HLE翻车](https://www.abc.com/rjhjiujq.html)
+- [HLE翻车](https://www.abc.com/zyapefln.html)
+- [HLE翻车](https://www.abc.com/5349682.html)
+- [HLE翻车](https://www.abc.com/1993360.html)
+- [HLE翻车](https://www.abc.com/3122961.html)
+- [HLE翻车](https://www.abc.com/uxobzdfi.html)
+- [HLE翻车](https://www.abc.com/3933723.html)
+- [HLE翻车](https://www.abc.com/1110924.html)
+- [HLE翻车](https://www.abc.com/vndpmbil.html)
+- [HLE翻车](https://www.abc.com/fliuovlz.html)
+- [HLE翻车](https://www.abc.com/1111925.html)
+- [HLE翻车](https://www.abc.com/prkllquc.html)
+- [HLE翻车](https://www.abc.com/5203792.html)
+- [HLE翻车](https://www.abc.com/ftojxcbr.html)
+- [HLE翻车](https://www.abc.com/0299998.html)
+- [HLE翻车](https://www.abc.com/2448003.html)
+- [HLE翻车](https://www.abc.com/ecmclvys.html)
+- [HLE翻车](https://www.abc.com/0427930.html)
+- [HLE翻车](https://www.abc.com/3988958.html)
 
 </details>
 
 ## 来源与延伸阅读
 
-- [Jennie神图诞生了](https://s.weibo.com/weibo?q=Jennie%E7%A5%9E%E5%9B%BE%E8%AF%9E%E7%94%9F%E4%BA%86)
+- [HLE翻车](https://s.weibo.com/weibo?q=HLE%E7%BF%BB%E8%BD%A6)
 
 本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。

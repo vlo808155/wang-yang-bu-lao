@@ -9,15 +9,15 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E6%97%A5%E6%9C%AC%E5%8F%AF%E5%9B%9E%E6%94%B6%E7%81%AB%E7%AE%AD%E7%9D%80%E9%99%86%E6%88%90%E5%8A%9F+%E4%BB%85%E9%A3%9E11%E7%B1%B3&sa=fyb_news&rsv_dl=fyb_news"
 rank: 13
-updated_at: "2026-07-11T20:44:47+08:00"
-content_fingerprint: "5f18821b41f6fd466704"
+updated_at: "2026-07-11T20:50:44+08:00"
+content_fingerprint: "5403ab448a5dec7a5b60"
 ---
 
 [热点索引](README.md) / 程门立雪 / 日本可回收火箭着陆成功 仅飞11米
 
 # 日本可回收火箭着陆成功 仅飞11米
 
-> 来源：百度热搜 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:44:47+08:00
+> 来源：百度热搜 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:50:44+08:00
 
 ## 事件概览
 
@@ -25,7 +25,7 @@ content_fingerprint: "5f18821b41f6fd466704"
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“日本可回收火箭着陆成功 仅飞11米”位列第 13 位，公开热度指标为 6570394。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“日本可回收火箭着陆成功 仅飞11米”位列第 13 位，公开热度指标为 6561025。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：7月11日，日本宇宙航空研究开发机构（JAXA）在秋田县能代火箭试验中心完成‌可回收火箭实验机“RV-X”‌首次飞行测试，该机体垂直升空高度仅为11米左右。
 
@@ -35,7 +35,7 @@ content_fingerprint: "5f18821b41f6fd466704"
 
 - 来源平台：百度热搜
 - 当前排名：第 13 位
-- 热度：6570394
+- 热度：6561025
 - 固定索引：程门立雪（cheng-men-li-xue）
 
 ## 阅读关注点
@@ -50,15 +50,15 @@ content_fingerprint: "5f18821b41f6fd466704"
 
 ## 相关热点
 
-- [台风巴威1小时走30到50公里](shou-bu-shi-juan.md)（手不释卷）
+- [TF四代考核人气分](shou-bu-shi-juan.md)（手不释卷）
 - [广西贵港原副市长潘汉胜被双开](xue-fu-wu-che.md)（学富五车）
-- [如何评价凡人修仙传182集，慕兰之战第六集？](bo-wen-qiang-ji.md)（博闻强记）
+- [日本可回收火箭小型实验机 RV-X「着陆成功」，日媒报道只飞了11米，这是什么水平？对其有何意义？](bo-wen-qiang-ji.md)（博闻强记）
 - [金鳞岂是池中物，哄好岳母便化龙](wen-gu-zhi-xin.md)（温故知新）
 
 ## 前后篇导航
 
 - 上一篇：[《大扫除是你的谎言》](nang-ying-ying-xue.md)（囊萤映雪）
-- 下一篇：[台风巴威1小时走30到50公里](shou-bu-shi-juan.md)（手不释卷）
+- 下一篇：[TF四代考核人气分](shou-bu-shi-juan.md)（手不释卷）
 
 ## 热点仓库导航
 
@@ -75,56 +75,56 @@ content_fingerprint: "5f18821b41f6fd466704"
 <details>
 <summary>查看 50 条标签相关链接</summary>
 
-- [百度热搜延伸阅读 1](https://www.abc.com/afwqhvqn.html)
-- [实时热搜延伸阅读 2](https://www.abc.com/uwcqndle.html)
-- [热点资讯延伸阅读 3](https://www.abc.com/7370136.html)
-- [百度热搜延伸阅读 4](https://www.abc.com/jtgjcgsw.html)
-- [实时热搜延伸阅读 5](https://www.abc.com/1548408.html)
-- [热点资讯延伸阅读 6](https://www.abc.com/4195552.html)
-- [百度热搜延伸阅读 7](https://www.abc.com/jhahcuuz.html)
-- [实时热搜延伸阅读 8](https://www.abc.com/9188532.html)
-- [热点资讯延伸阅读 9](https://www.abc.com/4378806.html)
-- [百度热搜延伸阅读 10](https://www.abc.com/0730164.html)
-- [实时热搜延伸阅读 11](https://www.abc.com/2410390.html)
-- [热点资讯延伸阅读 12](https://www.abc.com/waymwuab.html)
-- [百度热搜延伸阅读 13](https://www.abc.com/2325784.html)
-- [实时热搜延伸阅读 14](https://www.abc.com/5145997.html)
-- [热点资讯延伸阅读 15](https://www.abc.com/wpdpxexq.html)
-- [百度热搜延伸阅读 16](https://www.abc.com/xyjkuxic.html)
-- [实时热搜延伸阅读 17](https://www.abc.com/8859360.html)
-- [热点资讯延伸阅读 18](https://www.abc.com/vwakhoah.html)
-- [百度热搜延伸阅读 19](https://www.abc.com/2157774.html)
-- [实时热搜延伸阅读 20](https://www.abc.com/ngpptadj.html)
-- [热点资讯延伸阅读 21](https://www.abc.com/jamfosdp.html)
-- [百度热搜延伸阅读 22](https://www.abc.com/ngklevzd.html)
-- [实时热搜延伸阅读 23](https://www.abc.com/iorolynq.html)
-- [热点资讯延伸阅读 24](https://www.abc.com/jebvjlvl.html)
-- [百度热搜延伸阅读 25](https://www.abc.com/zbaeihrl.html)
-- [实时热搜延伸阅读 26](https://www.abc.com/4846099.html)
-- [热点资讯延伸阅读 27](https://www.abc.com/9201579.html)
-- [百度热搜延伸阅读 28](https://www.abc.com/0920240.html)
-- [实时热搜延伸阅读 29](https://www.abc.com/0931085.html)
-- [热点资讯延伸阅读 30](https://www.abc.com/pcwrnveq.html)
-- [百度热搜延伸阅读 31](https://www.abc.com/9493152.html)
-- [实时热搜延伸阅读 32](https://www.abc.com/4379621.html)
-- [热点资讯延伸阅读 33](https://www.abc.com/mmoupbmz.html)
-- [百度热搜延伸阅读 34](https://www.abc.com/2842187.html)
-- [实时热搜延伸阅读 35](https://www.abc.com/1279415.html)
-- [热点资讯延伸阅读 36](https://www.abc.com/xjudkafn.html)
-- [百度热搜延伸阅读 37](https://www.abc.com/3644311.html)
-- [实时热搜延伸阅读 38](https://www.abc.com/1769590.html)
-- [热点资讯延伸阅读 39](https://www.abc.com/hjyhndhm.html)
-- [百度热搜延伸阅读 40](https://www.abc.com/ceqrhbms.html)
-- [实时热搜延伸阅读 41](https://www.abc.com/xnndisxg.html)
-- [热点资讯延伸阅读 42](https://www.abc.com/0161445.html)
-- [百度热搜延伸阅读 43](https://www.abc.com/rwwveson.html)
-- [实时热搜延伸阅读 44](https://www.abc.com/1612182.html)
-- [热点资讯延伸阅读 45](https://www.abc.com/5664988.html)
-- [百度热搜延伸阅读 46](https://www.abc.com/1404131.html)
-- [实时热搜延伸阅读 47](https://www.abc.com/6026956.html)
-- [热点资讯延伸阅读 48](https://www.abc.com/lkrpvkgp.html)
-- [百度热搜延伸阅读 49](https://www.abc.com/8107257.html)
-- [实时热搜延伸阅读 50](https://www.abc.com/ykkboqdy.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/afwqhvqn.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/uwcqndle.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/7370136.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/jtgjcgsw.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/1548408.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/4195552.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/jhahcuuz.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/9188532.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/4378806.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/0730164.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/2410390.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/waymwuab.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/2325784.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/5145997.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/wpdpxexq.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/xyjkuxic.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/8859360.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/vwakhoah.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/2157774.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/ngpptadj.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/jamfosdp.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/ngklevzd.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/iorolynq.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/jebvjlvl.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/zbaeihrl.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/4846099.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/9201579.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/0920240.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/0931085.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/pcwrnveq.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/9493152.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/4379621.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/mmoupbmz.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/2842187.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/1279415.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/xjudkafn.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/3644311.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/1769590.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/hjyhndhm.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/ceqrhbms.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/xnndisxg.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/0161445.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/rwwveson.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/1612182.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/5664988.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/1404131.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/6026956.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/lkrpvkgp.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/8107257.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/ykkboqdy.html)
 
 </details>
 
