@@ -2,11 +2,11 @@
 
 # 哈兰德PK凯恩 世一锋终极对决
 
-> 来源：百度热搜 · 排名：第 14 位 · 热度：6462793 · 更新：2026-07-11T21:07:39+08:00
+> 来源：百度热搜 · 排名：第 14 位 · 热度：6465917 · 更新：2026-07-11T21:08:26+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“哈兰德PK凯恩 世一锋终极对决”位列第 14 位，公开热度指标为 6462793。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“哈兰德PK凯恩 世一锋终极对决”位列第 14 位，公开热度指标为 6465917。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：7月12日5时，挪威与英格兰将在迈阿密硬石体育场展开世界杯1/4决赛，哈兰德与凯恩的“世一锋”对决成为焦点。
 
@@ -28,8 +28,8 @@
 - [【TF家族练习生】《突围II破局》EP03：来自舞台的邀请函（上）](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
 - [巴威过境日本 大树连根拔起雨横飞](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
 - [直击东北超：沈阳vs哈尔滨](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [杭州地铁停运](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [巴威发威了暴雨狂风高温一起来](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [日本可回收火箭着陆成功 仅飞11米](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [发现中指的握笔茧消失了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
@@ -46,10 +46,10 @@
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](https://www.abc.com/9035287.html)
 - [25岁南非国脚亚当斯自杀离世](https://www.abc.com/oblbpgjj.html)
 - [直击东北超：沈阳vs哈尔滨](https://www.abc.com/1789672.html)
-- [杭州地铁停运](https://www.abc.com/qqgongud.html)
-- [浙江湖州市长：全面进入战时状态](https://www.abc.com/vyoweyez.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/qqgongud.html)
+- [150斤男记者在浙江沿海被吹到变形](https://www.abc.com/vyoweyez.html)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](https://www.abc.com/nwqvoglc.html)
-- [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](https://www.abc.com/0993480.html)
+- [新兵清淤任务中受伤心里又愧又急](https://www.abc.com/0993480.html)
 - [长沙市体育局干部彭某某被停职](https://www.abc.com/1111121.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](https://www.abc.com/3247656.html)
 - [曝25岁南非国脚自杀离世](https://www.abc.com/dulhqmpb.html)
@@ -59,12 +59,12 @@
 - [这才是《The Other Side Of Paradise》原版MV！](https://www.abc.com/cwalvtqe.html)
 - [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](https://www.abc.com/9252650.html)
 - [你会去看周星驰的新电影《功夫女足》吗？](https://www.abc.com/3284403.html)
-- [哈兰德被评“世界第一玩得起的人”](https://www.abc.com/9583179.html)
+- [广西贵港原副市长潘汉胜被双开](https://www.abc.com/9583179.html)
 - [日媒拆台日本火箭只飞了11米](https://www.abc.com/sddvlttj.html)
-- [150斤男记者在浙江沿海被吹到变形](https://www.abc.com/3673539.html)
+- [大雨中吃盒饭的消防员找到了](https://www.abc.com/3673539.html)
 - [长征十号乙回收时为什么会冒出大量黑烟？](https://www.abc.com/niavcxkd.html)
-- [广西贵港原副市长潘汉胜被双开](https://www.abc.com/8191568.html)
-- [应对台风上海转移3.4万人](https://www.abc.com/hqafonbs.html)
+- [朝鲜通报特大腐败犯罪](https://www.abc.com/8191568.html)
+- [巴威路线东移](https://www.abc.com/hqafonbs.html)
 - [四川再发山洪灾害蓝色预警](https://www.abc.com/ojavvyfy.html)
 - [北京暴雨红色预警](https://www.abc.com/2340572.html)
 - [没有人！比我！更懂！重庆！](https://www.abc.com/vwqzjolh.html)
@@ -73,15 +73,15 @@
 - [功夫女足票房已破2亿](https://www.abc.com/3500770.html)
 - [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](https://www.abc.com/vkgemlfn.html)
 - [杭州 台风](https://www.abc.com/pcehujpe.html)
-- [巴威路线东移](https://www.abc.com/xnblysdt.html)
+- [应对台风上海转移3.4万人](https://www.abc.com/xnblysdt.html)
 - [上海天空](https://www.abc.com/xxiltufh.html)
 - [《大扫除是你的谎言》](https://www.abc.com/9422629.html)
-- [知名主持人喷周星驰新电影：好难看](https://www.abc.com/bqehzgim.html)
+- [最新研判！台风巴威登陆时间或提前](https://www.abc.com/bqehzgim.html)
 - [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](https://www.abc.com/tdqlorhw.html)
 - [巴威即将登陆](https://www.abc.com/cmmzyqyq.html)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](https://www.abc.com/mynsejwi.html)
 - [小米澎程起售价预测](https://www.abc.com/2454017.html)
-- [新兵清淤任务中受伤心里又愧又急](https://www.abc.com/wpfxukjk.html)
+- [杭州地铁停运](https://www.abc.com/wpfxukjk.html)
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](https://www.abc.com/qahsphrk.html)
 - [浙江海边掀起10多米巨浪](https://www.abc.com/bwakcolr.html)
 - [南非25岁世界杯参赛球员去世](https://www.abc.com/8898160.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f1a7ba630f80c1e9170a -->
+<!-- content-fingerprint: 97bad6f6230d5e3a1c19 -->

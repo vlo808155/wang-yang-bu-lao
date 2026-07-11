@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 知名主持人喷周星驰新电影：好难看
+# 最新研判！台风巴威登陆时间或提前
 
-> 来源：百度热搜 · 排名：第 13 位 · 热度：6570239 · 更新：2026-07-11T21:07:39+08:00
+> 来源：百度热搜 · 排名：第 13 位 · 热度：6573001 · 更新：2026-07-11T21:08:26+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“知名主持人喷周星驰新电影：好难看”位列第 13 位，公开热度指标为 6570239。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“最新研判！台风巴威登陆时间或提前”位列第 13 位，公开热度指标为 6573001。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：7月11日，知名主持人林海在微博晒出《功夫女足》票根并配文“星爷，不欠你了。好难看”，称影片“梗是老的，演员是过火的，剧本是脆弱的”。该片为周星驰暌违七年的导演作品，首日票房破亿但口碑两极分化。
+来源公开摘要显示：最新研判！台风“巴威”登陆时间或提前，快速逼近我国或于11日晚登陆。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -47,7 +47,7 @@
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](https://www.abc.com/jamfosdp.html)
 - [Jennie神图诞生了](https://www.abc.com/ngklevzd.html)
 - [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](https://www.abc.com/iorolynq.html)
-- [巴威路线东移](https://www.abc.com/jebvjlvl.html)
+- [应对台风上海转移3.4万人](https://www.abc.com/jebvjlvl.html)
 - [如何评价凡人修仙传182集，慕兰之战第六集？](https://www.abc.com/zbaeihrl.html)
 - [哈兰德PK凯恩 世一锋终极对决](https://www.abc.com/4846099.html)
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](https://www.abc.com/9201579.html)
@@ -60,11 +60,11 @@
 - [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](https://www.abc.com/2842187.html)
 - [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](https://www.abc.com/1279415.html)
 - [巴威登陆地点范围再缩小](https://www.abc.com/xjudkafn.html)
-- [新兵清淤任务中受伤心里又愧又急](https://www.abc.com/3644311.html)
+- [杭州地铁停运](https://www.abc.com/3644311.html)
 - [当我问我妈不结婚可以吗](https://www.abc.com/1769590.html)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](https://www.abc.com/hjyhndhm.html)
 - [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](https://www.abc.com/ceqrhbms.html)
-- [杭州地铁停运](https://www.abc.com/xnndisxg.html)
+- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/xnndisxg.html)
 - [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://www.abc.com/0161445.html)
 - [吾从人族来，自当为人族竭尽全力！](https://www.abc.com/rwwveson.html)
 - [15岁男生因女同桌送画遭围殴](https://www.abc.com/1612182.html)
@@ -76,13 +76,13 @@
 - [海水倒灌](https://www.abc.com/ykkboqdy.html)
 - [巴威即将登陆](https://www.abc.com/sjnhxhkw.html)
 - [长沙市体育局干部彭某某被停职](https://www.abc.com/yaxmmklk.html)
-- [朝鲜通报特大腐败犯罪](https://www.abc.com/ezwfzlmk.html)
+- [哈兰德被评“世界第一玩得起的人”](https://www.abc.com/ezwfzlmk.html)
 - [功夫女足票房已破2亿](https://www.abc.com/annabtai.html)
 - [台风巴威实时路径](https://www.abc.com/wzsrewxi.html)
 - [HLE晋级MSI决赛](https://www.abc.com/3158485.html)
-- [150斤男记者在浙江沿海被吹到变形](https://www.abc.com/1357861.html)
+- [大雨中吃盒饭的消防员找到了](https://www.abc.com/1357861.html)
 - [北京9区市民非必要不外出](https://www.abc.com/6745262.html)
-- [日本可回收火箭着陆成功 仅飞11米](https://www.abc.com/gtcspyqi.html)
+- [浙江湖州市长：全面进入战时状态](https://www.abc.com/gtcspyqi.html)
 - [无人机吊起2人神图系AI合成](https://www.abc.com/1288583.html)
 - [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](https://www.abc.com/jgdbbtex.html)
 - [杭州：台风影响期间非必要不外出](https://www.abc.com/wunezhqd.html)
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [知名主持人喷周星驰新电影：好难看](https://www.baidu.com/s?wd=%E7%9F%A5%E5%90%8D%E4%B8%BB%E6%8C%81%E4%BA%BA%E5%96%B7%E5%91%A8%E6%98%9F%E9%A9%B0%E6%96%B0%E7%94%B5%E5%BD%B1%EF%BC%9A%E5%A5%BD%E9%9A%BE%E7%9C%8B&sa=fyb_news&rsv_dl=fyb_news)
+- [最新研判！台风巴威登陆时间或提前](https://www.baidu.com/s?wd=%E6%9C%80%E6%96%B0%E7%A0%94%E5%88%A4%EF%BC%81%E5%8F%B0%E9%A3%8E%E5%B7%B4%E5%A8%81%E7%99%BB%E9%99%86%E6%97%B6%E9%97%B4%E6%88%96%E6%8F%90%E5%89%8D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: db4adf8870da74b7f73d -->
+<!-- content-fingerprint: c57c424ffb5b225843d0 -->
