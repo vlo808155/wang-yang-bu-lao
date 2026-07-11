@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# “我不在的日子里，你们很嚣张啊”
+# 黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉
 
-> 来源：哔哩哔哩热门 · 排名：第 15 位 · 热度：194158 · 分类：MAD·AMV · 更新：2026-07-12T02:38:26+08:00
+> 来源：哔哩哔哩热门 · 排名：第 15 位 · 热度：2241204 · 分类：科学科普 · 更新：2026-07-12T04:17:33+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，““我不在的日子里，你们很嚣张啊””位列第 15 位，公开热度指标为 194158，榜单分类为“MAD·AMV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉”位列第 15 位，公开热度指标为 2241204，榜单分类为“科学科普”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：你秧姐不在的时候看清了很多人... 策划：柑宝 演唱：艺兔 分镜：Suya 曲绘：松饼 琥珀 米米 狗子 小枝 监修：松饼 混音：奈青 后期：三原色 ----------------------------- 部分素材来源网络，侵删 描改原作：モニタリング BV1qDUPYKEzf 音乐：伯虎说 (就这个停顿爽) 歌手：DJ小沐
+来源公开摘要显示：大家不用恐慌，黄曲霉孢子广泛分布在土壤、空气、动植物表面，我们身边环境随处都有。 孢子本身没有毒性，只有持续温暖潮湿的环境，才会让坚果、干辣椒上的孢子萌发菌丝，进而产生有毒的黄曲霉毒素。 干辣椒黄曲霉孢子检出率高，大多只是晾晒过程沾染了环境中的休眠孢子，干燥保存下不会繁殖，更不会产毒，正常使用无需担心。 使用前可以掰开干辣椒观察种子，如果没有肉眼可见的霉菌和霉变部位，没有就不用担心黄曲霉毒素。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `MAD·AMV`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `科学科普`
 
 ## 相关热点
 
-- [“两倍的价格 我买100吨西瓜”](qu-chang-bu-duan.md)
-- [海水倒灌](jing-yi-qiu-jing.md)
-- [周星驰林子聪“callback”少林足球](jiao-ta-shi-di.md)
-- [直接工作与读大专，哪个更划算？](shi-shi-qiu-shi.md)
+- [浙江温州洞头进入12级风圈](qu-chang-bu-duan.md)
+- [杭州 台风](jing-yi-qiu-jing.md)
+- [25岁南非国脚亚当斯自杀离世](jiao-ta-shi-di.md)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](shi-shi-qiu-shi.md)
 
 ## 站内推荐
 
-- [台风巴威已登陆](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [不到两年现炒称重快餐纷纷倒闭，顾客为什么放弃了自选称重快餐？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [《请看VCR》](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [不久前，在瑞幸隔壁，有家烧饼店的视频火了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [这也太他喵的逆天了吧](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [台风巴威二次登陆](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [魔头恶邻内战瘟疫，手握顶级资源，落入地狱模式【中非10丨刚果（金）】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [周星驰新电影值得大家去走个面儿吗？《功夫女足》诚实观后感](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [完整版 NIGHT DANCER 翻唱 【给爱豆做抽象MV】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [好震撼的一句话瞬间醍醐灌顶](http://www.abc.com/ikjztpuw.html)
-- [宝妈手麻3小时确诊脑梗进抢救室](http://www.abc.com/4842431.html)
-- [交警罚完瓜农又掏钱买下110元瓜](http://www.abc.com/pssjvcun.html)
-- [你们觉得哪个菜系是八大菜系之首？](http://www.abc.com/wocqgnrp.html)
-- [杭州20分钟变了4个色](http://www.abc.com/8234404.html)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/0308421.html)
-- [台风巴威在浙江台州玉环登陆，中心附近最大风力 13 级，你家那里怎么样？](http://www.abc.com/fiypfrca.html)
-- [台风巴威实时路径](http://www.abc.com/hramvnui.html)
-- [原来疯狂吃零食的日子只有十年](http://www.abc.com/ksgypgyk.html)
-- [新娘结婚当天一觉睡到10点多](http://www.abc.com/7718193.html)
-- [霸占车位女干部已停职](http://www.abc.com/7946300.html)
-- [浙江海边掀起10多米巨浪](http://www.abc.com/vovvbpgw.html)
-- [北京9区市民非必要不外出](http://www.abc.com/sltmyuxc.html)
-- [台风巴威在浙江玉环登陆](http://www.abc.com/xonvuray.html)
-- [台风“巴威”在浙江乐清二次登陆](http://www.abc.com/6383209.html)
-- [我----问你为什么要折断奥特钥匙！大结局！（中）](http://www.abc.com/ewawwjqb.html)
-- [大风中上海机场绑完飞机绑舷梯](http://www.abc.com/ddxgfrxj.html)
-- [金身告破！西班牙本届首次丢球](http://www.abc.com/3558249.html)
-- [妈妈去世4个月 女儿同样确诊红斑狼疮](http://www.abc.com/dfnbigcc.html)
-- [死装哥](http://www.abc.com/1760638.html)
-- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/uubiggzx.html)
-- [上海中心1000吨阻尼器开始摆动](http://www.abc.com/1337182.html)
-- [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.abc.com/2337039.html)
-- [为什么西班牙蓝鳍金枪鱼被公认为高端食材？有什么方法让普通人也能平价吃到正宗蓝鳍金枪鱼？](http://www.abc.com/2758622.html)
-- [丁程鑫说王俊凯太能存钱了](http://www.abc.com/8529983.html)
-- [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](http://www.abc.com/mnspzxbd.html)
-- [如何评价周星驰执导、编剧的电影《功夫女足》？](http://www.abc.com/1703683.html)
-- [路怒症被反杀，真的很解气](http://www.abc.com/mpsdnala.html)
-- [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](http://www.abc.com/lzwgjcnz.html)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.abc.com/fvlcikxp.html)
-- [哈兰德PK凯恩 世一锋终极对决](http://www.abc.com/nkqjdsmu.html)
-- [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.abc.com/3275196.html)
-- [周星驰新电影值得大家去走个面儿吗？《功夫女足》诚实观后感](http://www.abc.com/7701999.html)
-- [中国石化完成对中国航油重组](http://www.abc.com/8633607.html)
-- [“两倍的价格 我买100吨西瓜”](http://www.abc.com/3998473.html)
-- [桃黑黑直播回应](http://www.abc.com/2289224.html)
-- [《功夫女足》猫眼开分9.4](http://www.abc.com/hxmovctd.html)
-- [巴威最新位置](http://www.abc.com/6926757.html)
-- [《功夫女足》票房突破 2 亿，你觉得最终票房能到多少？](http://www.abc.com/6527634.html)
-- [【TF家族练习生】《突围II破局》EP03：来自舞台的邀请函（上）](http://www.abc.com/7670761.html)
-- [《潜伏》里的李涯很能干，但是站长为什么更喜欢余则成？](http://www.abc.com/5243022.html)
-- [海贼王为什么剧情为什么越来越差？](http://www.abc.com/ukzyvccm.html)
-- [镇干部接受采访全程挡脸：太像作秀了](http://www.abc.com/8046393.html)
-- [台风巴威已登陆](http://www.abc.com/jqmajhoo.html)
-- [上海中心千吨阻尼器开始摆动](http://www.abc.com/pzchucbx.html)
-- [姆巴佩：为法国效力不赢会被千刀万剐](http://www.abc.com/3063306.html)
-- [你觉得孩子住校好还是走读好？](http://www.abc.com/buvupzfx.html)
-- [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.abc.com/nhmfigpr.html)
-- [25岁南非国脚亚当斯自杀离世](http://www.abc.com/3707366.html)
-- [浙江温州洞头进入12级风圈](http://www.abc.com/nacbczcr.html)
+- [台风巴威在浙江玉环登陆](http://www.daogukj.com/elzxddpw/)
+- [锐评100部恋爱番（求保护）](http://www.movie.hkepx.cn/movie/1864442.htm)
+- [台风“巴威”在浙江乐清二次登陆](http://www.play.hengshemaoyi.cn/xiju/5288873.htm)
+- [冉莹颖邹市明这段看窒息了](http://www.daogukj.com/1789946)
+- [台风巴威实时路径](http://www.play.hengshemaoyi.cn/xiju/7002266.htm)
+- [台风](http://www.daogukj.com/7327475)
+- [台风巴威已登陆](http://www.movie.hkepx.cn/xiju/9951548.htm)
+- [周星驰林子聪“callback”少林足球](http://www.movie.hkepx.cn/xiju/1674151.htm)
+- [直接工作与读大专，哪个更划算？](http://www.play.hengshemaoyi.cn/kongbu/9814810.htm)
+- [宝妈手麻3小时确诊脑梗进抢救室](http://www.daogukj.com/6006131)
+- [张辽为何没有成为曹魏军事集团的核心？](http://www.movie.hkepx.cn/movie/5825798.htm)
+- [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](http://www.movie.hkepx.cn/movie/4511611.htm)
+- [大风中上海机场绑完飞机绑舷梯](http://www.play.hengshemaoyi.cn/xiju/7118308.htm)
+- [杭州 台风](http://www.movie.hkepx.cn/movie/3210477.htm)
+- [世界杯半决赛，法国将对阵西班牙，强强对抗，谁会更胜一筹?](http://www.movie.hkepx.cn/movie/1427819.htm)
+- [《功夫女足》猫眼开分9.4](http://www.daogukj.com/ulhauueh/)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/7426025.htm)
+- [“我不在的日子里，你们很嚣张啊”](http://www.daogukj.com/6828552)
+- [《功夫女足》票房突破 2 亿，你觉得最终票房能到多少？](http://www.daogukj.com/4846063)
+- [上海台风](http://www.play.hengshemaoyi.cn/xiju/1115121.htm)
+- [南非25岁世界杯参赛球员去世](http://www.movie.hkepx.cn/xiju/5458697.htm)
+- [北京9区市民非必要不外出](http://www.movie.hkepx.cn/xiju/7970452.htm)
+- [福袋不发飙升10万人+！今天这局偷家卡牌，大司马人气彻底重回巅峰](http://www.daogukj.com/7831492)
+- [曝25岁南非国脚自杀离世](http://www.movie.hkepx.cn/movie/0165285.htm)
+- [哈兰德PK凯恩 世一锋终极对决](http://www.play.hengshemaoyi.cn/kongbu/1576216.htm)
+- [广西贵港原副市长潘汉胜被双开](http://www.play.hengshemaoyi.cn/kongbu/0352211.htm)
+- [诺斯科娃温网女单冠军](http://www.daogukj.com/skxlcqbv/)
+- [朝鲜通报特大腐败犯罪](http://www.play.hengshemaoyi.cn/kongbu/8194557.htm)
+- [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.play.hengshemaoyi.cn/xiju/8022096.htm)
+- [镇干部接受采访全程挡脸：太像作秀了](http://www.movie.hkepx.cn/xiju/7214601.htm)
+- [海贼王为什么剧情为什么越来越差？](http://www.daogukj.com/nvgfhrus/)
+- [《请看VCR》](http://www.movie.hkepx.cn/xiju/2289573.htm)
+- [丁程鑫说王俊凯太能存钱了](http://www.play.hengshemaoyi.cn/kongbu/7073818.htm)
+- [挪威VS英格兰：凯恩PK哈兰德](http://www.play.hengshemaoyi.cn/kongbu/3209429.htm)
+- [【老番茄/某幻】你毕业啦！](http://www.play.hengshemaoyi.cn/kongbu/4786157.htm)
+- [中国癌症谱50年：“富癌”上升](http://www.movie.hkepx.cn/xiju/4895855.htm)
+- [时隔三十年周星驰刘嘉玲再度合作](http://www.play.hengshemaoyi.cn/kongbu/0234862.htm)
+- [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.daogukj.com/1476559)
+- [为什么不能用炸弹摧毁台风](http://www.play.hengshemaoyi.cn/kongbu/3024566.htm)
+- [12日6时起杭州地铁全线网停运](http://www.movie.hkepx.cn/xiju/4214569.htm)
+- [温州台风](http://www.play.hengshemaoyi.cn/kongbu/1465165.htm)
+- [完整版 NIGHT DANCER 翻唱 【给爱豆做抽象MV】](http://www.daogukj.com/0876342)
+- [你觉得孩子住校好还是走读好？](http://www.play.hengshemaoyi.cn/kongbu/5523593.htm)
+- [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](http://www.movie.hkepx.cn/xiju/7093896.htm)
+- [台风巴威二次登陆](http://www.movie.hkepx.cn/movie/2906304.htm)
+- [知名主持人喷周星驰新电影：好难看](http://www.play.hengshemaoyi.cn/kongbu/6007147.htm)
+- [挪威主厨没想到会进8强](http://www.play.hengshemaoyi.cn/xiju/5236793.htm)
+- [如何评价周星驰执导、编剧的电影《功夫女足》？](http://www.daogukj.com/5178271)
+- [广西洪水](http://www.play.hengshemaoyi.cn/kongbu/4327189.htm)
+- [新娘结婚当天一觉睡到10点多](http://www.daogukj.com/3659644)
 
 </details>
 
 ## 原始来源
 
-- [“我不在的日子里，你们很嚣张啊”](https://b23.tv/BV1WhNw6tEyD)
+- [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](https://b23.tv/BV1dQNL6nEEm)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b6f08b5273e08b0fc777 -->
+<!-- content-fingerprint: e8cc0a946b7945356079 -->
