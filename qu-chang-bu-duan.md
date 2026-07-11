@@ -10,29 +10,57 @@ tags:
 source: "哔哩哔哩热门"
 source_url: "https://b23.tv/BV1cNML6eEsg"
 rank: 15
-updated_at: "2026-07-11T20:18:05+08:00"
-content_fingerprint: "be7ac77901b5937642f8"
+updated_at: "2026-07-11T20:29:32+08:00"
+content_fingerprint: "84e46461b8524ca67249"
 ---
+
+[热点索引](README.md) / 取长补短 / 《和最讨厌的人灵魂互换了》完整版
 
 # 《和最讨厌的人灵魂互换了》完整版
 
-> 来源：哔哩哔哩热门 · 榜单排名：第 15 位 · 更新时间：2026-07-11T20:18:05+08:00
+> 来源：哔哩哔哩热门 · 榜单排名：第 15 位 · 更新时间：2026-07-11T20:29:32+08:00
 
-## 热点正文
+## 事件概览
 
 The Other Self 完整版，修改和增加了一些内容，结尾有彩蛋，希望大家看得开心
 
-## 热点信息
+## 当前榜单信息
 
 - 来源平台：哔哩哔哩热门
 - 当前排名：第 15 位
-- 热度：1507067
+- 热度：1522827
 - 分类：MMD·3D
 - 固定索引：取长补短（qu-chang-bu-duan）
+
+## 阅读关注点
+
+- 该话题当前位于哔哩哔哩热门第 15 位，排名会随实时热度变化。
+- 阅读时应区分榜单热度与事实结论，重要信息以原始来源和权威发布为准。
+- 后续进展可能改变现有信息，页面会在下一次榜单采集时更新。
 
 ## 相关标签
 
 `哔哩哔哩热门` `实时热搜` `热点资讯` `MMD·3D`
+
+## 相关热点
+
+- [15岁男生因女同桌送画遭围殴](jing-yi-qiu-jing.md)（精益求精）
+- [上海已转移3.4万人](jiao-ta-shi-di.md)（脚踏实地）
+- [雁荡山大龙湫瀑布出现飞瀑倒流景象](shi-shi-qiu-shi.md)（实事求是）
+- [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](chi-zhi-yi-heng.md)（持之以恒）
+
+## 前后篇导航
+
+- 上一篇：[如何评价追光动画出品的电影《三国第一部：争洛阳》？](ji-si-guang-yi.md)（集思广益）
+- 下一篇：[15岁男生因女同桌送画遭围殴](jing-yi-qiu-jing.md)（精益求精）
+
+## 热点仓库导航
+
+- [hua-she-tian-zu](https://github.com/vlo808155/hua-she-tian-zu)
+- [shou-zhu-dai-tu](https://github.com/vlo808155/shou-zhu-dai-tu)
+- [ke-zhou-qiu-jian](https://github.com/vlo808155/ke-zhou-qiu-jian)
+- [wang-yang-bu-lao](https://github.com/vlo808155/wang-yang-bu-lao)
+- [jing-di-zhi-wa](https://github.com/vlo808155/jing-di-zhi-wa)
 
 ## 来源与延伸阅读
 
