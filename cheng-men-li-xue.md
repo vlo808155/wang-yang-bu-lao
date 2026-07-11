@@ -9,13 +9,13 @@ tags:
 source: "百度热搜"
 source_url: "https://www.baidu.com/s?wd=%E9%9B%B7%E5%86%9B%E8%AE%A9%E5%8D%96%E8%BD%A6%E7%9A%84%E5%92%8C%E5%8D%96%E6%88%BF%E7%9A%84%E9%83%BD%E6%B2%89%E9%BB%98%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news"
 rank: 13
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "727407b4ecc24c692ff5"
+updated_at: "2026-07-11T20:18:05+08:00"
+content_fingerprint: "36167ff1e37926b07ac8"
 ---
 
 # 雷军让卖车的和卖房的都沉默了
 
-> 来源：百度热搜 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：百度热搜 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:18:05+08:00
 
 ## 热点正文
 
@@ -25,7 +25,7 @@ content_fingerprint: "727407b4ecc24c692ff5"
 
 - 来源平台：百度热搜
 - 当前排名：第 13 位
-- 热度：6573406
+- 热度：6566930
 - 固定索引：程门立雪（cheng-men-li-xue）
 
 ## 相关标签

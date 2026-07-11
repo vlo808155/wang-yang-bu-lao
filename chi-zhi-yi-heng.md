@@ -1,41 +1,41 @@
 ---
-title: "《功夫女足》票房破亿"
-description: "“《功夫女足》票房破亿”目前位于今日头条热榜热门榜单第 16 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。"
-keywords: "今日头条热榜, 实时热搜, 热点资讯, 热门事件, 持之以恒, chi-zhi-yi-heng"
+title: "国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？"
+description: "国务院安委会对福建泉州“7·9”重大火灾查处挂牌督办 7月9日，福建省泉州市晋江市陈埭镇一鞋厂发生重大火灾，造成28人死亡。国务院安委会决定对该起重大火灾查处挂牌督办，并派出国家消防救援局牵头的现场督办组，督促指导福建省开展调查处理工作，要求福建省依照有关法律法规及规章规定，抓紧组织开展调查，尽快查"
+keywords: "知乎热榜, 实时热搜, 热点资讯, 问答, 持之以恒, chi-zhi-yi-heng"
 tags:
-  - "今日头条热榜"
+  - "知乎热榜"
   - "实时热搜"
   - "热点资讯"
-  - "热门事件"
-source: "今日头条热榜"
-source_url: "https://www.toutiao.com/trending/7660754592174444074/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660754592174444074%22%2C%22hot_board_impr_id%22%3A%2220260711201128DFCE63EBFCE0CB53AFBA%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n"
+  - "问答"
+source: "知乎热榜"
+source_url: "https://www.zhihu.com/question/2059215563638018597"
 rank: 16
-updated_at: "2026-07-11T20:11:28+08:00"
-content_fingerprint: "0b3e1967bc5a79c7af89"
+updated_at: "2026-07-11T20:18:05+08:00"
+content_fingerprint: "67ca48c892d6d025c8ac"
 ---
 
-# 《功夫女足》票房破亿
+# 国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？
 
-> 来源：今日头条热榜 · 榜单排名：第 16 位 · 更新时间：2026-07-11T20:11:28+08:00
+> 来源：知乎热榜 · 榜单排名：第 16 位 · 更新时间：2026-07-11T20:18:05+08:00
 
 ## 热点正文
 
-“《功夫女足》票房破亿”目前位于今日头条热榜热门榜单第 16 位。榜单数据会随平台热度变化持续更新，事件详情与后续进展请以来源页面为准。
+国务院安委会对福建泉州“7·9”重大火灾查处挂牌督办 7月9日，福建省泉州市晋江市陈埭镇一鞋厂发生重大火灾，造成28人死亡。国务院安委会决定对该起重大火灾查处挂牌督办，并派出国家消防救援局牵头的现场督办组，督促指导福建省开展调查处理工作，要求福建省依照有关法律法规及规章规定，抓紧组织开展调查，尽快查明起火原因和管理原因，精准确定火灾性质，查清责任，严肃提出处理意见和整改措施。国务院安委会对福建泉州“7·9”重大火灾查处挂牌督办
 
 ## 热点信息
 
-- 来源平台：今日头条热榜
+- 来源平台：知乎热榜
 - 当前排名：第 16 位
-- 热度：20026348
-- 分类：热门事件
+- 热度：133 万热度
+- 分类：问答
 - 固定索引：持之以恒（chi-zhi-yi-heng）
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 来源与延伸阅读
 
-- [《功夫女足》票房破亿](https://www.toutiao.com/trending/7660754592174444074/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227660754592174444074%22%2C%22hot_board_impr_id%22%3A%2220260711201128DFCE63EBFCE0CB53AFBA%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](https://www.zhihu.com/question/2059215563638018597)
 
 本文根据公开热点榜单信息整理，仅提供标题、简要摘要、热度与来源索引。事件事实、完整报道及后续变化请以原始来源为准。

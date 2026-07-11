@@ -10,13 +10,13 @@ tags:
 source: "知乎热榜"
 source_url: "https://www.zhihu.com/question/2058983815834505654"
 rank: 13
-updated_at: "2026-07-11T20:11:07+08:00"
-content_fingerprint: "9341f97ab7edfdb71c98"
+updated_at: "2026-07-11T20:18:05+08:00"
+content_fingerprint: "4aae685357ada75ce072"
 ---
 
 # 如何评价凡人修仙传182集，慕兰之战第六集？
 
-> 来源：知乎热榜 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:11:07+08:00
+> 来源：知乎热榜 · 榜单排名：第 13 位 · 更新时间：2026-07-11T20:18:05+08:00
 
 ## 热点正文
 
@@ -26,7 +26,7 @@ content_fingerprint: "9341f97ab7edfdb71c98"
 
 - 来源平台：知乎热榜
 - 当前排名：第 13 位
-- 热度：202 万热度
+- 热度：197 万热度
 - 分类：问答
 - 固定索引：凿壁偷光（zao-bi-tou-guang）
 
