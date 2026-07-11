@@ -2,7 +2,7 @@
 
 # 最新研判！台风巴威登陆时间或提前
 
-> 来源：百度热搜 · 排名：第 13 位 · 热度：6560966 · 更新：2026-07-11T21:13:48+08:00
+> 来源：百度热搜 · 排名：第 13 位 · 热度：6560966 · 更新：2026-07-11T21:14:45+08:00
 
 ## 热点正文
 
@@ -39,7 +39,7 @@
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.abc.com/7451779.html)
 - [日本可回收火箭着陆成功 仅飞11米](http://www.abc.com/5447271.html)
 - [迪丽热巴工作室发的live图](http://www.abc.com/oeubsdlr.html)
-- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/zfwovrfq.html)
+- [应对台风上海转移3.4万人](http://www.abc.com/zfwovrfq.html)
 - [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](http://www.abc.com/7312577.html)
 - [杭州地铁停运](http://www.abc.com/swybtabn.html)
 - [前瞻：三狮军团能否锁死哈兰德](http://www.abc.com/ggopowjl.html)
@@ -50,7 +50,7 @@
 - [PC今日公测！《遗忘之海》PV「初航乐章」](http://www.abc.com/qsbgehze.html)
 - [暑期防汛科普小知识请查收](http://www.abc.com/0152842.html)
 - [【全球首发】《全面战争：战锤40000》 | 游戏实机演示视频](http://www.abc.com/xvritiag.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/ersctjze.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/ersctjze.html)
 - [路怒症被反杀，真的很解气](http://www.abc.com/0526937.html)
 - [《下一个是谁》第七季（1）](http://www.abc.com/zearjtup.html)
 - [长征十号乙回收时为什么会冒出大量黑烟？](http://www.abc.com/8849711.html)
@@ -64,7 +64,7 @@
 - [浙江惊现“台风霞”粉紫色天空](http://www.abc.com/5669910.html)
 - [段奥娟这么瘦了](http://www.abc.com/1784991.html)
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](http://www.abc.com/euzlybpu.html)
-- [长沙霸占车位公职人员被停职](http://www.abc.com/fvjuqrlw.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/fvjuqrlw.html)
 - [长沙市体育局干部彭某某被停职](http://www.abc.com/5309397.html)
 - [台风来袭科学避险完整指南](http://www.abc.com/4264930.html)
 - [巴威登陆地点范围再缩小](http://www.abc.com/tgokwnxv.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a8c57cf04ac1f7ca7f2a -->
+<!-- content-fingerprint: 78d17f41dd4a2974e095 -->

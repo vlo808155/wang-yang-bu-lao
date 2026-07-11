@@ -2,7 +2,7 @@
 
 # 《大扫除是你的谎言》
 
-> 来源：哔哩哔哩热门 · 排名：第 13 位 · 热度：1905804 · 分类：搞笑 · 更新：2026-07-11T21:13:48+08:00
+> 来源：哔哩哔哩热门 · 排名：第 13 位 · 热度：1905804 · 分类：搞笑 · 更新：2026-07-11T21:14:45+08:00
 
 ## 热点正文
 
@@ -48,10 +48,10 @@
 - [朝鲜通报特大腐败犯罪](http://www.abc.com/7099541.html)
 - [16岁高中生踢门玩闹后被捅杀](http://www.abc.com/nkpoqsol.html)
 - [长征十号乙回收时为什么会冒出大量黑烟？](http://www.abc.com/8037232.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/fnxnrywt.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/fnxnrywt.html)
 - [霸占车位女干部已停职](http://www.abc.com/4730539.html)
 - [哈兰德PK凯恩 世一锋终极对决](http://www.abc.com/0672297.html)
-- [应对台风上海转移3.4万人](http://www.abc.com/dgsylajz.html)
+- [南非25岁世界杯参赛球员去世](http://www.abc.com/dgsylajz.html)
 - [HLE晋级MSI决赛](http://www.abc.com/mjzebylj.html)
 - [迪丽热巴工作室发的live图](http://www.abc.com/3166317.html)
 - [浙江湖州市长：全面进入战时状态](http://www.abc.com/6753998.html)
@@ -66,16 +66,16 @@
 - [金鳞岂是池中物，哄好岳母便化龙](http://www.abc.com/dynmchby.html)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.abc.com/yaotyygj.html)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.abc.com/3140874.html)
-- [长沙霸占车位公职人员被停职](http://www.abc.com/gefwgypq.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/gefwgypq.html)
 - [PC今日公测！《遗忘之海》PV「初航乐章」](http://www.abc.com/0198173.html)
 - [台风巴威或将提前于 11 日夜间至 12 日凌晨登陆，十级风圈抵达浙江，你家那里怎么样？](http://www.abc.com/mnmxvdss.html)
 - [曝25岁南非国脚自杀离世](http://www.abc.com/4287775.html)
 - [150斤男记者在浙江沿海被吹到变形](http://www.abc.com/4519356.html)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.abc.com/wmnxxlti.html)
 - [台风巴威实时路径](http://www.abc.com/3941419.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/qtysfzau.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/qtysfzau.html)
 - [足坛真神TOP：德布劳内！告别世界杯！巅峰的他一定可以把球转给你！](http://www.abc.com/5550938.html)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/jcihuggg.html)
+- [巴威路线东移](http://www.abc.com/jcihuggg.html)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](http://www.abc.com/xlzyzwgu.html)
 - [小米澎程起售价预测](http://www.abc.com/2746620.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](http://www.abc.com/7192791.html)
@@ -83,7 +83,7 @@
 - [段奥娟这么瘦了](http://www.abc.com/cykawaxa.html)
 - [功夫女足票房已破2亿](http://www.abc.com/5792057.html)
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](http://www.abc.com/0736138.html)
-- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/2726796.html)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/2726796.html)
 - [知名主持人喷周星驰新电影：好难看](http://www.abc.com/9534134.html)
 - [你会去看周星驰的新电影《功夫女足》吗？](http://www.abc.com/panfhfsl.html)
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1e05bf9e0b16ab0f1c33 -->
+<!-- content-fingerprint: 19111e4fa6961019422a -->

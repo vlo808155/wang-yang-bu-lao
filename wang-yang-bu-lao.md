@@ -2,7 +2,7 @@
 
 # 上海天空
 
-> 来源：微博热搜 · 排名：第 13 位 · 热度：348936 · 分类：民生新闻 · 更新：2026-07-11T21:13:48+08:00
+> 来源：微博热搜 · 排名：第 13 位 · 热度：348936 · 分类：民生新闻 · 更新：2026-07-11T21:14:45+08:00
 
 ## 热点正文
 
@@ -26,10 +26,10 @@
 ## 站内推荐
 
 - [各地全力以赴防范台风巴威](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [南非25岁世界杯参赛球员去世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [长沙霸占车位公职人员被停职](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
 - [周星驰官宣星女郎雪野](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
 - [广西贵港原副市长潘汉胜被双开](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [“26版西游记”团队回应爆火出圈](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [博主：泽连斯基避谈乌国内战损情况](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
@@ -54,12 +54,12 @@
 - [杭州 台风](http://www.abc.com/6410486.html)
 - [霸占车位女干部已停职](http://www.abc.com/5650906.html)
 - [杭州地铁停运](http://www.abc.com/3680750.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/altuitvx.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/altuitvx.html)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.abc.com/8309510.html)
 - [这才是《The Other Side Of Paradise》原版MV！](http://www.abc.com/3073081.html)
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](http://www.abc.com/5874432.html)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.abc.com/0170082.html)
-- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/4802392.html)
+- [应对台风上海转移3.4万人](http://www.abc.com/4802392.html)
 - [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](http://www.abc.com/mqlxdswy.html)
 - [16岁高中生踢门玩闹后被捅杀](http://www.abc.com/udnjieqb.html)
 - [浙江惊现“台风霞”粉紫色天空](http://www.abc.com/4630211.html)
@@ -69,7 +69,7 @@
 - [15岁男生因女同桌送画遭围殴](http://www.abc.com/9929229.html)
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](http://www.abc.com/roomkzaj.html)
 - [迪丽热巴工作室发的live图](http://www.abc.com/8513718.html)
-- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/8313472.html)
+- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/8313472.html)
 - [小米澎程起售价预测](http://www.abc.com/dfymayec.html)
 - [如何评价周星驰执导、编剧的电影《功夫女足》？](http://www.abc.com/3610731.html)
 - [杭州：台风影响期间非必要不外出](http://www.abc.com/1930098.html)
@@ -82,7 +82,7 @@
 - [北京9区市民非必要不外出](http://www.abc.com/5569795.html)
 - [商务部、海关总署对氦气实施临时禁止出口管理，有哪些信息值得关注？](http://www.abc.com/0362496.html)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.abc.com/ljnqstpk.html)
-- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/9149279.html)
+- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/9149279.html)
 - [哈兰德PK凯恩 世一锋终极对决](http://www.abc.com/0228395.html)
 - [曝25岁南非国脚自杀离世](http://www.abc.com/9595346.html)
 - [浙江湖州市长：全面进入战时状态](http://www.abc.com/nqamkoyo.html)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1286c504aac5b682c626 -->
+<!-- content-fingerprint: 04e9403dade93f5f6369 -->

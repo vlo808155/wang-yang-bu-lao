@@ -2,11 +2,11 @@
 
 # 《和最讨厌的人灵魂互换了》完整版
 
-> 来源：哔哩哔哩热门 · 排名：第 16 位 · 热度：1576711 · 分类：MMD·3D · 更新：2026-07-11T21:13:48+08:00
+> 来源：哔哩哔哩热门 · 排名：第 16 位 · 热度：1578479 · 分类：MMD·3D · 更新：2026-07-11T21:14:45+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《和最讨厌的人灵魂互换了》完整版”位列第 16 位，公开热度指标为 1576711，榜单分类为“MMD·3D”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“《和最讨厌的人灵魂互换了》完整版”位列第 16 位，公开热度指标为 1578479，榜单分类为“MMD·3D”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：The Other Self 完整版，修改和增加了一些内容，结尾有彩蛋，希望大家看得开心
 
@@ -26,7 +26,7 @@
 ## 站内推荐
 
 - [巴威即将登陆](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [巴威路线东移](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
 - [为什么电影《奥本海默》中的科学家形象，不像现实中的理工科学生，反而像文科生？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
 - [金鳞岂是池中物，哄好岳母便化龙](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
 - [【全球首发】《全面战争：战锤40000》 | 游戏实机演示视频](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
@@ -45,7 +45,7 @@
 - [朝鲜通报特大腐败犯罪](http://www.abc.com/5217896.html)
 - [杭州 台风](http://www.abc.com/7475647.html)
 - [美巨头辉瑞前总部大楼恐局部坍塌，有两根支撑梁柱发生弯曲，哪些信息值得关注？](http://www.abc.com/2777005.html)
-- [巴威路线东移](http://www.abc.com/9201185.html)
+- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/9201185.html)
 - [前瞻：三狮军团能否锁死哈兰德](http://www.abc.com/cgghmqun.html)
 - [这才是《The Other Side Of Paradise》原版MV！](http://www.abc.com/ztipgktu.html)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](http://www.abc.com/1804384.html)
@@ -69,23 +69,23 @@
 - [曝25岁南非国脚自杀离世](http://www.abc.com/9297672.html)
 - [15岁男生因女同桌送画遭围殴](http://www.abc.com/3745328.html)
 - [曝余承东内部群发飙](http://www.abc.com/4752461.html)
-- [南非25岁世界杯参赛球员去世](http://www.abc.com/fwovjyis.html)
+- [长沙霸占车位公职人员被停职](http://www.abc.com/fwovjyis.html)
 - [台风巴威实时路径](http://www.abc.com/abrgxdee.html)
-- [哈兰德被评“世界第一玩得起的人”](http://www.abc.com/zwcmpyuj.html)
+- [应对台风上海转移3.4万人](http://www.abc.com/zwcmpyuj.html)
 - [你会去看周星驰的新电影《功夫女足》吗？](http://www.abc.com/2892730.html)
 - [日本可回收火箭着陆成功 仅飞11米](http://www.abc.com/hhzceirh.html)
 - [巴威登陆地点范围再缩小](http://www.abc.com/cghazctr.html)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.abc.com/glvjbrpq.html)
 - [去了一趟得克萨斯州。](http://www.abc.com/3343782.html)
 - [浙江海边掀起10多米巨浪](http://www.abc.com/ollaqwkc.html)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.abc.com/iyaoswub.html)
+- [巴威路线东移](http://www.abc.com/iyaoswub.html)
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](http://www.abc.com/vtbhggvo.html)
 - [没有人！比我！更懂！重庆！](http://www.abc.com/2674770.html)
-- [A股一周熊股出炉：最熊股跌超84%](http://www.abc.com/enpvcztf.html)
+- [远炸近攻 乌军对俄放两大招意欲何为](http://www.abc.com/enpvcztf.html)
 - [德布劳内等比利时黄金一代结束了他们最后的世界杯旅途，他们本届比赛表现怎么样？你对黄金一代有哪些记忆？](http://www.abc.com/yyhztfmk.html)
 - [暑期防汛科普小知识请查收](http://www.abc.com/3228515.html)
 - [段奥娟这么瘦了](http://www.abc.com/suocpatu.html)
-- [长沙霸占车位公职人员被停职](http://www.abc.com/rzhbmtma.html)
+- [吾从人族来，自当为人族竭尽全力！](http://www.abc.com/rzhbmtma.html)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7bbe1f2c8038ed02a380 -->
+<!-- content-fingerprint: 2e67cfcffa61f1bf8c85 -->
