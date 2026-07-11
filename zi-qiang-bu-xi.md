@@ -2,11 +2,11 @@
 
 # 世界杯南非队25岁球员去世
 
-> 来源：百度热搜 · 排名：第 16 位 · 热度：6283477 · 更新：2026-07-11T20:56:41+08:00
+> 来源：百度热搜 · 排名：第 16 位 · 热度：6287844 · 更新：2026-07-11T20:57:23+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“世界杯南非队25岁球员去世”位列第 16 位，公开热度指标为 6283477。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“世界杯南非队25岁球员去世”位列第 16 位，公开热度指标为 6287844。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：突发消息，南非队球员杰登·亚当斯去世，年仅25岁，有消息称死因是上吊自杀。亚当斯代表南非队参加了本届美加墨世界杯，出场3场比赛共117分钟。
 
@@ -19,17 +19,17 @@
 ## 相关热点
 
 - [孩子发烧邹市明在房间里打游戏](fen-fa-tu-qiang.md)
-- [台风巴威1小时走30到50公里](wang-yang-bu-lao.md)
+- [上海天空](wang-yang-bu-lao.md)
 - [广西贵港原副市长潘汉胜被双开](xuan-liang-ci-gu.md)
 - [世界杯四强大胆预测，会是法国，阿根廷，英格兰和西班牙吗？](zao-bi-tou-guang.md)
 
 ## 站内推荐
 
 - [你会去看周星驰的新电影《功夫女足》吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [吾从人族来，自当为人族竭尽全力！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
 - [金鳞岂是池中物，哄好岳母便化龙](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [150斤男记者在浙江沿海被吹到变形](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [浙江湖州市长：全面进入战时状态](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0f2a3705b9f1541b4975 -->
+<!-- content-fingerprint: f1982c3f1084d11139f3 -->

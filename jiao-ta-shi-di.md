@@ -2,11 +2,11 @@
 
 # 15岁男生因女同桌送画遭围殴
 
-> 来源：百度热搜 · 排名：第 15 位 · 热度：6380369 · 更新：2026-07-11T20:56:41+08:00
+> 来源：百度热搜 · 排名：第 15 位 · 热度：6377647 · 更新：2026-07-11T20:57:23+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“15岁男生因女同桌送画遭围殴”位列第 15 位，公开热度指标为 6380369。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“15岁男生因女同桌送画遭围殴”位列第 15 位，公开热度指标为 6377647。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：山东聊城莘县东鲁中学初三学生小明（化名），只因白天同学将女同桌送他的两张漫画抢走发生口角，晚自习散场后被多名同学强行拖拽至废弃厂区门口围殴，造成腰椎两处横突骨折、颈椎寰枢椎半脱位。
 
@@ -18,7 +18,7 @@
 
 ## 相关热点
 
-- [海水倒灌](shi-shi-qiu-shi.md)
+- [TF四代考核人气分](shi-shi-qiu-shi.md)
 - [国务院安委会对福建泉州「7·9」重大火灾查处挂牌督办，哪些信息值得关注？](chi-zhi-yi-heng.md)
 - [《和最讨厌的人灵魂互换了》完整版](jian-ren-bu-ba.md)
 - [世界杯南非队25岁球员去世](zi-qiang-bu-xi.md)
@@ -27,8 +27,8 @@
 
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [日本可回收火箭着陆成功 仅飞11米](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [最新研判！台风巴威登陆时间或提前](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [浙江惊现“台风霞”粉紫色天空](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [日本可回收火箭着陆成功 仅飞11米](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
 - [小米澎程起售价预测](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 976ccdb28a55fc33315a -->
+<!-- content-fingerprint: 76835977cb2b0b5e5a6e -->
