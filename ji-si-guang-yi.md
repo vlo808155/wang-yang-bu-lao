@@ -2,11 +2,11 @@
 
 # 黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉
 
-> 来源：哔哩哔哩热门 · 排名：第 15 位 · 热度：2245582 · 分类：科学科普 · 更新：2026-07-12T04:27:05+08:00
+> 来源：哔哩哔哩热门 · 排名：第 15 位 · 热度：2246151 · 分类：科学科普 · 更新：2026-07-12T04:28:56+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉”位列第 15 位，公开热度指标为 2245582，榜单分类为“科学科普”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉”位列第 15 位，公开热度指标为 2246151，榜单分类为“科学科普”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：大家不用恐慌，黄曲霉孢子广泛分布在土壤、空气、动植物表面，我们身边环境随处都有。 孢子本身没有毒性，只有持续温暖潮湿的环境，才会让坚果、干辣椒上的孢子萌发菌丝，进而产生有毒的黄曲霉毒素。 干辣椒黄曲霉孢子检出率高，大多只是晾晒过程沾染了环境中的休眠孢子，干燥保存下不会繁殖，更不会产毒，正常使用无需担心。 使用前可以掰开干辣椒观察种子，如果没有肉眼可见的霉菌和霉变部位，没有就不用担心黄曲霉毒素。
 
@@ -19,7 +19,7 @@
 ## 相关热点
 
 - [知名主持人喷周星驰新电影：好难看](qu-chang-bu-duan.md)
-- [广西洪水](jing-yi-qiu-jing.md)
+- [丁程鑫说王俊凯太能存钱了](jing-yi-qiu-jing.md)
 - [25岁南非国脚亚当斯自杀离世](jiao-ta-shi-di.md)
 - [如何评价周星驰执导、编剧的电影《功夫女足》？](shi-shi-qiu-shi.md)
 
@@ -49,21 +49,21 @@
 - [张辽为何没有成为曹魏军事集团的核心？](http://www.movie.hkepx.cn/movie/5825798.htm)
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](http://www.movie.hkepx.cn/movie/4511611.htm)
 - [万物都能撞脸哈兰德](http://www.play.hengshemaoyi.cn/xiju/7118308.htm)
-- [广西洪水](http://www.movie.hkepx.cn/movie/3210477.htm)
-- [为什么不能用炸弹摧毁台风](http://www.movie.hkepx.cn/movie/1427819.htm)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.daogukj.com/ulhauueh/)
+- [丁程鑫说王俊凯太能存钱了](http://www.movie.hkepx.cn/movie/3210477.htm)
+- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.movie.hkepx.cn/movie/1427819.htm)
+- [《功夫女足》猫眼开分9.4](http://www.daogukj.com/ulhauueh/)
 - [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/7426025.htm)
 - [“我不在的日子里，你们很嚣张啊”](http://www.daogukj.com/6828552)
 - [《功夫女足》票房突破 2 亿，你觉得最终票房能到多少？](http://www.daogukj.com/4846063)
 - [上海台风](http://www.play.hengshemaoyi.cn/xiju/1115121.htm)
-- [桃黑黑直播回应](http://www.movie.hkepx.cn/xiju/5458697.htm)
+- [南非25岁世界杯参赛球员去世](http://www.movie.hkepx.cn/xiju/5458697.htm)
 - [北京9区市民非必要不外出](http://www.movie.hkepx.cn/xiju/7970452.htm)
 - [福袋不发飙升10万人+！今天这局偷家卡牌，大司马人气彻底重回巅峰](http://www.daogukj.com/7831492)
-- [曝25岁南非国脚自杀离世](http://www.movie.hkepx.cn/movie/0165285.htm)
+- [“两倍的价格 我买100吨西瓜”](http://www.movie.hkepx.cn/movie/0165285.htm)
 - [哈兰德PK凯恩 世一锋终极对决](http://www.play.hengshemaoyi.cn/kongbu/1576216.htm)
 - [梅里诺绝杀完葡萄牙又绝杀比利时](http://www.play.hengshemaoyi.cn/kongbu/0352211.htm)
 - [台风巴威1小时走30到50公里](http://www.daogukj.com/skxlcqbv/)
-- [手麻脚麻真的要赶紧进医院](http://www.play.hengshemaoyi.cn/kongbu/8194557.htm)
+- [为什么不能用炸弹摧毁台风](http://www.play.hengshemaoyi.cn/kongbu/8194557.htm)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.play.hengshemaoyi.cn/xiju/8022096.htm)
 - [镇干部接受采访全程挡脸：太像作秀了](http://www.movie.hkepx.cn/xiju/7214601.htm)
 - [海贼王为什么剧情为什么越来越差？](http://www.daogukj.com/nvgfhrus/)
@@ -81,10 +81,10 @@
 - [你觉得孩子住校好还是走读好？](http://www.play.hengshemaoyi.cn/kongbu/5523593.htm)
 - [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](http://www.movie.hkepx.cn/xiju/7093896.htm)
 - [台风巴威二次登陆](http://www.movie.hkepx.cn/movie/2906304.htm)
-- [浙江惊现“台风霞”粉紫色天空](http://www.play.hengshemaoyi.cn/kongbu/6007147.htm)
-- [诺斯科娃温网女单冠军](http://www.play.hengshemaoyi.cn/xiju/5236793.htm)
+- [救援期间冒雨吃饭的消防员找到了](http://www.play.hengshemaoyi.cn/kongbu/6007147.htm)
+- [杭州 台风](http://www.play.hengshemaoyi.cn/xiju/5236793.htm)
 - [如何评价周星驰执导、编剧的电影《功夫女足》？](http://www.daogukj.com/5178271)
-- [丁程鑫说王俊凯太能存钱了](http://www.play.hengshemaoyi.cn/kongbu/4327189.htm)
+- [广西洪水](http://www.play.hengshemaoyi.cn/kongbu/4327189.htm)
 - [朝鲜通报特大腐败犯罪](http://www.daogukj.com/3659644)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1c9e4182da41598dd811 -->
+<!-- content-fingerprint: 9a1ecb2e7cc757f8ddbd -->

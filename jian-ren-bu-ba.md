@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 浙江惊现“台风霞”粉紫色天空
+# 救援期间冒雨吃饭的消防员找到了
 
-> 来源：百度热搜 · 排名：第 16 位 · 热度：6282596 · 更新：2026-07-12T04:27:05+08:00
+> 来源：百度热搜 · 排名：第 16 位 · 热度：6280718 · 更新：2026-07-12T04:28:56+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“浙江惊现“台风霞”粉紫色天空”位列第 16 位，公开热度指标为 6282596。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“救援期间冒雨吃饭的消防员找到了”位列第 16 位，公开热度指标为 6280718。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：7月11日，多位浙江网友拍到粉紫色天空，或为台风预兆，中央气象台预测台风“巴威”或将于11日夜间或12日凌晨在浙江沿海登陆。
+百度热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -38,7 +38,7 @@
 
 - [台风巴威二次登陆](http://www.movie.hkepx.cn/movie/1165692.htm)
 - [《请看VCR》](http://www.movie.hkepx.cn/movie/1352170.htm)
-- [“两倍的价格 我买100吨西瓜”](http://www.play.hengshemaoyi.cn/kongbu/5123614.htm)
+- [曝25岁南非国脚自杀离世](http://www.play.hengshemaoyi.cn/kongbu/5123614.htm)
 - [路怒症被反杀，真的很解气](http://www.daogukj.com/npyuporz/)
 - [张辽为何没有成为曹魏军事集团的核心？](http://www.daogukj.com/4148221)
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](http://www.play.hengshemaoyi.cn/kongbu/4994132.htm)
@@ -64,7 +64,7 @@
 - [北京9区市民非必要不外出](http://www.play.hengshemaoyi.cn/kongbu/4901914.htm)
 - [海贼王为什么剧情为什么越来越差？](http://www.movie.hkepx.cn/xiju/8477603.htm)
 - [如何看待广西洪灾中无人机打破「不许吊人」规定进行人员转运？](http://www.play.hengshemaoyi.cn/xiju/3986361.htm)
-- [手麻脚麻真的要赶紧进医院](http://www.play.hengshemaoyi.cn/kongbu/1320737.htm)
+- [为什么不能用炸弹摧毁台风](http://www.play.hengshemaoyi.cn/kongbu/1320737.htm)
 - [长征十号乙回收时为什么会冒出大量黑烟？](http://www.daogukj.com/oebzlmot/)
 - [时隔三十年周星驰刘嘉玲再度合作](http://www.play.hengshemaoyi.cn/kongbu/4919916.htm)
 - [周星驰新电影值得大家去走个面儿吗？《功夫女足》诚实观后感](http://www.daogukj.com/jenzjadv/)
@@ -76,10 +76,10 @@
 - [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](http://www.play.hengshemaoyi.cn/kongbu/6146556.htm)
 - [上海台风](http://www.play.hengshemaoyi.cn/kongbu/2930988.htm)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/4794891.htm)
-- [诺斯科娃温网女单冠军](http://www.movie.hkepx.cn/xiju/9142629.htm)
+- [杭州 台风](http://www.movie.hkepx.cn/xiju/9142629.htm)
 - [镇干部接受采访全程挡脸：太像作秀了](http://www.play.hengshemaoyi.cn/kongbu/7682672.htm)
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](http://www.daogukj.com/idlsclvt/)
-- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.play.hengshemaoyi.cn/kongbu/8778582.htm)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.play.hengshemaoyi.cn/kongbu/8778582.htm)
 - [台风巴威在浙江台州玉环登陆，中心附近最大风力 13 级，你家那里怎么样？](http://www.play.hengshemaoyi.cn/kongbu/8593743.htm)
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](http://www.play.hengshemaoyi.cn/xiju/0951279.htm)
 - [家长投诉孩子期末考试无分数，只有考试等级，教育部称减负不是剥夺家长知分权，学校该如何解决家长这一诉求？](http://www.daogukj.com/hjqvdxzs/)
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [浙江惊现“台风霞”粉紫色天空](https://www.baidu.com/s?wd=%E6%B5%99%E6%B1%9F%E6%83%8A%E7%8E%B0%E2%80%9C%E5%8F%B0%E9%A3%8E%E9%9C%9E%E2%80%9D%E7%B2%89%E7%B4%AB%E8%89%B2%E5%A4%A9%E7%A9%BA&sa=fyb_news&rsv_dl=fyb_news)
+- [救援期间冒雨吃饭的消防员找到了](https://www.baidu.com/s?wd=%E6%95%91%E6%8F%B4%E6%9C%9F%E9%97%B4%E5%86%92%E9%9B%A8%E5%90%83%E9%A5%AD%E7%9A%84%E6%B6%88%E9%98%B2%E5%91%98%E6%89%BE%E5%88%B0%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 842e06d5975ed27613b6 -->
+<!-- content-fingerprint: 8b03ab0961cc79957f19 -->

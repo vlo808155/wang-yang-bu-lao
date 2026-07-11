@@ -2,11 +2,11 @@
 
 # 哈兰德PK凯恩 世一锋终极对决
 
-> 来源：百度热搜 · 排名：第 14 位 · 热度：6469749 · 更新：2026-07-12T04:27:05+08:00
+> 来源：百度热搜 · 排名：第 14 位 · 热度：6474525 · 更新：2026-07-12T04:28:56+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“哈兰德PK凯恩 世一锋终极对决”位列第 14 位，公开热度指标为 6469749。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“哈兰德PK凯恩 世一锋终极对决”位列第 14 位，公开热度指标为 6474525。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：7月12日5时，挪威与英格兰将在迈阿密硬石体育场展开世界杯1/4决赛，哈兰德与凯恩的“世一锋”对决成为焦点。
 
@@ -18,7 +18,7 @@
 
 ## 相关热点
 
-- [丁程鑫说王俊凯太能存钱了](wen-gu-zhi-xin.md)
+- [广西洪水](wen-gu-zhi-xin.md)
 - [宝妈手麻3小时确诊脑梗进抢救室](ju-yi-fan-san.md)
 - [直接工作与读大专，哪个更划算？](rong-hui-guan-tong.md)
 - [黏菌挑战世界第二辣的龙息辣椒！竟意外长出黄曲霉](ji-si-guang-yi.md)
@@ -26,9 +26,9 @@
 ## 站内推荐
 
 - [路怒症被反杀，真的很解气](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [曝25岁南非国脚自杀离世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [北京暴雨红色预警](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [浙江惊现“台风霞”粉紫色天空](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [“两倍的价格 我买100吨西瓜”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [浙江惊现“台风霞”粉紫色天空](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [救援期间冒雨吃饭的消防员找到了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
 - [万物都能撞脸哈兰德](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
@@ -39,13 +39,13 @@
 - [【独家】《凡人修仙传之慕兰之战》第6集【总第182集】](http://www.play.hengshemaoyi.cn/xiju/1488370.htm)
 - [各地全力以赴防范台风巴威](http://www.movie.hkepx.cn/xiju/8142802.htm)
 - [霸占车位女干部已停职](http://www.daogukj.com/aifavzjo/)
-- [浙江惊现“台风霞”粉紫色天空](http://www.daogukj.com/prhgrxkc/)
+- [救援期间冒雨吃饭的消防员找到了](http://www.daogukj.com/prhgrxkc/)
 - [台风巴威在浙江玉环登陆](http://www.daogukj.com/xljpgpar/)
 - [2026年MSI季中冠军赛淘汰赛HLE 3:2 LYON，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/8269810.htm)
-- [诺斯科娃温网女单冠军](http://www.daogukj.com/1042234)
-- [这才是《The Other Side Of Paradise》原版MV！](http://www.movie.hkepx.cn/movie/2017762.htm)
+- [杭州 台风](http://www.daogukj.com/1042234)
+- [《功夫女足》猫眼开分9.4](http://www.movie.hkepx.cn/movie/2017762.htm)
 - [姆巴佩：为法国效力不赢会被千刀万剐](http://www.play.hengshemaoyi.cn/kongbu/7305402.htm)
-- [曝25岁南非国脚自杀离世](http://www.movie.hkepx.cn/xiju/5372175.htm)
+- [“两倍的价格 我买100吨西瓜”](http://www.movie.hkepx.cn/xiju/5372175.htm)
 - [北京9区市民非必要不外出](http://www.play.hengshemaoyi.cn/xiju/1521285.htm)
 - [女儿女婿自杀后妈妈投身防性侵宣传](http://www.play.hengshemaoyi.cn/kongbu/1443383.htm)
 - [梅里诺绝杀完葡萄牙又绝杀比利时](http://www.play.hengshemaoyi.cn/xiju/8078591.htm)
@@ -53,7 +53,7 @@
 - [长沙通报「体育局干部占车位事件」，彭某某被停职，纪检监察机关已对相关问题核实处理，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/1936896.htm)
 - [时隔三十年周星驰刘嘉玲再度合作](http://www.play.hengshemaoyi.cn/xiju/6024898.htm)
 - [好震撼的一句话瞬间醍醐灌顶](http://www.movie.hkepx.cn/xiju/5916403.htm)
-- [手麻脚麻真的要赶紧进医院](http://www.daogukj.com/0571201)
+- [为什么不能用炸弹摧毁台风](http://www.daogukj.com/0571201)
 - [【垃圾站】EP01 今天这车垃圾，有点不对劲【UP动画】](http://www.daogukj.com/7986451)
 - [“一定不要着急，看我装糖阴他一手”【装糖阴人の小曲】【One kiss-DJ】](http://www.movie.hkepx.cn/xiju/1894043.htm)
 - [中国癌症谱50年：“富癌”上升](http://www.movie.hkepx.cn/xiju/0055682.htm)
@@ -70,7 +70,7 @@
 - [【老番茄/某幻】你毕业啦！](http://www.movie.hkepx.cn/movie/3132728.htm)
 - [我----问你为什么要折断奥特钥匙！大结局！（中）](http://www.play.hengshemaoyi.cn/xiju/6644085.htm)
 - [完整版 NIGHT DANCER 翻唱 【给爱豆做抽象MV】](http://www.movie.hkepx.cn/xiju/1400285.htm)
-- [北京暴雨红色预警](http://www.daogukj.com/7263483)
+- [浙江惊现“台风霞”粉紫色天空](http://www.daogukj.com/7263483)
 - [你们觉得哪个菜系是八大菜系之首？](http://www.movie.hkepx.cn/movie/6845097.htm)
 - [新娘结婚当天一觉睡到10点多](http://www.daogukj.com/9868095)
 - [《下一个是谁》第七季（1）](http://www.play.hengshemaoyi.cn/kongbu/0966236.htm)
@@ -84,7 +84,7 @@
 - [台风巴威实时路径](http://www.play.hengshemaoyi.cn/xiju/7037654.htm)
 - [全国电力应急支援能力大幅提升](http://www.movie.hkepx.cn/xiju/6811064.htm)
 - [功夫女足票房已破2亿](http://www.movie.hkepx.cn/movie/4901752.htm)
-- [DeepSeek V4 正式版将于 7 月中旬上线，你有什么期待？](http://www.daogukj.com/3022991)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.daogukj.com/3022991)
 - [曝余承东内部群发飙](http://www.play.hengshemaoyi.cn/xiju/3299032.htm)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0a256e00a25eb5318340 -->
+<!-- content-fingerprint: e27f47c29b101e9f897c -->

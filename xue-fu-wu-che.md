@@ -2,11 +2,11 @@
 
 # 福袋不发飙升10万人+！今天这局偷家卡牌，大司马人气彻底重回巅峰
 
-> 来源：哔哩哔哩热门 · 排名：第 14 位 · 热度：487909 · 分类：电子竞技 · 更新：2026-07-12T04:27:05+08:00
+> 来源：哔哩哔哩热门 · 排名：第 14 位 · 热度：488677 · 分类：电子竞技 · 更新：2026-07-12T04:28:56+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“福袋不发飙升10万人+！今天这局偷家卡牌，大司马人气彻底重回巅峰”位列第 14 位，公开热度指标为 487909，榜单分类为“电子竞技”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“福袋不发飙升10万人+！今天这局偷家卡牌，大司马人气彻底重回巅峰”位列第 14 位，公开热度指标为 488677，榜单分类为“电子竞技”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：福袋不发10万+了
 
@@ -19,7 +19,7 @@
 ## 相关热点
 
 - [哈兰德PK凯恩 世一锋终极对决](bo-wen-qiang-ji.md)
-- [丁程鑫说王俊凯太能存钱了](wen-gu-zhi-xin.md)
+- [广西洪水](wen-gu-zhi-xin.md)
 - [宝妈手麻3小时确诊脑梗进抢救室](ju-yi-fan-san.md)
 - [直接工作与读大专，哪个更划算？](rong-hui-guan-tong.md)
 
@@ -47,7 +47,7 @@
 - [姆巴佩：为法国效力不赢会被千刀万剐](http://www.movie.hkepx.cn/movie/6971182.htm)
 - [为什么西班牙蓝鳍金枪鱼被公认为高端食材？有什么方法让普通人也能平价吃到正宗蓝鳍金枪鱼？](http://www.movie.hkepx.cn/movie/4395855.htm)
 - [《和最讨厌的人灵魂互换了》完整版](http://www.daogukj.com/qotrqcnx/)
-- [手麻脚麻真的要赶紧进医院](http://www.movie.hkepx.cn/movie/3034740.htm)
+- [为什么不能用炸弹摧毁台风](http://www.movie.hkepx.cn/movie/3034740.htm)
 - [当我两只手弹两架琴并同时弹不同的曲子，左右脑互搏式弹琴法](http://www.play.hengshemaoyi.cn/xiju/2234210.htm)
 - [时隔三十年周星驰刘嘉玲再度合作](http://www.play.hengshemaoyi.cn/xiju/4074352.htm)
 - [挪威主厨没想到会进8强](http://www.daogukj.com/6535873)
@@ -58,14 +58,14 @@
 - [巴威逼近 上海已紧急撤离3.4万人](http://www.play.hengshemaoyi.cn/kongbu/4226628.htm)
 - [大风中上海机场绑完飞机绑舷梯](http://www.play.hengshemaoyi.cn/xiju/1687476.htm)
 - [周星驰新电影值得大家去走个面儿吗？《功夫女足》诚实观后感](http://www.daogukj.com/7225995)
-- [丁程鑫说王俊凯太能存钱了](http://www.movie.hkepx.cn/xiju/2047156.htm)
+- [广西洪水](http://www.movie.hkepx.cn/xiju/2047156.htm)
 - [日本可回收火箭小型实验机 RV-X「着陆成功」，日媒报道只飞了11米，这是什么水平？对其有何意义？](http://www.daogukj.com/9963303)
 - [宝妈手麻3小时确诊脑梗进抢救室](http://www.play.hengshemaoyi.cn/kongbu/1215997.htm)
-- [桃黑黑直播回应](http://www.daogukj.com/ybrclrlt/)
-- [《功夫女足》猫眼开分9.4](http://www.play.hengshemaoyi.cn/xiju/1146323.htm)
+- [南非25岁世界杯参赛球员去世](http://www.daogukj.com/ybrclrlt/)
+- [手麻脚麻真的要赶紧进医院](http://www.play.hengshemaoyi.cn/xiju/1146323.htm)
 - [25岁南非国脚亚当斯自杀离世](http://www.daogukj.com/0361450)
-- [浙江惊现“台风霞”粉紫色天空](http://www.daogukj.com/2827507)
-- [杭州 台风](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
+- [救援期间冒雨吃饭的消防员找到了](http://www.daogukj.com/2827507)
+- [诺斯科娃温网女单冠军](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
 - [妈妈去世4个月 女儿同样确诊红斑狼疮](http://www.movie.hkepx.cn/xiju/4072931.htm)
 - [原来疯狂吃零食的日子只有十年](http://www.movie.hkepx.cn/movie/5903663.htm)
 - [浙江海边掀起10多米巨浪](http://www.daogukj.com/vhjggfrk/)
@@ -76,7 +76,7 @@
 - [周星驰林子聪“callback”少林足球](http://www.daogukj.com/dazlebgh/)
 - [巴威最新位置](http://www.play.hengshemaoyi.cn/kongbu/6412162.htm)
 - [梅里诺绝杀完葡萄牙又绝杀比利时](http://www.play.hengshemaoyi.cn/kongbu/1040618.htm)
-- [“两倍的价格 我买100吨西瓜”](http://www.movie.hkepx.cn/xiju/5518395.htm)
+- [曝25岁南非国脚自杀离世](http://www.movie.hkepx.cn/xiju/5518395.htm)
 - [张辽为何没有成为曹魏军事集团的核心？](http://www.play.hengshemaoyi.cn/kongbu/5070757.htm)
 - [如果在野外发现了一只大熊猫，很脏，领回家给他洗个澡，再养几天，犯法吗？](http://www.movie.hkepx.cn/movie/5067570.htm)
 - [各地全力以赴防范台风巴威](http://www.movie.hkepx.cn/xiju/7472860.htm)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 19af23ddcf5bd06ece99 -->
+<!-- content-fingerprint: ff0e742c26ba31e1633a -->
