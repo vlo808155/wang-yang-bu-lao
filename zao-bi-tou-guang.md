@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 张元英的13岁和21岁
+# 我放弃ASMR的原因
 
-> 来源：微博热搜 · 排名：第 14 位 · 热度：325728 · 分类：艺人 · 更新：2026-07-15T00:03:55+08:00
+> 来源：哔哩哔哩热门 · 排名：第 13 位 · 热度：337510 · 分类：美食测评 · 更新：2026-07-15T04:21:47+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“张元英的13岁和21岁”位列第 14 位，公开热度指标为 325728，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“我放弃ASMR的原因”位列第 13 位，公开热度指标为 337510，榜单分类为“美食测评”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：今天稍微用了一个有点“标题党”的标题😂 其实，从某个时候开始， 我对视频里的声音越来越有压力了。 所以我告诉自己：“不要再被声音束缚了。” 也正因为这样，我很早以前就把频道名称 Onhwa ASMR 里的 “ASMR” 去掉了😊 可是，真正想放下，并没有想象中那么容易😂 虽然我没办法满足每一位观众的喜好和期待， 但我一直都在认真思考、努力改进，希望能带给大家更好的视频🙏 我不想成为一个只坚持自己的想法、忽视大家意见的创作者😊 大家的建议，我都会认真听取， 只要我能做到的，我都会一点一点地努力改善🙌
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `美食测评`
 
 ## 相关热点
 
-- [台风“巴威”停止编号](nang-ying-ying-xue.md)
-- [媒体报道佛得角当地球队工资仅千元，这是真的吗？球员该如何维持生计并坚持足球梦想？](cheng-men-li-xue.md)
-- [抓 住 了 重 点](shou-bu-shi-juan.md)
-- [“吕秀才”喻恩泰胜诉 涉事公司道歉](xue-fu-wu-che.md)
+- [汤姆克鲁斯甲亢哥将亮相世界杯闭幕式](nang-ying-ying-xue.md)
+- [多地开始抢老人](cheng-men-li-xue.md)
+- [台风“巴威”停止编号](shou-bu-shi-juan.md)
+- [韩国向乌克兰提供一亿美元援助，这对俄罗斯有何影响？](xue-fu-wu-che.md)
 
 ## 站内推荐
 
 - [上半年我国外贸起势有力增势强劲](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
 - [女子戴耳塞睡觉8年双耳堆满耳屎](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [神秘npc之兰州拉面！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [敌敌畏渗到大腿男生被下病危通知](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [中国燃油车只剩最后一根续命稻草](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [几天没更新因为在做梦，这次的梦有点麻烦要处理事有点多所以在梦里呆了好几天才回来写歌](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [这才是《The Other Side Of Paradise》原版MV！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [耗时9999小时！一口气看完熊出没末路大合集！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [小米机器人打螺丝成功率98%](http://www.movie.hkepx.cn/movie/7696059.htm)
-- [【aespa】正是容易饿的年纪…25岁](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
-- [特朗普通知国会伊朗战事重新爆发，伊朗称袭击美国海军第五舰队司令部，局势将如何发展？本轮战事会持续多久？](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
-- [感觉谈恋爱真的很尴尬](http://www.daogukj.com/xbqcnyun/)
-- [《迈亚融解》实机首曝](http://www.daogukj.com/3076909)
-- [回 旋 彪](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
+- [如何评价山田尚子导演的七月新番《穹庐下的魔女》 ？](http://www.movie.hkepx.cn/movie/7696059.htm)
+- [超市为什么越来越难](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
+- [贝克汉姆世界杯收入超所有球员](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
+- [神秘npc之兰州拉面！](http://www.daogukj.com/xbqcnyun/)
+- [《崩坏：星穹铁道》姬子•启行角色PV——「启明星于今夜坠落」](http://www.daogukj.com/3076909)
+- [《最失败の高情商》](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
 - [邹市明夫妇投资理财亏损 2 亿，为什么会亏这么多？投资理财时要注意些什么？](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
-- [敌敌畏渗到大腿男生被下病危通知](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
-- [人社部：引导工资分配向一线岗位倾斜](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
-- [9 岁出书、清华降分录取，客观评价作家蒋方舟到底是真的天才少女还是在人设炒作？](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
-- [60万亿元“大蛋糕”来了](http://www.daogukj.com/7832374)
-- [共享单车起步价再次全面上调，网友反映「一扫开就近两块钱」，价格为何不断上涨？会影响大家的出行选择吗？](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
-- [普京：将以牙还牙回应敌方袭击](http://www.movie.hkepx.cn/movie/5380543.htm)
-- [如何看待现在很多人挪用诸如“能量”“磁场”这种物理学词汇，当成功利主义玄学用语？](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
-- [中国燃油车只剩最后一根续命稻草](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
-- [“吕秀才”喻恩泰胜诉 涉事公司道歉](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
+- [这才是《The Other Side Of Paradise》原版MV！](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
+- [女生694分被清华录取 没报过补习班](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
+- [内娱请把古偶还给少男少女](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
+- [长鑫科技 7 月 16 日开启新股申购，最高估值超4万亿，这对其自身发展和半导体产业意味着什么？](http://www.daogukj.com/7832374)
+- [周星驰为什么常年戴口罩](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
+- [功夫女足票房破7亿](http://www.movie.hkepx.cn/movie/5380543.htm)
+- [大V观赛团](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
+- [耗时9999小时！一口气看完熊出没末路大合集！](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
+- [韩国向乌克兰提供一亿美元援助，这对俄罗斯有何影响？](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
 - [伊朗称美进入正式战争状态](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
-- [钎城 九尾](http://www.daogukj.com/whdogfom/)
-- [女子追尾身亡 男友副驾睡觉被起诉](http://www.daogukj.com/owjemlxs/)
-- [男子头晕一查血管堵了九成](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
-- [台风“巴威”停止编号](http://www.movie.hkepx.cn/xiju/8272307.htm)
-- [如何评价呼和浩特摄影比赛一等奖作品疑 AI 生成，工作人员称「的确太假了」？应该允许 AI作品参展吗？](http://www.movie.hkepx.cn/xiju/5503803.htm)
-- [知友发现 2026 菲尔兹奖名单泄露，王虹、邓煜疑似双双获奖，如何看待这一信息？](http://www.movie.hkepx.cn/movie/5517829.htm)
-- [神秘npc之兰州拉面！](http://www.daogukj.com/kfcenimf/)
+- [法国西班牙 总决赛提前上演](http://www.daogukj.com/whdogfom/)
+- [多省开始“抢”老人](http://www.daogukj.com/owjemlxs/)
+- [“终于不欠周星驰电影票了”](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
+- [汤姆克鲁斯甲亢哥将亮相世界杯闭幕式](http://www.movie.hkepx.cn/xiju/8272307.htm)
+- [为什么吃牛肉可以三分熟，猪肉却不可以呢？](http://www.movie.hkepx.cn/xiju/5503803.htm)
+- [伴娘遭婚闹被抛摔致伤残，9 人被判赔 23 万元，如何从法律角度解读这一判决？](http://www.movie.hkepx.cn/movie/5517829.htm)
+- [几天没更新因为在做梦，这次的梦有点麻烦要处理事有点多所以在梦里呆了好几天才回来写歌](http://www.daogukj.com/kfcenimf/)
 - [LV起诉国家知识产权局，因不服国家知识产权局驳回其针对广东服装经营者商标侵权的维权主张，如何看待此事？](http://www.movie.hkepx.cn/xiju/1284306.htm)
-- [动画电影《八仙！》官宣提档至 7 月 18 日全国上映，对此你有何期待？](http://www.movie.hkepx.cn/movie/9628674.htm)
-- [内娱请把古偶还给少男少女](http://www.daogukj.com/1857926)
-- [假如你在一个十万人宿舍查寝【AI全民制作人】](http://www.daogukj.com/dauszqqt/)
-- [日常安排孩子做家务时，孩子张口就索要报酬、处处讲条件，家长怎么做更加妥当？](http://www.movie.hkepx.cn/movie/0907691.htm)
-- [成龙舒淇李冰冰发文悼念施南生](http://www.daogukj.com/5817227)
+- [超 500 万人请愿将阿根廷逐出世界杯，称国际足联和裁判偏袒阿根廷，你觉得是这样吗？裁判判罚有问题吗？](http://www.movie.hkepx.cn/movie/9628674.htm)
+- [法国vs西班牙](http://www.daogukj.com/1857926)
+- [AI生成环卫工照片获摄影比赛一等奖](http://www.daogukj.com/dauszqqt/)
+- [妻子孕四月发现丈夫海量亲密照](http://www.movie.hkepx.cn/movie/0907691.htm)
+- [世界杯](http://www.daogukj.com/5817227)
 - [猫对人打呼噜是示好，那「打呼噜的人」会被猫认为是对猫示好吗？](http://www.daogukj.com/wotljoso/)
 - [未来5年消费“路线图”来了](http://www.daogukj.com/8049323)
-- [有哪些熟语（老话、俗语、谚语、歇后语），曾经耳熟能详，如今却很少见人用？](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
+- [章若楠跑男化妆师评论区被阴阳白干](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
 - [如何评价韩国综合指数一个月从9200跌到6800，120万散户账户爆仓？为什么韩国散户这么容易被强平？](http://www.movie.hkepx.cn/xiju/0261792.htm)
-- [入伏后做好6件事攒气血](http://www.movie.hkepx.cn/movie/6726833.htm)
-- [周星驰的剧组餐被赞“行业天花板”](http://www.movie.hkepx.cn/xiju/1828380.htm)
-- [八仙口碑](http://www.movie.hkepx.cn/xiju/1222939.htm)
-- [良子在美国良子面前也就是个萝莉！](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
-- [多地开始抢老人](http://www.daogukj.com/2594309)
-- [走了这么久，必须要跟大家说一件事](http://www.daogukj.com/qdasdjom/)
+- [挑战您说我像谁我就模仿谁！第五期！这期更是很难绷！](http://www.movie.hkepx.cn/movie/6726833.htm)
+- [詹俊：西班牙队的底气来自于梅里诺](http://www.movie.hkepx.cn/xiju/1828380.htm)
+- [上集| 丧尸末日降临 而我还在送外卖](http://www.movie.hkepx.cn/xiju/1222939.htm)
+- [哈兰德想来中国 入境游接得住吗](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
+- [暑期档长剧 裸播](http://www.daogukj.com/2594309)
+- [6月新增新冠确诊7.9万例 疾控提醒](http://www.daogukj.com/qdasdjom/)
 - [女子戴耳塞睡觉8年双耳堆满耳屎](http://www.daogukj.com/3136388)
-- [孩子总把网络烂梗挂嘴边怎么办？【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
+- [Bro有话说2](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
 - [上半年我国外贸起势有力增势强劲](http://www.daogukj.com/4275576)
-- [于正编辑掉和陈都灵合照](http://www.daogukj.com/lpknevub/)
-- [“父爱如山，无关智商！”](http://www.daogukj.com/3012939)
-- [章若楠跑男化妆师评论区被阴阳白干](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
-- [《功夫女足》预测票房涨至30.3亿，你觉得能打破《美人鱼》创造的「无厘头喜剧电影」票房纪录吗？](http://www.movie.hkepx.cn/xiju/9870181.htm)
-- [长鑫科技公告](http://www.movie.hkepx.cn/movie/2656535.htm)
-- [哭着剪完这条视频…](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
-- [在12306出现之前，线下购票柜台工作人员使用的TRS系统也是全国联网的，为什么那时没有崩溃问题？](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
+- [姆巴佩最忌惮的男人](http://www.daogukj.com/lpknevub/)
+- [怎么看待那些背着一千多的寇驰包，拿着iPhone，但是全身上下衣服却不超几十块钱的人？](http://www.daogukj.com/3012939)
+- [法国队中后卫萨利巴受伤下场](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
+- [为什么 Codex 搭载 GPT-5.6 后，越来越多用户开始弃用 Skills？](http://www.movie.hkepx.cn/xiju/9870181.htm)
+- [老人买肉买走了最难卖的一块](http://www.movie.hkepx.cn/movie/2656535.htm)
+- [孩子总把网络烂梗挂嘴边怎么办？【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
+- [如何评价呼和浩特摄影比赛一等奖作品疑 AI 生成，工作人员称「的确太假了」？应该允许 AI作品参展吗？](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
 
 </details>
 
 ## 原始来源
 
-- [张元英的13岁和21岁](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%85%83%E8%8B%B1%E7%9A%8413%E5%B2%81%E5%92%8C21%E5%B2%81)
+- [我放弃ASMR的原因](https://b23.tv/BV1mhNb6GEPt)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6999ebc0fb31e6fe3c11 -->
+<!-- content-fingerprint: b7f5a456374ceebe0b86 -->
