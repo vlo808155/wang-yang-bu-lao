@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 穆祉丞笑王橹杰脱靶
+# 辽宁一橡皮艇闪爆致7死1失联
 
-> 来源：微博热搜 · 排名：第 13 位 · 热度：349106 · 分类：艺人 · 更新：2026-07-16T15:48:52+08:00
+> 来源：微博热搜 · 排名：第 13 位 · 热度：395788 · 分类：民生新闻 · 更新：2026-07-16T21:05:47+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“穆祉丞笑王橹杰脱靶”位列第 13 位，公开热度指标为 349106，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“辽宁一橡皮艇闪爆致7死1失联”位列第 13 位，公开热度指标为 395788，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [我很清楚离职后可能找不到更好的工作，甚至是找不到工作，但我就是不想干了，这种感觉有人懂吗？](zao-bi-tou-guang.md)
-- [《梦战：剑之海》概念先导CG首曝丨一个新的兰古利萨时代，即将开启](nang-ying-ying-xue.md)
-- [周星驰回应《功夫女足》破纪录](cheng-men-li-xue.md)
-- [张天陈奕辰分手](shou-bu-shi-juan.md)
+- [沈音教授白丽萍夫妇意外离世](zao-bi-tou-guang.md)
+- [周星驰2017年接受央六采访时已经说过「没有人欠过我任何的电影票」，为什么「欠票梗」至今仍反复刷屏？](nang-ying-ying-xue.md)
+- [原摄玩家镜头下，你未曾见过的桑多涅......](cheng-men-li-xue.md)
+- [美军战机低空飞行高速掠过人群](shou-bu-shi-juan.md)
 
 ## 站内推荐
 
-- [电表里藏着中国经济的黑马](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [偷票房](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [呵呵回应白鹿告别欢娱](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [超级计算机预测西班牙夺冠概率更高](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [佛得角严选冠亚军](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [三尺讲台的青春接力](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [毕业后朋友圈现状](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [王橹杰把穆祉丞拉过来](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [宋亚轩最想删掉的真的被删掉了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [中国夫妇印尼溺亡水下画面曝光](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [阿根廷球员围观英格兰水壶“小抄”](http://www.movie.hkepx.cn/xiju/1653219.htm)
-- [阿根廷球员捡到英格兰战术小抄](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
-- [吃肉容易早衰，喝米油不哭不闹？](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
-- [上半年社会融资规模增量合理增长](http://www.daogukj.com/ceegkpfb/)
-- [英格兰1-2不敌阿根廷，图赫尔还剩50分钟就死守+换2后卫，如何评价这种战术？是输球的主要原因吗？](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
-- [曝白鹿新宣传是迪丽热巴宣传](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
-- [于正回应白鹿到期不续](http://www.movie.hkepx.cn/xiju/2935808.htm)
-- [C罗或与乔治娜推迟婚礼](http://www.movie.hkepx.cn/movie/6067835.htm)
-- [长鑫科技超 6000 员工获股份，IPO 后批量诞生千万富翁，如何看待长鑫科技上市？](http://www.movie.hkepx.cn/movie/1919789.htm)
-- [偷票房](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
-- [我很清楚离职后可能找不到更好的工作，甚至是找不到工作，但我就是不想干了，这种感觉有人懂吗？](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
-- [The Verity Cast Plays The REAL Verity Mod](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
-- [矿石战争重制版一口气看完大合集](http://www.movie.hkepx.cn/xiju/8738765.htm)
-- [呵呵回应白鹿告别欢娱](http://www.play.hengshemaoyi.cn/xiju/4131259.htm)
-- [埃及裁判专家：阿根廷绝杀球应判无效](http://www.daogukj.com/5961107)
-- [特朗普性侵案败诉，已赔付女作家逾 560 万美元，美国现任总统被判定性侵成立，这件事对其影响多大？](http://www.daogukj.com/4005019)
-- [A股轮动行情普通人该怎么布局](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
-- [苏州将推出外卖新政，骑手等红灯时间会自动剔除，有哪些利好？值得在更多城市推广吗？](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
+- [梁文锋打新长鑫科技](http://www.movie.hkepx.cn/xiju/1653219.htm)
+- [生娃基本不花钱 28个省份安排上了](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
+- [家长月薪 3500 请大学生暑假带娃，称大学生更易与孩子相处，对大学生来说这活有什么吸引力？愿意接吗？](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
+- [前一秒石库门 下一秒进未来](http://www.daogukj.com/ceegkpfb/)
+- [为什么都喜欢吃智利的车厘子而不喜欢吃中国的樱桃？](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
+- [埃及裁判专家：阿根廷绝杀球应判无效](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
+- [吃肉容易早衰，喝米油不哭不闹？](http://www.movie.hkepx.cn/xiju/2935808.htm)
+- [破冰挑战！3小时摆摊PK，赚得多的获胜！！](http://www.movie.hkepx.cn/movie/6067835.htm)
+- [17 岁男孩被敌敌畏浸透裤子，数小时后被下达病危通知书，这是什么原因？如何做紧急处理？](http://www.movie.hkepx.cn/movie/1919789.htm)
+- [毕业后朋友圈现状](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
+- [沈音教授白丽萍夫妇意外离世](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
+- [我把你们奇怪的想法都做到了我的世界里#14](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
+- [SpaceX上市仅一个月跌破135美元发行价，市值缩水三分之一，星舰第13次试飞将至，能否挽救股价？](http://www.movie.hkepx.cn/xiju/8738765.htm)
+- [王橹杰把穆祉丞拉过来](http://www.play.hengshemaoyi.cn/xiju/4131259.htm)
+- [医院涌出大量白雾 院方回应](http://www.daogukj.com/5961107)
+- [长鑫科技超 6000 员工获股份，IPO 后批量诞生千万富翁，如何看待长鑫科技上市？](http://www.daogukj.com/4005019)
+- [呵呵回应白鹿告别欢娱](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
+- [《八仙！》预售突破 6000 万，点映口碑上佳，你预测影片最终票房能到多少？](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
 - [阿根廷球员赛后亮出「马岛属于阿根廷」横幅，或面临国际足联处罚，如何看待这种行为？可能受到什么处罚？](http://www.movie.hkepx.cn/xiju/3802162.htm)
-- [168万拍下的乾隆梅瓶仅值250元](http://www.daogukj.com/4160322)
-- [超级计算机预测西班牙夺冠概率更高](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
-- [原摄玩家镜头下，你未曾见过的桑多涅......](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
-- [快递员摔裂18.6万手镯最新进展](http://www.movie.hkepx.cn/movie/5796961.htm)
-- [黄晓明赵丽颖等艺人救灾物资车侧翻](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
-- [阿根廷球员偷看英格兰战术小抄](http://www.daogukj.com/6018961)
-- [九寨沟辟谣湖水靠染色变蓝](http://www.daogukj.com/efehcbta/)
-- [猫为什么可以「瞬间清醒」又「瞬间入睡」？](http://www.daogukj.com/7846527)
-- [佛得角严选冠亚军](http://www.movie.hkepx.cn/movie/2779517.htm)
-- [昆明暴雨呈柱状倾泻如“登天电梯”](http://www.daogukj.com/5137842)
-- [曾“硬刚王健林”的县长徐刘蔚落马](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
-- [【幼稚园TV】建材王哥大闹天宫](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
-- [我宁愿在这个世界里，永远做一个你“尚未到来”的传说](http://www.daogukj.com/2275454)
-- [张天陈奕辰分手](http://www.movie.hkepx.cn/movie/8955518.htm)
-- [电表里藏着中国经济的黑马](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
-- [C罗原计划世界杯后完婚](http://www.daogukj.com/3040545)
-- [曝《功夫女足》被偷票房，大量观众称电影票为纸质手写，这是普遍现象吗？对电影有哪些影响？制片方如何维权？](http://www.movie.hkepx.cn/movie/0072136.htm)
-- [曾硬刚王健林的80后干部被查](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
-- [《梦战：剑之海》概念先导CG首曝丨一个新的兰古利萨时代，即将开启](http://www.movie.hkepx.cn/xiju/2548466.htm)
-- [《功夫女足》将在 7 月 17 日（上映第 7 天）更换片源，为什么会出现这种情况？剧情会改动吗？](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
-- [侠隐柱间&水门PV丨英雄见英雄，侠路再相逢【内含侠隐水门爆料】](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
-- [魔怔萌二和暴躁粗鲁女的相亲历险记](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
-- [上海今早热到“全国第一”](http://www.movie.hkepx.cn/movie/0563740.htm)
-- [《洛克王国：世界》远哥来了，福利稳了！](http://www.play.hengshemaoyi.cn/xiju/5085308.htm)
-- [国行 iPhone 即将牵手阿里千问上线「苹果 AI」，有哪些亮点？可能给手机行业带来哪些影响？](http://www.movie.hkepx.cn/xiju/6484379.htm)
-- [王楚钦孙颖莎晋级全锦赛混双16强](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
-- [美国指了指中国 然后狠狠抽自己耳光](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
-- [阿根廷球员亮横幅 或遭处罚](http://www.movie.hkepx.cn/movie/4954417.htm)
-- [武汉：整座城市跳进了夏天](http://www.daogukj.com/8556378)
-- [长鑫科技8名高管身家过亿](http://www.daogukj.com/0551116)
-- [非遗武术教练曹海滨突发心梗去世](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
+- [去年是展品 今年变“同事”了](http://www.daogukj.com/4160322)
+- [宋亚轩最想删掉的真的被删掉了](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
+- [美国 NSF 新规，「几乎要全面禁止与中国科学家合作」，将可能带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
+- [晚上厨师长下班后，在店里开小灶，没卖完的食材，偷偷做个晚餐，和牛岩石烧，鲍鱼佐鲍鱼肝酱，酒煮文蛤](http://www.movie.hkepx.cn/movie/5796961.htm)
+- [The Verity Cast Plays The REAL Verity Mod](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
+- [阿根廷的最后十分钟怎么了](http://www.daogukj.com/6018961)
+- [天文台辟谣新疆惊现不明飞行物](http://www.daogukj.com/efehcbta/)
+- [昆明暴雨呈柱状倾泻如“登天电梯”](http://www.daogukj.com/7846527)
+- [中国夫妇印尼溺亡水下画面曝光](http://www.movie.hkepx.cn/movie/2779517.htm)
+- [世界杯决赛将上演“澡盆德比”](http://www.daogukj.com/5137842)
+- [世界杯冠军奖金5000万美元 历史最高](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
+- [我很清楚离职后可能找不到更好的工作，甚至是找不到工作，但我就是不想干了，这种感觉有人懂吗？](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
+- [耗时9999小时！一口气看完熊出没末路大合集！](http://www.daogukj.com/2275454)
+- [美军战机低空飞行高速掠过人群](http://www.movie.hkepx.cn/movie/8955518.htm)
+- [三尺讲台的青春接力](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
+- [两京十五日](http://www.daogukj.com/3040545)
+- [男子江边钓鱼自带移动空调](http://www.movie.hkepx.cn/movie/0072136.htm)
+- [盒马因受害咪连夜改冬瓜图](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
+- [周星驰2017年接受央六采访时已经说过「没有人欠过我任何的电影票」，为什么「欠票梗」至今仍反复刷屏？](http://www.movie.hkepx.cn/xiju/2548466.htm)
+- [河南多家NFC果汁生产车间被曝无水果，产品却标注「100%鲜榨果汁」，标注是否合规？消费者该如何辨别？](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
+- [小倩回来了——22年后，在《天下》里](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
+- [《兄弟有个妹妹》3](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
+- [李在明警示：勿让年轻异性陪坐](http://www.movie.hkepx.cn/movie/0563740.htm)
+- [【独家】《将夜》第14集 努力读书【4月国创】](http://www.play.hengshemaoyi.cn/xiju/5085308.htm)
+- [沈阳雨停后多个住宅小区积水上涨](http://www.movie.hkepx.cn/xiju/6484379.htm)
+- [冉莹颖侃侃而谈邹市明心如死灰](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
+- [一文告诉你什么是国家网络身份认证](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
+- [砸穿美民宅陨石携带外星生命催化剂](http://www.movie.hkepx.cn/movie/4954417.htm)
+- [LV母公司掌门人被责令补税1.74亿元](http://www.daogukj.com/8556378)
+- [夫妻身上痒到痛不欲生确诊疥疮](http://www.daogukj.com/0551116)
+- [朱志鑫疑似小腿受伤出血了](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
 
 </details>
 
 ## 原始来源
 
-- [穆祉丞笑王橹杰脱靶](https://s.weibo.com/weibo?q=%E7%A9%86%E7%A5%89%E4%B8%9E%E7%AC%91%E7%8E%8B%E6%A9%B9%E6%9D%B0%E8%84%B1%E9%9D%B6)
+- [辽宁一橡皮艇闪爆致7死1失联](https://s.weibo.com/weibo?q=%E8%BE%BD%E5%AE%81%E4%B8%80%E6%A9%A1%E7%9A%AE%E8%89%87%E9%97%AA%E7%88%86%E8%87%B47%E6%AD%BB1%E5%A4%B1%E8%81%94)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: dcf747fc0e49b92b9a91 -->
+<!-- content-fingerprint: 748eb08fd9283a3bb607 -->
