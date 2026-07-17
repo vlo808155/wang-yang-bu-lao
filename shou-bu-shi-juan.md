@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 广西横州倡议：减少不必要娱乐活动
+# 小龙虾为何降价了
 
-> 来源：百度热搜 · 排名：第 13 位 · 热度：6560512 · 更新：2026-07-17T07:43:44+08:00
+> 来源：百度热搜 · 排名：第 13 位 · 热度：6565915 · 更新：2026-07-17T15:33:54+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“广西横州倡议：减少不必要娱乐活动”位列第 13 位，公开热度指标为 6560512。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“小龙虾为何降价了”位列第 13 位，公开热度指标为 6565915。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，广西横州市发布倡议书，号召群众减少不必要的娱乐活动，将更多精力投入抢险救灾。当前当地正全力开展清淤、消杀、群众安置等工作，并急需工程车辆及维修人员支援抗洪一线。
+来源公开摘要显示：近期，外卖平台上“99元30只”“83元3斤”等小龙虾套餐频频出现。作为夏季夜宵市场的重要品类，小龙虾为何降价了？记者近期实地调研发现，天气与产量是两大主因。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [白鹿新公司名](xue-fu-wu-che.md)
-- [梁文锋打新长鑫科技](bo-wen-qiang-ji.md)
-- [为什么鲁宾逊漂流记这样一部以热带海岛为背景的作品，完全没有任何关于蚊虫的描写？](wen-gu-zhi-xin.md)
-- [矿石战争重制版一口气看完大合集](ju-yi-fan-san.md)
+- [陈浚铭摔了](xue-fu-wu-che.md)
+- [河南省人民医院原党委书记邵凤民被查](bo-wen-qiang-ji.md)
+- [很多童星长大后很难转型成功，他们最大的困境是什么？](wen-gu-zhi-xin.md)
+- [耗时9999小时！一口气看完熊出没末路大合集！](ju-yi-fan-san.md)
 
 ## 站内推荐
 
-- [我说这俩队这么难踢 原来是冠亚军](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [桂林山野外一废弃牛棚意外走红](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [伊朗：美军事打击构成“战争罪”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [俄要求停止向乌供武](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [男子做胃肠镜突发心脏骤停成植物人](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [男子帮台湾游客拍照 竟是失联大伯](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [油价今晚上调 加满一箱油多花12元](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [曲婉婷患癌](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [周星驰连发3个问号回应疑被偷票房](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [重庆男子丢下车：拼命跑腿脚都是软的](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [TVB演员梁爱在养老院去世](http://www.daogukj.com/8478676)
-- [The Verity Cast Plays The REAL Verity Mod](http://www.daogukj.com/3239411)
+- [《八仙！》会是下一个《哪吒》吗](http://www.daogukj.com/8478676)
+- [我把你们奇怪的想法都做到了我的世界里#14](http://www.daogukj.com/3239411)
 - [寻找卢本伟](http://www.play.hengshemaoyi.cn/kongbu/6693593.htm)
-- [泰总理抵上海 胸前别中泰国旗说中文](http://www.play.hengshemaoyi.cn/kongbu/3393647.htm)
-- [气象台不敢报40℃？权威回应](http://www.daogukj.com/5177434)
-- [甲亢哥遭阿根廷球迷扔啤酒砸中脑袋](http://www.daogukj.com/9757981)
-- [数读产业转型升级新动能](http://www.play.hengshemaoyi.cn/kongbu/5254314.htm)
-- [我说这俩队这么难踢 原来是冠亚军](http://www.play.hengshemaoyi.cn/kongbu/6062543.htm)
-- [如何看待真我 realme 退出中国市场，售后质保由 OPPO 全面接手？品牌为什么会走到停运这一步？](http://www.daogukj.com/vvhxfmlz/)
-- [过了很多年才突然明白的事](http://www.play.hengshemaoyi.cn/kongbu/6868011.htm)
-- [法国队对季军赛毫无动力](http://www.play.hengshemaoyi.cn/xiju/0581687.htm)
-- [又一名《西游记》演员离世](http://www.play.hengshemaoyi.cn/xiju/3249372.htm)
-- [餐厅服务员帮顾客传话搭讪女生](http://www.movie.hkepx.cn/xiju/6239174.htm)
-- [肖战 演唱会](http://www.movie.hkepx.cn/xiju/9361968.htm)
-- [【终末地】1.4最好抄毕业基建！气体自动平衡，爆仓自动处理！](http://www.play.hengshemaoyi.cn/xiju/0141985.htm)
-- [梁文锋打新长鑫科技](http://www.daogukj.com/3639582)
-- [男子做胃肠镜突发心脏骤停成植物人](http://www.daogukj.com/olcgjzxy/)
-- [伊朗：美军事打击构成“战争罪”](http://www.play.hengshemaoyi.cn/xiju/4459303.htm)
-- [如果你是刘备，有亲子刘禅出生后，会如何对待处理养子刘封的尴尬敏感问题？](http://www.daogukj.com/ogctigmk/)
-- [当你和对象一起睡觉是什么感觉…](http://www.play.hengshemaoyi.cn/kongbu/4101569.htm)
-- [SpaceX 星舰第 13 次试飞中止，画面显示 4 个引擎未点火，可能遇到了哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/1623587.htm)
-- [小鹏MONA L03上市售价12.38万元起](http://www.movie.hkepx.cn/xiju/2974024.htm)
-- [广东女子用「臭屁醋」煲汤，邻居误以为尸臭直接报警，「臭屁醋」是什么？它的气味「杀伤力」有多大？](http://www.daogukj.com/qduaipey/)
-- [搞强拆能惹多大祸？【奇葩小国53】](http://www.play.hengshemaoyi.cn/xiju/8227935.htm)
-- [白鹿新公司名](http://www.play.hengshemaoyi.cn/kongbu/4160027.htm)
-- [长鑫科技超 6000 员工获股份，IPO 后批量诞生千万富翁，如何看待长鑫科技上市？](http://www.play.hengshemaoyi.cn/kongbu/9952478.htm)
-- [如何评价7月16日正式上线的KIMI K3模型？](http://www.movie.hkepx.cn/xiju/1449526.htm)
-- [郝 哥 连 线 勇 哥](http://www.play.hengshemaoyi.cn/kongbu/5233867.htm)
-- [俄要求停止向乌供武](http://www.daogukj.com/foorujpq/)
-- [长沙人是瞒着我们进化了吗](http://www.movie.hkepx.cn/xiju/1941094.htm)
-- [男子150万白银存金店被拒还](http://www.movie.hkepx.cn/movie/4257941.htm)
-- [耗时9999小时！一口气看完熊出没末路大合集！](http://www.play.hengshemaoyi.cn/kongbu/5339935.htm)
-- [原创AIGC剧集《有异人》【AI全民制作人】](http://www.daogukj.com/ailrualr/)
-- [乐事被曝薯片中吃出「蓝薯片」异物，它可能是什么？最可能从哪个环节混进包装袋的？](http://www.play.hengshemaoyi.cn/xiju/5385609.htm)
-- [深圳文和友招牌拆除，CEO 确认撤场，为什么文和友难以走出长沙？](http://www.movie.hkepx.cn/movie/0789293.htm)
-- [阿根廷的最后十分钟怎么了](http://www.movie.hkepx.cn/xiju/4446039.htm)
-- [网传张雪摩托车驾驶员摔车后，无人驾驶开出几公里，平衡性这么好吗？](http://www.play.hengshemaoyi.cn/kongbu/7816841.htm)
-- [汽车人空降峡谷！变卡车、骑机械霸王龙！自制亚瑟擎天柱皮肤！](http://www.play.hengshemaoyi.cn/kongbu/9613360.htm)
-- [世界杯冠军奖金5000万美元](http://www.daogukj.com/cdrpkogq/)
-- [1组数字看2026上半年中国经济](http://www.movie.hkepx.cn/movie/2665746.htm)
-- [家长月薪 3500 请大学生暑假带娃，称大学生更易与孩子相处，对大学生来说这活有什么吸引力？愿意接吗？](http://www.daogukj.com/zobrwsba/)
-- [他们说学校里有一个很装的人](http://www.daogukj.com/0656524)
-- [天文台辟谣新疆惊现不明飞行物](http://www.movie.hkepx.cn/movie/2963324.htm)
-- [夫妻身上痒到痛不欲生确诊疥疮](http://www.daogukj.com/oapvfaci/)
-- [沈音教授白丽萍夫妇离世系意外事故](http://www.daogukj.com/1720245)
+- [油价今晚上调](http://www.play.hengshemaoyi.cn/kongbu/3393647.htm)
+- [福建省委书记：鞋厂火灾代价极为惨痛](http://www.daogukj.com/5177434)
+- [埃及裁判专家：阿根廷绝杀球应判无效](http://www.daogukj.com/9757981)
+- [人工智能合作发展行动计划发布](http://www.play.hengshemaoyi.cn/kongbu/5254314.htm)
+- [男子帮台湾游客拍照 竟是失联大伯](http://www.play.hengshemaoyi.cn/kongbu/6062543.htm)
+- [重庆彭水发生山体垮塌 ，有人员被埋，具体情况如何？](http://www.daogukj.com/vvhxfmlz/)
+- [建议大家少喝肉汤](http://www.play.hengshemaoyi.cn/kongbu/6868011.htm)
+- [官方回应气象台不敢报40度](http://www.play.hengshemaoyi.cn/xiju/0581687.htm)
+- [双创指数均跌超7% 近200股跌停](http://www.play.hengshemaoyi.cn/xiju/3249372.htm)
+- [巴菲特将捐出剩余全部 1400 亿美元伯克希尔股票，如何看待彻底去巴菲特化的伯克希尔？](http://www.movie.hkepx.cn/xiju/6239174.htm)
+- [虞书欣给十个勤天送礼物](http://www.movie.hkepx.cn/xiju/9361968.htm)
+- [吴绮莉首次揭开与成龙决裂内幕](http://www.play.hengshemaoyi.cn/xiju/0141985.htm)
+- [河南省人民医院原党委书记邵凤民被查](http://www.daogukj.com/3639582)
+- [重庆男子丢下车：拼命跑腿脚都是软的](http://www.daogukj.com/olcgjzxy/)
+- [曲婉婷患癌](http://www.play.hengshemaoyi.cn/xiju/4459303.htm)
+- [美国团队用宇树 G1 人形机器人完成猪胆囊切除，论文作者称距离人体临床还很远，这件事含金量到底有多高？](http://www.daogukj.com/ogctigmk/)
+- [The Verity Cast Plays The REAL Verity Mod](http://www.play.hengshemaoyi.cn/kongbu/4101569.htm)
+- [阿根廷三场世界杯比赛都在即将终场前逆转赛局，这是啥战术安排吗？他们是怎么做到稳住心态逆风翻盘的？](http://www.play.hengshemaoyi.cn/kongbu/1623587.htm)
+- [广西集结超3万人抢险队伍](http://www.movie.hkepx.cn/xiju/2974024.htm)
+- [日本护士将排泄物混入患者输液管致其死亡，排泄物进入血液为什么会致命？如何防范内部人员带来的医疗风险？](http://www.daogukj.com/qduaipey/)
+- [矿石战争重制版一口气看完大合集](http://www.play.hengshemaoyi.cn/xiju/8227935.htm)
+- [陈浚铭摔了](http://www.play.hengshemaoyi.cn/kongbu/4160027.htm)
+- [中国汽车市场 5 个月推出 542 款新车，比亚迪高管称「彻底疯了」，这反映了怎样的市场竞争？](http://www.play.hengshemaoyi.cn/kongbu/9952478.htm)
+- [如何评价 7 月 16 日Kimi 发布的 2.8 万亿级开源模型 K3？](http://www.movie.hkepx.cn/xiju/1449526.htm)
+- [【朱志鑫】音乐现场｜2026TF家族夏日运动会「略略略略略」4K直拍](http://www.play.hengshemaoyi.cn/kongbu/5233867.htm)
+- [周星驰连发3个问号回应疑被偷票房](http://www.daogukj.com/foorujpq/)
+- [对虞书欣的身高有了实感](http://www.movie.hkepx.cn/xiju/1941094.htm)
+- [中国全球好感度反超美国](http://www.movie.hkepx.cn/movie/4257941.htm)
+- [外媒：中国全淹了？老王：别扯了！我正忙着在宁夏赶大集，炫18块钱的热乎手擀面呢！哈哈！](http://www.play.hengshemaoyi.cn/kongbu/5339935.htm)
+- [魔怔萌二和暴躁粗鲁女的相亲历险记](http://www.daogukj.com/ailrualr/)
+- [男子酒驾后购置棺材「假死」潜逃，家人配合「下葬」，这会面临哪些法律责任？](http://www.play.hengshemaoyi.cn/xiju/5385609.htm)
+- [如果你是刘备，有亲子刘禅出生后，会如何对待处理养子刘封的尴尬敏感问题？](http://www.movie.hkepx.cn/movie/0789293.htm)
+- [BLG申请世一上商标](http://www.movie.hkepx.cn/xiju/4446039.htm)
+- [如何评价《功夫女足》里张小斐的表演？](http://www.play.hengshemaoyi.cn/kongbu/7816841.htm)
+- [特朗普最重要的盟友没了](http://www.play.hengshemaoyi.cn/kongbu/9613360.htm)
+- [男子蝉联15届啤酒节酒王](http://www.daogukj.com/cdrpkogq/)
+- [各地补贴分层惠民撬动万亿消费](http://www.movie.hkepx.cn/movie/2665746.htm)
+- [邹市明与冉莹颖在综艺节目自曝亏损2亿，被质疑卖惨引流，如何评价？公众人物的家事，该不该摊开给网友看？](http://www.daogukj.com/zobrwsba/)
+- [第一视角无删减 违规 限流 引人不适版 ！请大家谨慎观看！](http://www.daogukj.com/0656524)
+- [“成都青龙湖放生3000条蛇”不实](http://www.movie.hkepx.cn/movie/2963324.htm)
+- [任泽平：资本市场需要长期主义](http://www.daogukj.com/oapvfaci/)
+- [白鹿官方工作室发文](http://www.daogukj.com/1720245)
 - [阿勒泰现UFO？天文台辟谣](http://www.play.hengshemaoyi.cn/xiju/2000340.htm)
-- [我把你们奇怪的想法都做到了我的世界里#14](http://www.play.hengshemaoyi.cn/kongbu/4181508.htm)
-- [原来真有人的妈妈是这样的](http://www.play.hengshemaoyi.cn/kongbu/7488097.htm)
-- [马拉松全程 42.195 公里是人体的极限吗？](http://www.play.hengshemaoyi.cn/xiju/5445185.htm)
-- [2026世界人工智能大会太火了](http://www.movie.hkepx.cn/movie/7058284.htm)
+- [《阴阳师》不相狐禅CG丨洪狐天运（CV：立花慎之介）](http://www.play.hengshemaoyi.cn/kongbu/4181508.htm)
+- [孙燕姿 曲婉婷](http://www.play.hengshemaoyi.cn/kongbu/7488097.htm)
+- [光伏板挡住了阳光，下面的草为啥长得更茂盛了？](http://www.play.hengshemaoyi.cn/xiju/5445185.htm)
+- [青岛啤酒节金沙滩啤酒城开城仪式举行](http://www.movie.hkepx.cn/movie/7058284.htm)
 
 </details>
 
 ## 原始来源
 
-- [广西横州倡议：减少不必要娱乐活动](https://www.baidu.com/s?wd=%E5%B9%BF%E8%A5%BF%E6%A8%AA%E5%B7%9E%E5%80%A1%E8%AE%AE%EF%BC%9A%E5%87%8F%E5%B0%91%E4%B8%8D%E5%BF%85%E8%A6%81%E5%A8%B1%E4%B9%90%E6%B4%BB%E5%8A%A8&sa=fyb_news&rsv_dl=fyb_news)
+- [小龙虾为何降价了](https://www.baidu.com/s?wd=%E5%B0%8F%E9%BE%99%E8%99%BE%E4%B8%BA%E4%BD%95%E9%99%8D%E4%BB%B7%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2a3027f0763e2e28577f -->
+<!-- content-fingerprint: 9ee15045068efdb03ffc -->

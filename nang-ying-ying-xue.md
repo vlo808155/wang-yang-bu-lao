@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 家长月薪 3500 请大学生暑假带娃，称大学生更易与孩子相处，对大学生来说这活有什么吸引力？愿意接吗？
+# 邹市明与冉莹颖在综艺节目自曝亏损2亿，被质疑卖惨引流，如何评价？公众人物的家事，该不该摊开给网友看？
 
-> 来源：知乎热榜 · 排名：第 13 位 · 热度：85 万热度 · 分类：问答 · 更新：2026-07-17T07:43:44+08:00
+> 来源：知乎热榜 · 排名：第 13 位 · 热度：186 万热度 · 分类：问答 · 更新：2026-07-17T15:33:54+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“家长月薪 3500 请大学生暑假带娃，称大学生更易与孩子相处，对大学生来说这活有什么吸引力？愿意接吗？”位列第 13 位，公开热度指标为 85 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“邹市明与冉莹颖在综艺节目自曝亏损2亿，被质疑卖惨引流，如何评价？公众人物的家事，该不该摊开给网友看？”位列第 13 位，公开热度指标为 186 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：7月15日报道，广东中山。家长请大学生暑假带娃辅导作业，早8晚6，一个月3500元。7月15日，广东中山的齐女士告诉@九派新闻，夫妻俩都要上班，孩子放暑假没人照看，专业家教每小时100至200元，开销较高。于是她请了一名大学生来家里带孩子并辅导作业，工作时间为早上8点到下午6点，她会提前备好饭菜放在冰箱，两人中午可以加热。家长回家后，大学生就能下班，周末双休，每月3500元，按月结算。齐女士说，大学生精力充沛，收费也更实惠，容易与孩子相处，还会带孩子下楼活动，小朋友每天都玩得很开心。 广东一家长月薪3500元请大学生暑假带娃：大学生精力充沛，容易和孩子相
+来源公开摘要显示：近日，随着综艺《姐姐当家2》的热播，邹市明与冉莹颖这对曾经的“体娱模范夫妇”再度成为舆论焦点。节目中，冉莹颖接连抛出“分房三年”“十年间五次想离婚”“三次走到民政局门口又折返”等重磅隐私，同时还首次公开披露家庭财务困境——2017年邹市明退役后，两人跨界打造高端拳馆并涉足餐饮、电竞等领域，因经验不足及市场冲击，七年累计亏损近两亿元，不得不变卖北京、上海等多处房产偿债…这些极具冲击力的爆料迅速引爆全网，“邹市明2亿理财亏损始末”等话题接连登顶社交媒体。 然而，就在公众对这对夫妻的婚姻危机抱以同情之际，一个关键信息浮出水面：冉莹颖与邹市明已于2024年4月签
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [《梦战：剑之海》概念先导CG首曝丨一个新的兰古利萨时代，即将开启](cheng-men-li-xue.md)
-- [广西横州倡议：减少不必要娱乐活动](shou-bu-shi-juan.md)
-- [白鹿新公司名](xue-fu-wu-che.md)
-- [梁文锋打新长鑫科技](bo-wen-qiang-ji.md)
+- [路边摊吃盒饭 吃成摊主](cheng-men-li-xue.md)
+- [小龙虾为何降价了](shou-bu-shi-juan.md)
+- [陈浚铭摔了](xue-fu-wu-che.md)
+- [河南省人民医院原党委书记邵凤民被查](bo-wen-qiang-ji.md)
 
 ## 站内推荐
 
-- [河南多家NFC果汁生产车间被曝无水果，产品却标注「100%鲜榨果汁」，标注是否合规？消费者该如何辨别？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [高校岗位收缩，每年超十万博士涌入仅3.5万岗位的市场，如何看待「博士过剩」问题？读博还是一个好选择吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [SpaceX 星舰第 13 次试飞中止，画面显示 4 个引擎未点火，可能遇到了哪些问题？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [从「抢年轻人」到「抢老年人」，中国城市竞争为何会经历这样的转变？背后揭示了哪些深层问题？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [曝《功夫女足》被偷票房，大量观众称电影票为纸质手写，这是普遍现象吗？对电影有哪些影响？制片方如何维权？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [高校岗位收缩，每年超十万博士涌入仅3.5万岗位的市场，如何看待「博士过剩」问题？读博还是一个好选择吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [如何看待匈牙利前外长辞去国会议员职务转投比亚迪？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [阿根廷三场世界杯比赛都在即将终场前逆转赛局，这是啥战术安排吗？他们是怎么做到稳住心态逆风翻盘的？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [塞尔维亚总统武契奇公开支持乌克兰，称支持其领土主权完整，如何解读这一发言？可能会带来哪些影响？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [免费早餐成许多酒店「送不起还在硬送」的隐形成本，对酒店来说，这个账怎么算？你希望酒店提供免费早餐吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [曝《功夫女足》被偷票房，大量观众称电影票为纸质手写，这是普遍现象吗？对电影有哪些影响？制片方如何维权？](http://www.daogukj.com/0791900)
-- [网传张雪摩托车驾驶员摔车后，无人驾驶开出几公里，平衡性这么好吗？](http://www.movie.hkepx.cn/movie/6187756.htm)
-- [全球最大规模开源模型Kimi K3发布](http://www.play.hengshemaoyi.cn/xiju/2843741.htm)
-- [男子150万白银存金店被拒还](http://www.daogukj.com/zealysjt/)
-- [长沙人是瞒着我们进化了吗](http://www.movie.hkepx.cn/movie/0178031.htm)
-- [数读产业转型升级新动能](http://www.daogukj.com/6215529)
-- [男子做胃肠镜突发心脏骤停成植物人](http://www.movie.hkepx.cn/xiju/4801450.htm)
-- [气象台不敢报40℃？权威回应](http://www.daogukj.com/8108433)
-- [汽车人空降峡谷！变卡车、骑机械霸王龙！自制亚瑟擎天柱皮肤！](http://www.daogukj.com/3643825)
-- [俄要求停止向乌供武](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
-- [泰总理抵上海 胸前别中泰国旗说中文](http://www.daogukj.com/1108835)
-- [哭着剪完这条视频…](http://www.movie.hkepx.cn/xiju/9153610.htm)
-- [他们说学校里有一个很装的人](http://www.play.hengshemaoyi.cn/xiju/5315061.htm)
-- [伊朗：美军事打击构成“战争罪”](http://www.play.hengshemaoyi.cn/xiju/5421312.htm)
-- [肖战 演唱会](http://www.daogukj.com/veafcjhm/)
-- [路边摊吃盒饭 吃成摊主](http://www.play.hengshemaoyi.cn/xiju/5677870.htm)
-- [周星驰连发3个问号回应疑被偷票房](http://www.movie.hkepx.cn/movie/8965818.htm)
-- [长城汽车 2026 年上半年净利润骤降近六成，是什么原因导致的？](http://www.daogukj.com/6666143)
-- [以后快递地址只写到小区](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
-- [白鹿当经纪人孩子干妈](http://www.movie.hkepx.cn/xiju/8931005.htm)
-- [三伏天养生记住九个字](http://www.movie.hkepx.cn/xiju/6420011.htm)
-- [我说这俩队这么难踢 原来是冠亚军](http://www.play.hengshemaoyi.cn/kongbu/7380475.htm)
-- [河南多家NFC果汁生产车间被曝无水果，产品却标注「100%鲜榨果汁」，标注是否合规？消费者该如何辨别？](http://www.daogukj.com/5699059)
-- [EWC淘汰赛抽签](http://www.movie.hkepx.cn/xiju/0644202.htm)
-- [The Verity Cast Plays The REAL Verity Mod](http://www.movie.hkepx.cn/xiju/8056511.htm)
-- [【终末地】1.4最好抄毕业基建！气体自动平衡，爆仓自动处理！](http://www.daogukj.com/nexzmtzr/)
-- [甲亢哥遭阿根廷球迷扔啤酒砸中脑袋](http://www.daogukj.com/1229862)
-- [格斗赛机器人头被打飞 甄子丹看呆](http://www.daogukj.com/bnuggeog/)
-- [耗时9999小时！一口气看完熊出没末路大合集！](http://www.movie.hkepx.cn/xiju/0869258.htm)
-- [马拉松全程 42.195 公里是人体的极限吗？](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
-- [如何评价7月16日正式上线的KIMI K3模型？](http://www.play.hengshemaoyi.cn/xiju/8712972.htm)
-- [TVB演员梁爱在养老院去世](http://www.daogukj.com/1535718)
-- [前一秒石库门 下一秒进未来](http://www.play.hengshemaoyi.cn/kongbu/2527657.htm)
-- [玛莎拉蒂新车88万二手只要24.8万](http://www.daogukj.com/fwgnvbgz/)
+- [免费早餐成许多酒店「送不起还在硬送」的隐形成本，对酒店来说，这个账怎么算？你希望酒店提供免费早餐吗？](http://www.daogukj.com/0791900)
+- [如何评价《功夫女足》里张小斐的表演？](http://www.movie.hkepx.cn/movie/6187756.htm)
+- [德68岁电工迷奸近60名女性被公诉](http://www.play.hengshemaoyi.cn/xiju/2843741.htm)
+- [中国全球好感度反超美国](http://www.daogukj.com/zealysjt/)
+- [对虞书欣的身高有了实感](http://www.movie.hkepx.cn/movie/0178031.htm)
+- [人工智能合作发展行动计划发布](http://www.daogukj.com/6215529)
+- [重庆男子丢下车：拼命跑腿脚都是软的](http://www.movie.hkepx.cn/xiju/4801450.htm)
+- [福建省委书记：鞋厂火灾代价极为惨痛](http://www.daogukj.com/8108433)
+- [特朗普最重要的盟友没了](http://www.daogukj.com/3643825)
+- [周星驰连发3个问号回应疑被偷票房](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
+- [油价今晚上调](http://www.daogukj.com/1108835)
+- [《崩坏：星穹铁道》EP：「下一站」](http://www.movie.hkepx.cn/xiju/9153610.htm)
+- [第一视角无删减 违规 限流 引人不适版 ！请大家谨慎观看！](http://www.play.hengshemaoyi.cn/xiju/5315061.htm)
+- [曲婉婷患癌](http://www.play.hengshemaoyi.cn/xiju/5421312.htm)
+- [虞书欣给十个勤天送礼物](http://www.daogukj.com/veafcjhm/)
+- [⚡⚡超 能 世 界 杯⚡⚡](http://www.play.hengshemaoyi.cn/xiju/5677870.htm)
+- [伊朗：造成大量美军人员死亡](http://www.movie.hkepx.cn/movie/8965818.htm)
+- [南派三叔、江南、刘慈欣，他们是从哪里知道那么多的知识的，如何构建整个故事体系和跌宕起伏的剧情?](http://www.daogukj.com/6666143)
+- [以后大家拼的就是身体了](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
+- [行车记录仪拍下彭水山体垮塌瞬间](http://www.movie.hkepx.cn/xiju/8931005.htm)
+- [全球科技股为何突然“熄火”](http://www.movie.hkepx.cn/xiju/6420011.htm)
+- [男子帮台湾游客拍照 竟是失联大伯](http://www.play.hengshemaoyi.cn/kongbu/7380475.htm)
+- [高校岗位收缩，每年超十万博士涌入仅3.5万岗位的市场，如何看待「博士过剩」问题？读博还是一个好选择吗？](http://www.daogukj.com/5699059)
+- [王俊凯穿睡衣敷面膜](http://www.movie.hkepx.cn/xiju/0644202.htm)
+- [我把你们奇怪的想法都做到了我的世界里#14](http://www.movie.hkepx.cn/xiju/8056511.htm)
+- [吴绮莉首次揭开与成龙决裂内幕](http://www.daogukj.com/nexzmtzr/)
+- [埃及裁判专家：阿根廷绝杀球应判无效](http://www.daogukj.com/1229862)
+- [A股](http://www.daogukj.com/bnuggeog/)
+- [外媒：中国全淹了？老王：别扯了！我正忙着在宁夏赶大集，炫18块钱的热乎手擀面呢！哈哈！](http://www.movie.hkepx.cn/xiju/0869258.htm)
+- [光伏板挡住了阳光，下面的草为啥长得更茂盛了？](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
+- [如何评价 7 月 16 日Kimi 发布的 2.8 万亿级开源模型 K3？](http://www.play.hengshemaoyi.cn/xiju/8712972.htm)
+- [《八仙！》会是下一个《哪吒》吗](http://www.daogukj.com/1535718)
+- [日产芯片超15亿块 什么概念](http://www.play.hengshemaoyi.cn/kongbu/2527657.htm)
+- [乒乓球全锦赛双打为何“单飞”](http://www.daogukj.com/fwgnvbgz/)
 - [寻找卢本伟](http://www.daogukj.com/liomovvw/)
-- [你在知乎上认真写下的回答，却只有寥寥几个赞时，是什么让你还愿意继续写下去？](http://www.play.hengshemaoyi.cn/xiju/3352880.htm)
-- [生娃基本不花钱 28个省份安排上了](http://www.daogukj.com/5981356)
-- [魔怔萌二和暴躁粗鲁女的相亲历险记](http://www.play.hengshemaoyi.cn/kongbu/9556053.htm)
-- [为什么鲁宾逊漂流记这样一部以热带海岛为背景的作品，完全没有任何关于蚊虫的描写？](http://www.movie.hkepx.cn/movie/6187870.htm)
-- [《崩坏：星穹铁道》EP：「下一站」](http://www.movie.hkepx.cn/xiju/9816980.htm)
-- [原来真有人的妈妈是这样的](http://www.daogukj.com/djgtqgkc/)
+- [摊牌吧，你家里有矿！](http://www.play.hengshemaoyi.cn/xiju/3352880.htm)
+- [中方反对美对古巴动武](http://www.daogukj.com/5981356)
+- [原创AIGC剧集《有异人》【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/9556053.htm)
+- [很多童星长大后很难转型成功，他们最大的困境是什么？](http://www.movie.hkepx.cn/movie/6187870.htm)
+- [汽车人空降峡谷！变卡车、骑机械霸王龙！自制亚瑟擎天柱皮肤！](http://www.movie.hkepx.cn/xiju/9816980.htm)
+- [孙燕姿 曲婉婷](http://www.daogukj.com/djgtqgkc/)
 - [阿勒泰现UFO？天文台辟谣](http://www.movie.hkepx.cn/movie/4871450.htm)
-- [小鹏MONA L03上市售价12.38万元起](http://www.movie.hkepx.cn/xiju/4251876.htm)
-- [2026世界人工智能大会太火了](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
-- [搞强拆能惹多大祸？【奇葩小国53】](http://www.movie.hkepx.cn/movie/9171667.htm)
-- [《阴阳师》不相狐禅CG丨洪狐天运（CV：立花慎之介）](http://www.daogukj.com/oeibgnih/)
-- [餐厅服务员帮顾客传话搭讪女生](http://www.play.hengshemaoyi.cn/xiju/5921224.htm)
-- [矿石战争重制版一口气看完大合集](http://www.daogukj.com/jqsnmzfn/)
-- [世界杯冠军奖金5000万美元 历史最高](http://www.daogukj.com/fprzebnn/)
-- [如何看待真我 realme 退出中国市场，售后质保由 OPPO 全面接手？品牌为什么会走到停运这一步？](http://www.daogukj.com/2176297)
+- [广西集结超3万人抢险队伍](http://www.movie.hkepx.cn/xiju/4251876.htm)
+- [青岛啤酒节金沙滩啤酒城开城仪式举行](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
+- [矿石战争重制版一口气看完大合集](http://www.movie.hkepx.cn/movie/9171667.htm)
+- [⚡️life goes to fly on⚡️](http://www.daogukj.com/oeibgnih/)
+- [巴菲特将捐出剩余全部 1400 亿美元伯克希尔股票，如何看待彻底去巴菲特化的伯克希尔？](http://www.play.hengshemaoyi.cn/xiju/5921224.htm)
+- [耗时9999小时！一口气看完熊出没末路大合集！](http://www.daogukj.com/jqsnmzfn/)
+- [沪指失守3800点](http://www.daogukj.com/fprzebnn/)
+- [重庆彭水发生山体垮塌 ，有人员被埋，具体情况如何？](http://www.daogukj.com/2176297)
 
 </details>
 
 ## 原始来源
 
-- [家长月薪 3500 请大学生暑假带娃，称大学生更易与孩子相处，对大学生来说这活有什么吸引力？愿意接吗？](https://www.zhihu.com/question/2060824517308412396)
+- [邹市明与冉莹颖在综艺节目自曝亏损2亿，被质疑卖惨引流，如何评价？公众人物的家事，该不该摊开给网友看？](https://www.zhihu.com/question/2061035268946367738)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 36a9311dfec28f9b7938 -->
+<!-- content-fingerprint: 143c64d3a327908d1c7e -->
