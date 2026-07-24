@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 王虹、邓煜两位中国数学家首获菲尔兹奖，具有怎样里程碑式的意义？对中国数学意味着什么？
+# 乔欣晒瑞士旅行随拍
 
-> 来源：知乎热榜 · 排名：第 13 位 · 热度：140 万热度 · 分类：问答 · 更新：2026-07-24T15:59:40+08:00
+> 来源：微博热搜 · 排名：第 14 位 · 热度：437758 · 分类：艺人 · 更新：2026-07-24T21:06:47+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“王虹、邓煜两位中国数学家首获菲尔兹奖，具有怎样里程碑式的意义？对中国数学意味着什么？”位列第 13 位，公开热度指标为 140 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“乔欣晒瑞士旅行随拍”位列第 14 位，公开热度指标为 437758，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：7月23日，菲尔兹奖出炉，邓煜第一个被颁奖 7月23日，菲尔兹奖出炉，王虹第四个被颁奖 7月23日，四位数学家同获世界顶级数学奖——菲尔兹奖邓煜王虹同摘世界顶级数学奖 是什么让顶尖科学家认定“现在是我们基础科研最好的时代”？ | 每经网“最重要的是享受数学”！专访2026年菲尔兹奖得主邓煜：中国数学家“出圈”，是厚积薄发的结果 | 每经网每经热评 | 菲尔兹奖从“0到2”之后，中国数学还需要“从2到N”的耐力 | 每经网 四年一度的菲尔兹奖（菲奖）将于7月23日国际数学家大会（ICM）上揭晓。王虹、邓煜两位中国籍数学家成为本届获奖大热门，二人为北大数院2
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `艺人`
 
 ## 相关热点
 
-- [树恨你](cheng-men-li-xue.md)
-- [机构：A股市场大周期上行趋势不变](shou-bu-shi-juan.md)
-- [对月薪三万有了直观的感受](xue-fu-wu-che.md)
-- [日本各界如何看待美国新增关税措施](bo-wen-qiang-ji.md)
+- [爸妈吵架都走了 男孩抱妹妹找奶奶](cheng-men-li-xue.md)
+- [长鑫科技上市时间敲定 7 月 27 日，哪些信息值得关注？你看好它的上市吗？](shou-bu-shi-juan.md)
+- [连续21天十点睡六点起，我真的会变健康吗？](xue-fu-wu-che.md)
+- [野猴坐工地狂喝饮料 工人一脸无奈](bo-wen-qiang-ji.md)
 
 ## 站内推荐
 
-- [如何看待高德上线的「位置口令」功能，6 位数字锁定精确点位？实际用途大吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [如何看待腾讯 317 万年终奖员工因泄密被辞退，「打入黑名单，永不录用」？大厂保密红线究竟有多严？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [耐克宣布自明年 1 月起清退中国数千家在线经销商，对国内市场有什么影响？会冲击实体商户吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [中方回应欧委会对全球速卖通罚 5.5 亿欧元，停止利用法律条文模糊性滥用自由裁量权，哪些信息值得关注？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [从文学角度来看，菲尔兹奖得主邓煜的诗词选，读完有什么感受？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [《绝区零》蕾米埃尔角色展示 | 恰如往昔](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [移动端今日公测 |《遗忘之海》“姐姐”海葬角色PV — 最后一舞](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [杨洋成为岚图追光S首位车主](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [取消午休四点下班你会同意吗](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [美加墨世界杯后，哈兰德、亚马尔身价达到惊人的 2.2 亿欧元，已突破历史，这是一个什么水平？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [从文学角度来看，菲尔兹奖得主邓煜的诗词选，读完有什么感受？](http://www.daogukj.com/0791900)
-- [演员寇占文被法院悬赏，立案标的 694 万，曾出演《隋唐英雄传》《逐玉》《镖人》，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/6187756.htm)
-- [台风“红霞”将影响广东珠海](http://www.play.hengshemaoyi.cn/xiju/2843741.htm)
-- [三星堆祭祀所用神庙疑似失火倒塌](http://www.daogukj.com/zealysjt/)
-- [张柏芝一个人带大两个孩子那些年](http://www.movie.hkepx.cn/movie/0178031.htm)
-- [长江十年行](http://www.daogukj.com/6215529)
-- [外围市场重挫 A股韧性几何](http://www.movie.hkepx.cn/xiju/4801450.htm)
-- [邓煜谈学生是否应回国发展](http://www.daogukj.com/8108433)
-- [当你穿进老钱班30](http://www.daogukj.com/3643825)
-- [数学之外的邓煜：知乎大神、动漫、诗人](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
-- [中国AI大反超 美国还能挡多久](http://www.daogukj.com/1108835)
-- [成吉思鸡200卢比买一送一，我只要送的那份](http://www.movie.hkepx.cn/xiju/9153610.htm)
-- [本想报智能制造，报成“智能建造”了！！！](http://www.play.hengshemaoyi.cn/xiju/5315061.htm)
-- [王虹：很幸运在合适时间遇见合适的人](http://www.play.hengshemaoyi.cn/xiju/5421312.htm)
-- [产妇羊水栓塞抢救11小时换3次血](http://www.daogukj.com/veafcjhm/)
-- [【第48版】如果“豆包”死掉你会怎样-【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/5677870.htm)
-- [南京南站23天已捡到16个娃](http://www.movie.hkepx.cn/movie/8965818.htm)
-- [「最爱发钱老板」因员工不孝当场将其辞退，你怎么看待他的做法？](http://www.daogukj.com/6666143)
-- [双休和五点下班是什么感觉](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
-- [假大师用刀片切患者肿瘤诈骗360万](http://www.movie.hkepx.cn/xiju/8931005.htm)
-- [外交部：美国不是南海问题的当事方](http://www.movie.hkepx.cn/xiju/6420011.htm)
-- [TVB正式更名](http://www.play.hengshemaoyi.cn/kongbu/7380475.htm)
-- [如何看待高德上线的「位置口令」功能，6 位数字锁定精确点位？实际用途大吗？](http://www.daogukj.com/5699059)
-- [金饰价格一夜大跌](http://www.movie.hkepx.cn/xiju/0644202.htm)
-- [连续21天十点睡六点起，我真的会变健康吗？](http://www.movie.hkepx.cn/xiju/8056511.htm)
-- [玩剑魔打蒙多能忍住不笑的，你是这个👍](http://www.daogukj.com/nexzmtzr/)
-- [马来西亚将就新关税问题与美国磋商](http://www.daogukj.com/1229862)
-- [A股收盘：创业板指、深成指均跌超2%](http://www.daogukj.com/bnuggeog/)
-- [【寒战1994】寒战系列前传来袭！](http://www.movie.hkepx.cn/xiju/0869258.htm)
-- [社会本就存在尔虞我诈，为什么从小要给孩子灌输真善美，而不是教他们认清现实？](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
-- [2026 年菲尔兹奖公布，中国籍数学家邓煜、王虹获奖，如何理解他们获奖的意义？](http://www.play.hengshemaoyi.cn/xiju/8712972.htm)
-- [情侣还愿时遇神奇小鸟停男生肩上](http://www.daogukj.com/1535718)
-- [中国汽车加速全球化布局](http://www.play.hengshemaoyi.cn/kongbu/2527657.htm)
-- [“加长版”中伏来了 记得吃碗二伏面](http://www.daogukj.com/fwgnvbgz/)
-- [《绝区零》蕾米埃尔角色展示 | 恰如往昔](http://www.daogukj.com/liomovvw/)
-- [金价连涨四天，现货黄金重回 4100 美元，深圳水贝挤满购金人，如何看待黄金当下行情？](http://www.play.hengshemaoyi.cn/xiju/3352880.htm)
-- [SK掌门人50亿美元天价离婚案判了](http://www.daogukj.com/5981356)
-- [【陶笛】The other side of paradise.抱歉哪位小盆友点的，找不到截图了。。。哈哈哈哈哈](http://www.play.hengshemaoyi.cn/kongbu/9556053.htm)
-- [西班牙记者吐槽西蒙获金手套奖，称其整届赛事几乎没事做，该奖项评选机制是否合理？](http://www.movie.hkepx.cn/movie/6187870.htm)
-- [移动端今日公测 |《遗忘之海》“姐姐”海葬角色PV — 最后一舞](http://www.movie.hkepx.cn/xiju/9816980.htm)
-- [男子在家裸体被邻居拍照发群](http://www.daogukj.com/djgtqgkc/)
-- [认清汛期灾害谣言](http://www.movie.hkepx.cn/movie/4871450.htm)
-- [如何看待“神化”周星驰现象](http://www.movie.hkepx.cn/xiju/4251876.htm)
-- [王俊凯整治鸡圈霸凌](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
-- [沉浸式感受清朝御厨制作以假乱真的骨头【AI全民制作人】](http://www.movie.hkepx.cn/movie/9171667.htm)
-- [见蛇不打三分罪？让我们来看看舟山眼镜蛇怎么说](http://www.daogukj.com/oeibgnih/)
-- [2名中国籍数学家获菲尔兹奖](http://www.play.hengshemaoyi.cn/xiju/5921224.htm)
-- [带老北京人沉浸式体验乐园](http://www.daogukj.com/jqsnmzfn/)
-- [缅北“四大家族”已被彻底摧毁](http://www.daogukj.com/fprzebnn/)
-- [如何看待网传耗资 319 亿的腾讯全球总部「企鹅岛」疑基建翻车，员工疯狂吐槽质量奇差？](http://www.daogukj.com/2176297)
+- [美加墨世界杯后，哈兰德、亚马尔身价达到惊人的 2.2 亿欧元，已突破历史，这是一个什么水平？](http://www.daogukj.com/0791900)
+- [张柏芝这些年被路人偶遇时拍到的图片](http://www.movie.hkepx.cn/movie/6187756.htm)
+- [如果一男子撬锁进入别人房子内，结果刚进屋就被泼热油导致全身重度烧伤，请问屋主该行为是否属于正当防卫？](http://www.play.hengshemaoyi.cn/xiju/2843741.htm)
+- [如何看待近期日本面临的股债汇「三杀」的境况？](http://www.daogukj.com/zealysjt/)
+- [《我的花童弟弟》](http://www.movie.hkepx.cn/movie/0178031.htm)
+- [我国社会稳定形势持续向好](http://www.daogukj.com/6215529)
+- [中国海警水炮喷射驱离菲侵权船只](http://www.movie.hkepx.cn/xiju/4801450.htm)
+- [7月26日广东省内铁路全线停运](http://www.daogukj.com/8108433)
+- [伊朗称袭击美国亚马逊公司一数据中心](http://www.daogukj.com/3643825)
+- [为什么德云社400多个演员，郭德纲只捧红了那几个？](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
+- [「最爱发钱老板」因员工不孝当场将其辞退，你怎么看待他的做法？](http://www.daogukj.com/1108835)
+- [菲位南海多点生事蓄意挑衅](http://www.movie.hkepx.cn/xiju/9153610.htm)
+- [物业大撤退背后发生了什么](http://www.play.hengshemaoyi.cn/xiju/5315061.htm)
+- [2026 年菲尔兹奖公布，中国籍数学家邓煜、王虹获奖，如何理解他们获奖的意义？](http://www.play.hengshemaoyi.cn/xiju/5421312.htm)
+- [睡眠好坏和床头朝向有关系吗](http://www.daogukj.com/veafcjhm/)
+- [沃齐尼亚发声：佛得角足球有实力](http://www.play.hengshemaoyi.cn/xiju/5677870.htm)
+- [卖淫案涉事派出所副所长被判无罪](http://www.movie.hkepx.cn/movie/8965818.htm)
+- [【纪录片】地球·劫后重生 中配版07 大陆碰撞](http://www.daogukj.com/6666143)
+- [澳大利亚工党大会中方官员愤然离席](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
+- [宇树发布新机器狗](http://www.movie.hkepx.cn/xiju/8931005.htm)
+- [【寒战1994】寒战系列前传来袭！](http://www.movie.hkepx.cn/xiju/6420011.htm)
+- [四字名已经满足不了90后家长了](http://www.play.hengshemaoyi.cn/kongbu/7380475.htm)
+- [《绝区零》蕾米埃尔角色展示 | 恰如往昔](http://www.daogukj.com/5699059)
+- [成吉思鸡200卢比买一送一，我只要送的那份](http://www.movie.hkepx.cn/xiju/0644202.htm)
+- [云南旅游点完菜后发现老板砍树去了](http://www.movie.hkepx.cn/xiju/8056511.htm)
+- [【绝区零】蕾米埃尔丹综合测评：圣光级虚狩！武器对比+技能解读+驱动盘选择+影画提升！数值正是为王的理由！](http://www.daogukj.com/nexzmtzr/)
+- [2名中国籍数学家获菲尔兹奖](http://www.daogukj.com/1229862)
+- [受台风红霞影响 广东潮州全市停课](http://www.daogukj.com/bnuggeog/)
+- [Angelababy13岁旧照](http://www.movie.hkepx.cn/xiju/0869258.htm)
+- [“广西百色遭遇严重洪灾”系谣言](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
+- [漫 展 寻 亲 记](http://www.play.hengshemaoyi.cn/xiju/8712972.htm)
+- [孙颖莎俱乐部回应伤情](http://www.daogukj.com/1535718)
+- [长江十年行](http://www.play.hengshemaoyi.cn/kongbu/2527657.htm)
+- [大张伟说周深做作](http://www.daogukj.com/fwgnvbgz/)
+- [《下一个是谁》第七季（2）](http://www.daogukj.com/liomovvw/)
+- [男子用AI伪造水果腐烂照片，恶意仅退款百余次套现，被判诈骗罪，当地也被平台标记高风险，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/3352880.htm)
+- [上课时的难绷瞬间！](http://www.daogukj.com/5981356)
+- [全球第一个 老挝彻底禁售燃油新车](http://www.play.hengshemaoyi.cn/kongbu/9556053.htm)
+- [刘耀文去办美签了](http://www.movie.hkepx.cn/movie/6187870.htm)
+- [大叔跳江救的女娃今年考上北大了](http://www.movie.hkepx.cn/xiju/9816980.htm)
+- [【陶笛】The other side of paradise.抱歉哪位小盆友点的，找不到截图了。。。哈哈哈哈哈](http://www.daogukj.com/djgtqgkc/)
+- [俄罗斯奶牛猫运毒被抓只能喵喵喵](http://www.movie.hkepx.cn/movie/4871450.htm)
+- [13岁女孩体重超220斤确诊多囊](http://www.movie.hkepx.cn/xiju/4251876.htm)
+- [TF四代陪官俊臣查分](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
+- [OPPO 、Vivo 拒绝三星存储涨价报价，后续国产手机可能都用长鑫等国产内存吗？](http://www.movie.hkepx.cn/movie/9171667.htm)
+- [本想报智能制造，报成“智能建造”了！！！](http://www.daogukj.com/oeibgnih/)
+- [男子捂死妻子埋尸荒野13年后被抓](http://www.play.hengshemaoyi.cn/xiju/5921224.htm)
+- [缅北“四大家族”已被彻底摧毁](http://www.daogukj.com/jqsnmzfn/)
+- [演员寇占文被法院悬赏，立案标的 694 万，曾出演《隋唐英雄传》《逐玉》《镖人》，哪些信息值得关注？](http://www.daogukj.com/fprzebnn/)
+- [如何看待新晋菲尔兹奖得主 Jacob Tsimerman 颁奖当天宣布加入OpenAI？](http://www.daogukj.com/2176297)
 
 </details>
 
 ## 原始来源
 
-- [王虹、邓煜两位中国数学家首获菲尔兹奖，具有怎样里程碑式的意义？对中国数学意味着什么？](https://www.zhihu.com/question/2062972338451362703)
+- [乔欣晒瑞士旅行随拍](https://s.weibo.com/weibo?q=%E4%B9%94%E6%AC%A3%E6%99%92%E7%91%9E%E5%A3%AB%E6%97%85%E8%A1%8C%E9%9A%8F%E6%8B%8D)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a0951d49bb43923c0341 -->
+<!-- content-fingerprint: ab7d55164be13c359b70 -->
