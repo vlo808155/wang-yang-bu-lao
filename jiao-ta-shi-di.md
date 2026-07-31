@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 男子穿拖鞋夜钓被黄辣丁扎穿鞋底
+# 特斯拉否认「剥离或出售中国业务」，中国业务对其有多重要？怎样从商业角度解读？
 
-> 来源：百度热搜 · 排名：第 15 位 · 热度：6381702 · 更新：2026-07-31T16:18:47+08:00
+> 来源：知乎热榜 · 排名：第 16 位 · 热度：93 万热度 · 分类：问答 · 更新：2026-07-31T23:52:37+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“男子穿拖鞋夜钓被黄辣丁扎穿鞋底”位列第 15 位，公开热度指标为 6381702。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“特斯拉否认「剥离或出售中国业务」，中国业务对其有多重要？怎样从商业角度解读？”位列第 16 位，公开热度指标为 93 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：7月28日，四川一名男子夜间穿拖鞋垂钓时，不慎被黄辣丁（黄颡鱼）的硬刺扎穿鞋底，脚部受伤需包扎。该鱼背鳍与胸鳍含毒，刺伤后疼痛剧烈。
+来源公开摘要显示：7月31日，有消息称特斯拉正考虑中国业务剥离，论的方案包括分拆、出售或关闭中国业务，此举是为未来与SpaceX的潜在合并铺路。 特斯拉中国相关负责人回应潮新闻记者求证时称，以上为不实消息。特斯拉考虑剥离中国业务？官方回应：不实消息 据外媒报道，特斯拉公司可能出售或剥离其中国业务，为未来与SpaceX的潜在合并交易创造条件。 报道称，马斯克在设计特斯拉中国业务时，就考虑到了需要容易地将其与美国业务分离。如果他未来推进与SpaceX的合并，这种安排也可能派上用场。 据知情人士透露，马斯克近年来指示特斯拉高管在公司架构上，在美国与中国业务之间设立一道“激光”般
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [攒了一年钱买的自行车没骑就走了](shi-shi-qiu-shi.md)
-- [机器狼扛单兵火箭筒冲上滩头](chi-zhi-yi-heng.md)
-- [马斯克预言五年内 AI 将超越全人类、十年后金钱将失去意义，这一预测靠谱吗？AI 真会重塑经济体系吗？](jian-ren-bu-ba.md)
-- [【花小烙】游隼：地球上俯冲速度最快的“鸟中战斗机”是如何炼成的？](zi-qiang-bu-xi.md)
+- [你们起过最爆笑的外号是什么](shi-shi-qiu-shi.md)
+- [台风白海豚已达17级 可能直奔中国](chi-zhi-yi-heng.md)
+- [母女下坠撞到挑檐改变了坠落轨迹](jian-ren-bu-ba.md)
+- [汉口站北门未开致旅客误车被起诉](zi-qiang-bu-xi.md)
 
 ## 站内推荐
 
-- [小时候看不懂，长大后已是局中人](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [《原神》7.0版本PV：「无神怜爱的雪国」](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
 - [《灰境行者》全新预告丨PC测试定档9月](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [吴宜泽vs特鲁姆普](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [数千移民游泳偷渡 西班牙边境崩溃](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [小伙被椅子扶手卡头 朋友救助也被卡](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [住宅突发火灾如何逃生自救](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [如何看待Claude大规模封禁国内开发者账号，让依赖AI的程序员「功力尽失」，被调侃天才程序员陨落？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [如何评价2026年7月米哈游《原神》7.0前瞻直播【无神怜爱的雪国】？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [挑战从东北徒步到西藏( 十倍速1小时5分版）](http://www.play.hengshemaoyi.cn/xiju/0097071.htm)
-- [消耗40亿token，我做了个AI军官监督我学习【B站AI创造公开赛】](http://www.daogukj.com/6917906)
-- [“垃圾不够烧”？真相调查来了](http://www.movie.hkepx.cn/xiju/5218004.htm)
-- [《基督山伯爵》这种纯爽文为什么能成为名著？](http://www.play.hengshemaoyi.cn/xiju/0477759.htm)
-- [烤肉师傅因撞脸马斯克走红](http://www.play.hengshemaoyi.cn/kongbu/2496428.htm)
-- [来吧，互相伤害吧](http://www.movie.hkepx.cn/xiju/3685062.htm)
+- [客服 坏了他真会啊](http://www.play.hengshemaoyi.cn/xiju/0097071.htm)
+- [退役军人事务部向广大退役军人送祝福](http://www.daogukj.com/6917906)
+- [24小时内近4.9万移民进入西班牙休达](http://www.movie.hkepx.cn/xiju/5218004.htm)
+- [“省气贴可让燃气表少走字”不实](http://www.play.hengshemaoyi.cn/xiju/0477759.htm)
+- [国家电网原董事长辛保安被查](http://www.play.hengshemaoyi.cn/kongbu/2496428.htm)
+- [女孩大学毕业照顾渐冻症母亲三年](http://www.movie.hkepx.cn/xiju/3685062.htm)
 - [DeepSeek V4 flash 正式版发布，有哪些亮点值得关注？](http://www.daogukj.com/3371182)
-- [奇怪的玩具工厂 第五章 Part2，结局](http://www.movie.hkepx.cn/movie/5235217.htm)
-- [攒了一年钱买的自行车没骑就走了](http://www.movie.hkepx.cn/movie/1065563.htm)
-- [连云港火灾 消防](http://www.movie.hkepx.cn/xiju/2385315.htm)
-- [争夺蜜瓜的修行【绝区零生日会】](http://www.movie.hkepx.cn/movie/6775516.htm)
-- [浙江一大爷用铲子斩断剧毒眼镜蛇，5 分钟后用手捡起蛇头，突然被咬中毒，蛇头断了为什么还能咬人？](http://www.play.hengshemaoyi.cn/xiju/8315734.htm)
-- [意大利传奇球星巴雷西去世](http://www.movie.hkepx.cn/movie/7363540.htm)
-- [特斯拉否认「剥离或出售中国业务」，中国业务对其有多重要？怎样从商业角度解读？](http://www.daogukj.com/cdxwsvlr/)
+- [给杨勇记国防科技一等功](http://www.movie.hkepx.cn/movie/5235217.htm)
+- [你们起过最爆笑的外号是什么](http://www.movie.hkepx.cn/movie/1065563.htm)
+- [手绘469张！还原EVA主题曲](http://www.movie.hkepx.cn/xiju/2385315.htm)
+- [公公强奸儿媳案丈夫认定妻子是自愿](http://www.movie.hkepx.cn/movie/6775516.htm)
+- [婚外试管小三正面拍照挑衅患癌原配](http://www.play.hengshemaoyi.cn/xiju/8315734.htm)
+- [考上兰大有必要复读吗？](http://www.movie.hkepx.cn/movie/7363540.htm)
+- [马斯克发丧尸片视频形容非法移民](http://www.daogukj.com/cdxwsvlr/)
 - [《灰境行者》全新预告丨PC测试定档9月](http://www.play.hengshemaoyi.cn/kongbu/0643388.htm)
-- [辽宁多名青年戴面具飙车炸街被抓](http://www.daogukj.com/2422126)
-- [马斯克预言五年内 AI 将超越全人类、十年后金钱将失去意义，这一预测靠谱吗？AI 真会重塑经济体系吗？](http://www.play.hengshemaoyi.cn/xiju/1647104.htm)
-- [数千移民游泳偷渡 西班牙边境崩溃](http://www.daogukj.com/ndxvabom/)
-- [DeepSeekV4Flash正式版上线](http://www.movie.hkepx.cn/xiju/4619435.htm)
-- [机器狼扛单兵火箭筒冲上滩头](http://www.play.hengshemaoyi.cn/kongbu/1101559.htm)
-- [兰州一高校录取通知书上「身份证」印成「身证份」，为什么会出现这么明显的错误？会影响新生对学校的观感吗？](http://www.play.hengshemaoyi.cn/xiju/0629628.htm)
-- [孙女躲着想吓爷爷 爷爷超级配合](http://www.daogukj.com/ylpitmdd/)
-- [消防员 劳务派遣](http://www.daogukj.com/0425890)
-- [手绘469张！还原EVA主题曲](http://www.movie.hkepx.cn/movie/0711704.htm)
-- [昆明边检查获一名外籍偷渡男子](http://www.play.hengshemaoyi.cn/kongbu/6688053.htm)
-- [C罗晒与16岁儿子肌肉合照](http://www.movie.hkepx.cn/xiju/8726337.htm)
-- [清华求真书院预科班部分学生被清退](http://www.movie.hkepx.cn/movie/4000033.htm)
-- [8月房价会迎来实质性反转吗](http://www.play.hengshemaoyi.cn/kongbu/8129952.htm)
-- [日元偷袭，美元盘中跌破100且兑日元急挫超3%，美股SOX指数盘内涨超8%，大宗商品异动，发生了什么？](http://www.movie.hkepx.cn/xiju/6717823.htm)
-- [00后姑娘在高考结束后剃了光头](http://www.play.hengshemaoyi.cn/xiju/8207849.htm)
-- [如何看待王虹在大学期间因为数学难度陡增，「felt a little discouraged」?](http://www.movie.hkepx.cn/xiju/7176754.htm)
-- [解放军两次警告日方不能自称海军](http://www.movie.hkepx.cn/xiju/7103907.htm)
-- [突然发现朋友月薪五万](http://www.daogukj.com/8480932)
-- [虞书欣大腿淤青](http://www.play.hengshemaoyi.cn/xiju/1324706.htm)
-- [媳妇跑了、被孤立7年后，这只企鹅爱上了二次元少女](http://www.movie.hkepx.cn/xiju/0777272.htm)
-- [7 月31 日长鑫科技盘中涨超 13%，总市值突破 4 万亿，还会持续上涨吗？](http://www.play.hengshemaoyi.cn/kongbu/7917314.htm)
-- [王者荣耀这自动寻路太好用了，以后跑图方便了](http://www.play.hengshemaoyi.cn/kongbu/1468319.htm)
-- [小时候看不懂，长大后已是局中人](http://www.movie.hkepx.cn/xiju/5876017.htm)
-- [遗忘之海×海绵宝宝联动PV——出发！蟹堡王分店！](http://www.daogukj.com/gawltyww/)
-- [电影八仙](http://www.daogukj.com/khvkrhhm/)
-- [一道小学数学题难住三名医学博士，现在的小学数学试题到底有多难？如何评价这一难度设计？](http://www.daogukj.com/ohmyjicx/)
-- [用暑假工工资雇佣了211家教](http://www.movie.hkepx.cn/movie/8333714.htm)
-- [蛋糕配送途中损毁 母女放弃索赔](http://www.play.hengshemaoyi.cn/kongbu/2515788.htm)
-- [当所有人随机获得英雄联盟的一个技能...【AI全民制作人】](http://www.movie.hkepx.cn/xiju/3206850.htm)
-- [糖水市场为何不“甜”了](http://www.movie.hkepx.cn/xiju/8109403.htm)
-- [张柏芝现身李昊红馆演唱会](http://www.daogukj.com/7843554)
-- [我国电力系统迎来结构性转变](http://www.play.hengshemaoyi.cn/xiju/1200735.htm)
-- [机器狼扛着单兵火箭筒冲上滩头](http://www.play.hengshemaoyi.cn/xiju/9587905.htm)
-- [贵州贵定再通报“伴漂擦边服务”](http://www.movie.hkepx.cn/movie/0046131.htm)
-- [【第二集】🐧赛伊德：“我变成女孩了？！”🐧](http://www.movie.hkepx.cn/movie/8441677.htm)
+- [【纪录片】地球·劫后重生 中配版08 美洲洪水](http://www.daogukj.com/2422126)
+- [母女下坠撞到挑檐改变了坠落轨迹](http://www.play.hengshemaoyi.cn/xiju/1647104.htm)
+- [如何看待Claude大规模封禁国内开发者账号，让依赖AI的程序员「功力尽失」，被调侃天才程序员陨落？](http://www.daogukj.com/ndxvabom/)
+- [周星驰反向采访董宇辉，口称「辉哥」，坦言已无太大动力再出演，年纪大了，体能跟不上，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/4619435.htm)
+- [台风白海豚已达17级 可能直奔中国](http://www.play.hengshemaoyi.cn/kongbu/1101559.htm)
+- [三大运营商将停止第三方互联网渠道办卡](http://www.play.hengshemaoyi.cn/xiju/0629628.htm)
+- [男子工作群留遗言坠亡 群内无人回复](http://www.daogukj.com/ylpitmdd/)
+- [为什么中国民间有虚岁一说？](http://www.daogukj.com/0425890)
+- [【纪录片】闪闪的儿科医生4 第10集 接棒！生命未完待续……](http://www.movie.hkepx.cn/movie/0711704.htm)
+- [莲子切开后里面有个“小娃娃”](http://www.play.hengshemaoyi.cn/kongbu/6688053.htm)
+- [吴宜泽无缘斯诺克上海大师赛决赛](http://www.movie.hkepx.cn/xiju/8726337.htm)
+- [中国最高薪本科专业易主](http://www.movie.hkepx.cn/movie/4000033.htm)
+- [【家有神兽】三战第九集:我军特种部队和机器狗并肩作战，火力突袭贾布瓦机场](http://www.play.hengshemaoyi.cn/kongbu/8129952.htm)
+- [原来到一定年龄就想生小孩了](http://www.movie.hkepx.cn/xiju/6717823.htm)
+- [陈天桥2.2亿“抄底”上海酒店](http://www.play.hengshemaoyi.cn/xiju/8207849.htm)
+- [DeepSeek V4 正式版发布，使用体验如何？和降价后的 GPT5.6 luna 对比谁更有优势？](http://www.movie.hkepx.cn/xiju/7176754.htm)
+- [漂流就漂流 不要下流](http://www.movie.hkepx.cn/xiju/7103907.htm)
+- [周星驰质疑董宇辉看大话西游500遍](http://www.daogukj.com/8480932)
+- [游客进入青海黑独山禁游区拍照，工作人员称一个脚印十年难恢复，砾石层为何难恢复？景区该如何管住越界打卡？](http://www.play.hengshemaoyi.cn/xiju/1324706.htm)
+- [取消午休4点下班你会同意吗](http://www.movie.hkepx.cn/xiju/0777272.htm)
+- [民宿老板快被这个暑期熬垮了](http://www.play.hengshemaoyi.cn/kongbu/7917314.htm)
+- [A股放量上涨是反弹还是反转](http://www.play.hengshemaoyi.cn/kongbu/1468319.htm)
+- [《原神》7.0版本PV：「无神怜爱的雪国」](http://www.movie.hkepx.cn/xiju/5876017.htm)
+- [李光洙起哄金宇彬申敏儿](http://www.daogukj.com/gawltyww/)
+- [一条视频看七月：韩国赌命梭哈，美国全球收费，这世界谁正常？](http://www.daogukj.com/khvkrhhm/)
+- [母女坠落时消防和群众已拉被褥接人](http://www.daogukj.com/ohmyjicx/)
+- [小米澎程N90、N70两款SUV上市后是否会有车企跟进设计？](http://www.movie.hkepx.cn/movie/8333714.htm)
+- [东北多地体感气温超 40℃，传统避暑胜地为何也变得酷热难耐？这轮高温天气会持续多久？](http://www.play.hengshemaoyi.cn/kongbu/2515788.htm)
+- [三大运营商发布公告](http://www.movie.hkepx.cn/xiju/3206850.htm)
+- [董宇辉称看了500遍大话西游 星爷震惊](http://www.movie.hkepx.cn/xiju/8109403.htm)
+- [《整改到胃》](http://www.daogukj.com/7843554)
+- [北斗卫星导航系统全面完成在轨升级](http://www.play.hengshemaoyi.cn/xiju/1200735.htm)
+- [徐福记突发声明称拼多多店铺非官方自营，网传纠纷原因为个体商家为报复平台秒退款，具体什么情况？](http://www.play.hengshemaoyi.cn/xiju/9587905.htm)
+- [我们拍到了水下风暴](http://www.movie.hkepx.cn/movie/0046131.htm)
+- [外交部回应日本设立“国家情报局”](http://www.movie.hkepx.cn/movie/8441677.htm)
 
 </details>
 
 ## 原始来源
 
-- [男子穿拖鞋夜钓被黄辣丁扎穿鞋底](https://www.baidu.com/s?wd=%E7%94%B7%E5%AD%90%E7%A9%BF%E6%8B%96%E9%9E%8B%E5%A4%9C%E9%92%93%E8%A2%AB%E9%BB%84%E8%BE%A3%E4%B8%81%E6%89%8E%E7%A9%BF%E9%9E%8B%E5%BA%95&sa=fyb_news&rsv_dl=fyb_news)
+- [特斯拉否认「剥离或出售中国业务」，中国业务对其有多重要？怎样从商业角度解读？](https://www.zhihu.com/question/2066476826868676553)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1692573ccc40b71de3d9 -->
+<!-- content-fingerprint: a933598578109ccd069e -->
