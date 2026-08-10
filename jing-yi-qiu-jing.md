@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 「白海豚」减弱为热带风暴，范围覆盖整个华东，浙皖等地局地有特大暴雨，目前情况如何？你那边雨势怎么样？
+# 台风“白海豚”移入江西
 
-> 来源：知乎热榜 · 排名：第 15 位 · 热度：140 万热度 · 分类：问答 · 更新：2026-08-10T13:07:43+08:00
+> 来源：今日头条热榜 · 排名：第 16 位 · 热度：4765893 · 分类：热门事件 · 更新：2026-08-10T18:01:56+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“「白海豚」减弱为热带风暴，范围覆盖整个华东，浙皖等地局地有特大暴雨，目前情况如何？你那边雨势怎么样？”位列第 15 位，公开热度指标为 140 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“台风“白海豚”移入江西”位列第 16 位，公开热度指标为 4765893，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：今年第13号台风“白海豚”的中心昨天（9日）下午5点30分前后在浙江省台州玉环市坎门街道沿海登陆，登陆时中心附近最大风力有14级（42米/秒，强台风级），中心最低气压为945百帕；下午6点40分前后在浙江省温州乐清市翁垟街道沿海再次登陆，登陆时中心附近最大风力有13级（38米/秒，台风级），中心最低气压为950百帕；登陆后“白海豚”向西偏南方向移动，强度逐渐减弱，今天（10日）早晨5点钟其中心位浙江省丽水市庆元县境内，外围最大风力有9级（23米/秒，热带风暴级），中心最低气压为982百帕。 预计，“白海豚”将以每小时20-25公里的速度向西北方向移动，强
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
 
 ## 相关热点
 
-- [在东方明珠玩100人躲猫猫！奖金10万元](jiao-ta-shi-di.md)
-- [男子出轨有私生子离婚留下6千万债务](shi-shi-qiu-shi.md)
-- [iPhone18Pro发布会时间](chi-zhi-yi-heng.md)
-- [河南近3天局部有特大暴雨](jian-ren-bu-ba.md)
+- [横滨女队三人围剿也没能阻挡张本美和夺冠，是哪里出了问题?](jiao-ta-shi-di.md)
+- [【TF家族练习生】《TLOG》15：《异常加载中》MV拍摄花絮](shi-shi-qiu-shi.md)
+- [百花奖闭幕式节目单正式揭晓](chi-zhi-yi-heng.md)
+- [立秋后突然就不热了](jian-ren-bu-ba.md)
 
 ## 站内推荐
 
-- [传销犯变身「国学大师」创办如是书院暴力管教孩子，浙江开启调查，这个书院为啥能横行多年？反映出哪些问题？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [为什么程序员大多都拥抱AI，而音乐人却抗拒并隔离AI音乐池？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [67岁农户听信AI喷农药致150亩地一夜枯萎，老人听AI翻车的事层出不穷，有啥办法能帮助他们辨别吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [票房持续走低，《蜘蛛侠：崭新之日》票房为何不见首日辉煌？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [上海音乐家协会新增无弦吉他考级，无弦吉他算乐器吗？这个等级含金量高吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [武汉司门口黄鹤楼天桥市容管理人员与占道摊贩发生激烈肢体冲突，3 人被刑拘，有哪些信息值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
+- [台风「白海豚」疯狂倒水，上海内涝严重，地铁多条线路停运，你的出行和生活受影响了吗？今天有居家办公吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [龙餐馆](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [货主曝价值158万黑胡椒存冷库消失](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [A股超4000股收涨](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [专家：A股二次探底是大概率事件](http://www.movie.hkepx.cn/movie/4451376.htm)
-- [贺涵 能来接我吗](http://www.play.hengshemaoyi.cn/kongbu/7965655.htm)
-- [受台风「白海豚」影响，8 月 10 日上海地铁多条线路停运，你早高峰出行受影响了吗？今天有居家办公吗？](http://www.play.hengshemaoyi.cn/xiju/8628967.htm)
-- [为何我对一户建模式或豪斯模式的居住方式不感兴趣？](http://www.daogukj.com/0493771)
-- [打骂乡村兽医的后果？？？](http://www.movie.hkepx.cn/xiju/2801529.htm)
-- [“上海女子在台风中坠楼”不实](http://www.movie.hkepx.cn/xiju/0380313.htm)
-- [如何看待钟睒睒称电商平台把城市的很多零售商都「杀」光了，并呼吁限制其能力？电商平台究竟带来了哪些影响？](http://www.movie.hkepx.cn/xiju/7224535.htm)
-- [外国年轻人正努力活成中国人](http://www.daogukj.com/xzonyqff/)
-- [武汉司门口黄鹤楼天桥市容管理人员与占道摊贩发生激烈肢体冲突，3 人被刑拘，有哪些信息值得关注？](http://www.daogukj.com/orjovtkz/)
-- [5万元以下微型代步车集体遇冷](http://www.daogukj.com/ehivavka/)
-- [C罗婚礼闹乌龙](http://www.play.hengshemaoyi.cn/kongbu/7217009.htm)
-- [钟睒睒：必须限制电商平台权利](http://www.movie.hkepx.cn/xiju/8835780.htm)
-- [易烊千玺走红毯前吃什么了](http://www.movie.hkepx.cn/xiju/9038119.htm)
-- [导演看到沈腾老年的样子瞬间落泪](http://www.daogukj.com/oiypmejy/)
-- [钱塘江江滩现“巨型羽毛”](http://www.daogukj.com/8015684)
-- [评分8.7！我们奥特曼有救啦！提欧奥特曼开播吐槽！](http://www.movie.hkepx.cn/movie/3984102.htm)
-- [为什么程序员大多都拥抱AI，而音乐人却抗拒并隔离AI音乐池？](http://www.daogukj.com/6250249)
-- [甜蜜的西瓜为啥叫“报恩水果”](http://www.daogukj.com/2025214)
-- [为什么现在的文字都是横排的，而不像古代一样竖着写？](http://www.daogukj.com/5970893)
-- [在东方明珠玩100人躲猫猫！奖金10万元](http://www.play.hengshemaoyi.cn/xiju/3897460.htm)
-- [山西长治局地降水将超250毫米](http://www.daogukj.com/fmnczhof/)
-- [沈腾400亿票房中国影史第一人](http://www.play.hengshemaoyi.cn/xiju/4734100.htm)
-- [【重大医疗事故】日本一医院错把患者脑部当肿瘤切除，手术后脑干被切除，脑肿瘤完好无损。](http://www.daogukj.com/kqpwtmnb/)
-- [DeepSeek会偷偷给人取外号](http://www.daogukj.com/vnlihxyn/)
-- [乘客讲述可乐爆瓶击伤空乘眼部](http://www.play.hengshemaoyi.cn/kongbu/4489916.htm)
-- [4.2平卫生间补漏注胶花1.55万](http://www.movie.hkepx.cn/xiju/4834258.htm)
-- [00 后开发者现身说法，抓住HarmonyOS 7新机遇！](http://www.movie.hkepx.cn/movie/4108451.htm)
-- [麦积山景区看完所有石窟需2000元，景区称特窟受特别保护，该定价合理吗？保护文物与公众权益有无更优解？](http://www.play.hengshemaoyi.cn/kongbu/9792272.htm)
-- [大疆错失宇树](http://www.daogukj.com/gzwgwxon/)
-- [天蚕土豆新书《神通者》到底如何？](http://www.movie.hkepx.cn/xiju/9996146.htm)
-- [👊一 拳 超 人👊](http://www.movie.hkepx.cn/xiju/4008832.htm)
-- [河南近3天局部有特大暴雨](http://www.daogukj.com/yrmlvnvb/)
-- [2026和平精英刺激之夜完整高清回放](http://www.movie.hkepx.cn/movie/2452830.htm)
-- [发烧梗](http://www.movie.hkepx.cn/movie/6358459.htm)
-- [台退将：大陆耐心有限终将不统而统](http://www.play.hengshemaoyi.cn/kongbu/9664292.htm)
-- [票房持续走低，《蜘蛛侠：崭新之日》票房为何不见首日辉煌？](http://www.play.hengshemaoyi.cn/kongbu/8762273.htm)
-- [伊朗最高领袖与总统会谈](http://www.movie.hkepx.cn/movie/0811470.htm)
-- [黄山大量游客滞留风雨里等数小时](http://www.daogukj.com/7601488)
-- [[我的世界怪物学院] 逗逗小乐魂](http://www.daogukj.com/lmhgfutz/)
-- [律师谈贾冰私人饭局被偷拍](http://www.play.hengshemaoyi.cn/kongbu/6263764.htm)
-- [演员表演期间裙摆着火 景区回应](http://www.daogukj.com/4937221)
-- [网民AI造谣“西平灭门案”被行拘](http://www.play.hengshemaoyi.cn/kongbu/3765846.htm)
-- [这是”轨道炮“陷阱！](http://www.play.hengshemaoyi.cn/kongbu/8405143.htm)
-- [第二代490牛发动机完成百发卫星任务](http://www.movie.hkepx.cn/movie/8789536.htm)
-- [加沙约14万栋建筑被完全摧毁](http://www.play.hengshemaoyi.cn/kongbu/5405888.htm)
-- [这些中国风热词上新了](http://www.daogukj.com/6912318)
-- [赵心童有望月底登顶世界第一](http://www.movie.hkepx.cn/xiju/4818547.htm)
-- [【独家】《记忆管理局》第4集 燃灯与灰火【8月国创】](http://www.movie.hkepx.cn/xiju/2301829.htm)
-- [横滨女队三人围剿也没能阻挡张本美和夺冠，你怎么看?](http://www.play.hengshemaoyi.cn/xiju/0829282.htm)
-- [我们需要更多异头团建ദ്ദി ꙾ ꒳ ꙾ )✧](http://www.movie.hkepx.cn/xiju/2953119.htm)
+- [“老戏骨”秦焰去世](http://www.movie.hkepx.cn/movie/4451376.htm)
+- [原来90后这么小众](http://www.play.hengshemaoyi.cn/kongbu/7965655.htm)
+- [网传数据显示广东人吃肉量是山西的4倍以上，是真是假？](http://www.play.hengshemaoyi.cn/xiju/8628967.htm)
+- [上海武康大楼真成“船”了](http://www.daogukj.com/0493771)
+- [多位大疆员工离职后创业成功](http://www.movie.hkepx.cn/xiju/2801529.htm)
+- [限时返场《畅安青岛》云泥之别](http://www.movie.hkepx.cn/xiju/0380313.htm)
+- [苏州河水抢排翻泄至黄浦江](http://www.movie.hkepx.cn/xiju/7224535.htm)
+- [😨"后室里的乌鲁鲁"😰](http://www.daogukj.com/xzonyqff/)
+- [假如全球所有人同时获得三个选项：立刻变成祖国人、十分钟后变成超人、十五分钟后变成曼哈顿博士，怎么选？](http://www.daogukj.com/orjovtkz/)
+- [A股“股王”大跌](http://www.daogukj.com/ehivavka/)
+- [演员秦焰去世](http://www.play.hengshemaoyi.cn/kongbu/7217009.htm)
+- [演员秦焰去世 曾出演《狂飙》](http://www.movie.hkepx.cn/xiju/8835780.htm)
+- [女子瘫痪10年重新站起称爱是奇迹](http://www.movie.hkepx.cn/xiju/9038119.htm)
+- [啥都能修的异世界修理铺|第二集 我的顾客被蜘蛛咬了？能修！](http://www.daogukj.com/oiypmejy/)
+- [只是一个低脂的校园采访而已](http://www.daogukj.com/8015684)
+- [《欢迎来龙餐馆》为啥不叫《欢迎来到龙餐馆》？](http://www.movie.hkepx.cn/movie/3984102.htm)
+- [台风「白海豚」疯狂倒水，上海内涝严重，地铁多条线路停运，你的出行和生活受影响了吗？今天有居家办公吗？](http://www.daogukj.com/6250249)
+- [“上海女子在台风中坠楼”不实](http://www.daogukj.com/2025214)
+- [发烧梗](http://www.daogukj.com/5970893)
+- [横滨女队三人围剿也没能阻挡张本美和夺冠，是哪里出了问题?](http://www.play.hengshemaoyi.cn/xiju/3897460.htm)
+- [胚胎案妻子最新回应暂不离婚](http://www.daogukj.com/fmnczhof/)
+- [百花奖好多高定](http://www.play.hengshemaoyi.cn/xiju/4734100.htm)
+- [特斯拉将建史上最大芯片厂，这对全球芯片产业有何影响？](http://www.daogukj.com/kqpwtmnb/)
+- [四代同框](http://www.daogukj.com/vnlihxyn/)
+- [连胜越高，对局反而简单了，这都是我努力的结果](http://www.play.hengshemaoyi.cn/kongbu/4489916.htm)
+- [不打游戏这件事害惨了我](http://www.movie.hkepx.cn/xiju/4834258.htm)
+- [《人民の少爷》](http://www.movie.hkepx.cn/movie/4108451.htm)
+- [同济大学取消教师长期聘任，科研教职岗位面临更大的压力，为什么行政工作相对更简单反而没有这种不稳定性？](http://www.play.hengshemaoyi.cn/kongbu/9792272.htm)
+- [白海豚突然大拐弯](http://www.daogukj.com/gzwgwxon/)
+- [母子三人想去郴州结果到了彬州](http://www.movie.hkepx.cn/xiju/9996146.htm)
+- [自学五天做出来的神人游戏](http://www.movie.hkepx.cn/xiju/4008832.htm)
+- [立秋后突然就不热了](http://www.daogukj.com/yrmlvnvb/)
+- [如何评价《绝区零》3.1版本拍照活动「咔嚓！焦点对决！」？大家都拍出了哪些有意思的照片？](http://www.movie.hkepx.cn/movie/2452830.htm)
+- [山海兽医 第三集](http://www.movie.hkepx.cn/movie/6358459.htm)
+- [台风致上海严重内涝](http://www.play.hengshemaoyi.cn/kongbu/9664292.htm)
+- [货主曝价值158万黑胡椒存冷库消失](http://www.play.hengshemaoyi.cn/kongbu/8762273.htm)
+- [第一批用AI租房的受益者出现了](http://www.movie.hkepx.cn/movie/0811470.htm)
+- [在东方明珠玩100人躲猫猫！奖金10万元](http://www.daogukj.com/7601488)
+- [硬盘、内存价格还会降回去吗？](http://www.daogukj.com/lmhgfutz/)
+- [寿司郎误将已付款顾客当逃单报警](http://www.play.hengshemaoyi.cn/kongbu/6263764.htm)
+- [王从天降](http://www.daogukj.com/4937221)
+- [偶像来了 重启回归](http://www.play.hengshemaoyi.cn/kongbu/3765846.htm)
+- [假如你是一个顶尖电竞俱乐部管理人，在俱乐部有 4 个明星选手的前提下，你还会招募 Bin 选手吗？](http://www.play.hengshemaoyi.cn/kongbu/8405143.htm)
+- [校园爸临](http://www.movie.hkepx.cn/movie/8789536.htm)
+- [10年后发现喜被里红鸡蛋2个仍完好](http://www.play.hengshemaoyi.cn/kongbu/5405888.htm)
+- [APEC峰会倒计时100天](http://www.daogukj.com/6912318)
+- [独闯南太行失联14天的女子已找到](http://www.movie.hkepx.cn/xiju/4818547.htm)
+- [韩信为什么连让他钻裤裆的恶霸都委以重任，但是却拿百钱羞辱让他吃大半年白饭的亭长呢？](http://www.movie.hkepx.cn/xiju/2301829.htm)
+- [武契奇：欧洲已处于大战边缘](http://www.play.hengshemaoyi.cn/xiju/0829282.htm)
+- [票房持续走低，《蜘蛛侠：崭新之日》票房为何不见首日辉煌？](http://www.movie.hkepx.cn/xiju/2953119.htm)
 
 </details>
 
 ## 原始来源
 
-- [「白海豚」减弱为热带风暴，范围覆盖整个华东，浙皖等地局地有特大暴雨，目前情况如何？你那边雨势怎么样？](https://www.zhihu.com/question/2069434187044451136)
+- [台风“白海豚”移入江西](https://www.toutiao.com/trending/7671221764336369727/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227671221764336369727%22%2C%22hot_board_impr_id%22%3A%22202608101801564815D463D6B1C0D3C7E2%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 03ebf82cf007cc657d37 -->
+<!-- content-fingerprint: 58e68efeef94429e788e -->
