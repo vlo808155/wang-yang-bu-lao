@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 国务院免去罗文国家市监总局局长职务
+# 胖东来为何宁愿关店也不妥协
 
-> 来源：今日头条热榜 · 排名：第 14 位 · 热度：8858944 · 更新：2026-08-11T05:51:23+08:00
+> 来源：今日头条热榜 · 排名：第 14 位 · 热度：9036994 · 分类：热门事件 · 更新：2026-08-11T06:22:14+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“国务院免去罗文国家市监总局局长职务”位列第 14 位，公开热度指标为 8858944。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“胖东来为何宁愿关店也不妥协”位列第 14 位，公开热度指标为 9036994，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,22 +14,22 @@
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
 
 ## 相关热点
 
-- [韩信为什么连让他钻裤裆的恶霸都委以重任，但是却拿百钱羞辱让他吃大半年白饭的亭长呢？](xue-fu-wu-che.md)
+- [多地高分生扎堆填报「3+4」中本贯通，为什么会这样？中本贯通有哪些优势？](xue-fu-wu-che.md)
 - [假面骑士祥子 01.沉默的骑士](bo-wen-qiang-ji.md)
-- [公安部通报：抓获犯罪嫌疑人8200余名](wen-gu-zhi-xin.md)
-- [刘耀文看到易烊千玺拿影帝的反应](ju-yi-fan-san.md)
+- [母亲救溺水女儿 两人均被海浪卷走](wen-gu-zhi-xin.md)
+- [竟然不是高叶](ju-yi-fan-san.md)
 
 ## 站内推荐
 
 - [台风白海豚深入内陆 哪里的风雨最猛](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
 - [高铁双人座被免票儿童挤成3人座](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [沈腾最大的奖 微博King](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [刘耀文看到易烊千玺拿影帝的反应](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
 - [易烊千玺金鸡百花双料影帝](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [数名男子捞起大鱼就跑 公园已报警](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [小孩哥脱口而出解放军是全球最帅的人](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
@@ -50,49 +50,49 @@
 - [五角大楼再公布UFO视频](http://www.play.hengshemaoyi.cn/xiju/3249372.htm)
 - [带张伟丽姐自律的一天！](http://www.movie.hkepx.cn/xiju/6239174.htm)
 - [无冕影帝](http://www.movie.hkepx.cn/xiju/9361968.htm)
-- [卫诗雅百花奖最佳女主](http://www.play.hengshemaoyi.cn/xiju/0141985.htm)
+- [原来去茶卡盐湖要穿鞋套](http://www.play.hengshemaoyi.cn/xiju/0141985.htm)
 - [假面骑士祥子 01.沉默的骑士](http://www.daogukj.com/3639582)
-- [数名男子捞起大鱼就跑 公园已报警](http://www.daogukj.com/olcgjzxy/)
-- [沈腾最大的奖 微博King](http://www.play.hengshemaoyi.cn/xiju/4459303.htm)
+- [小孩哥脱口而出解放军是全球最帅的人](http://www.daogukj.com/olcgjzxy/)
+- [刘耀文看到易烊千玺拿影帝的反应](http://www.play.hengshemaoyi.cn/xiju/4459303.htm)
 - [伯克希尔Q2净利润256.67亿美元，时隔3年首次净买入股票，现金储备降至3655亿美元，如何解读？](http://www.daogukj.com/ogctigmk/)
 - [淀粉：碳基压缩科技](http://www.play.hengshemaoyi.cn/kongbu/4101569.htm)
 - [大理百元豪车租赁乱象调查：186元租的保时捷是重大事故车，游客拒买高价保险遭敲诈【探照灯计划】](http://www.play.hengshemaoyi.cn/kongbu/1623587.htm)
 - [【动漫杂谈】120s带你速通《咒术回战》的暗线内核](http://www.movie.hkepx.cn/xiju/2974024.htm)
 - [河南平顶山一貌似张雪峰的烧烤哥在网上火了，你有哪些感慨和触动？](http://www.daogukj.com/qduaipey/)
 - [流浪](http://www.play.hengshemaoyi.cn/xiju/8227935.htm)
-- [韩信为什么连让他钻裤裆的恶霸都委以重任，但是却拿百钱羞辱让他吃大半年白饭的亭长呢？](http://www.play.hengshemaoyi.cn/kongbu/4160027.htm)
+- [多地高分生扎堆填报「3+4」中本贯通，为什么会这样？中本贯通有哪些优势？](http://www.play.hengshemaoyi.cn/kongbu/4160027.htm)
 - [实拍哥伦比亚地震：房屋边晃边塌](http://www.play.hengshemaoyi.cn/kongbu/9952478.htm)
 - [于东来回应关闭胖东来生活广场店，因早年租约失误造成租户租金失衡，门店盈利上亿仍闭店，如何看待他的选择？](http://www.movie.hkepx.cn/xiju/1449526.htm)
-- [竟然不是高叶](http://www.play.hengshemaoyi.cn/kongbu/5233867.htm)
+- [沈腾最大的奖 微博King](http://www.play.hengshemaoyi.cn/kongbu/5233867.htm)
 - [易烊千玺金鸡百花双料影帝](http://www.daogukj.com/foorujpq/)
 - [“温州一建筑被台风吹塌”不实](http://www.movie.hkepx.cn/xiju/1941094.htm)
-- [母子三人想去郴州结果到了彬州](http://www.movie.hkepx.cn/movie/4257941.htm)
+- [导演看到沈腾老年的样子瞬间落泪](http://www.movie.hkepx.cn/movie/4257941.htm)
 - [浙江温州一建筑被台风吹塌不实](http://www.play.hengshemaoyi.cn/kongbu/5339935.htm)
 - [2026和平精英刺激之夜完整高清回放](http://www.daogukj.com/ailrualr/)
 - [沈腾新片《欢迎来龙餐馆》点映口碑爆棚，如何评价沈腾此番演技？喜剧演员要打破观众的固有印象难度在哪？](http://www.play.hengshemaoyi.cn/xiju/5385609.htm)
-- [这位妇科医生的科普有点“皮”](http://www.movie.hkepx.cn/movie/0789293.htm)
-- [医保个人账户里的钱怎么用才不浪费](http://www.movie.hkepx.cn/xiju/4446039.htm)
+- [公安部通报：抓获犯罪嫌疑人8200余名](http://www.movie.hkepx.cn/movie/0789293.htm)
+- [印度为何突然在经济上对华开绿灯](http://www.movie.hkepx.cn/xiju/4446039.htm)
 - [王骁获百花奖最佳男配角](http://www.play.hengshemaoyi.cn/kongbu/7816841.htm)
 - [王宝强首次入围百花奖却以0票收场](http://www.play.hengshemaoyi.cn/kongbu/9613360.htm)
-- [胖东来为何宁愿关店也不妥协](http://www.daogukj.com/cdrpkogq/)
+- [第一次见有人撸台风羊毛](http://www.daogukj.com/cdrpkogq/)
 - [我国民营企业创新动能持续增强](http://www.movie.hkepx.cn/movie/2665746.htm)
 - [大鹏获百花奖最佳导演](http://www.daogukj.com/zobrwsba/)
 - [小小的我导演0票](http://www.daogukj.com/0656524)
 - [百花奖获奖名单](http://www.movie.hkepx.cn/movie/2963324.htm)
 - [我们需要更多异头团建ദ്ദി ꙾ ꒳ ꙾ )✧](http://www.daogukj.com/oapvfaci/)
-- [二选一的情况下，上大学建议买笔记本电脑还是平板？](http://www.daogukj.com/1720245)
+- [同济大学取消教师长期聘任，科研教职岗位面临更大的压力，为什么行政工作相对更简单反而没有这种不稳定性？](http://www.daogukj.com/1720245)
 - [适度的「懒」对身体是不是一种保护机制？](http://www.play.hengshemaoyi.cn/xiju/2000340.htm)
 - [【萌黄一槽】神秘面具男[百战]全技能爆料！以诡谲的手段穿梭虚实！](http://www.play.hengshemaoyi.cn/kongbu/4181508.htm)
-- [猪肝怎么炒出来嫩？](http://www.play.hengshemaoyi.cn/kongbu/7488097.htm)
+- [如果你只能传送一次1KB的数据到三年前的自己面前，你会传什么？](http://www.play.hengshemaoyi.cn/kongbu/7488097.htm)
 - [不打游戏这件事害惨了我](http://www.play.hengshemaoyi.cn/xiju/5445185.htm)
-- [喜欢 Vibe Coding，还算喜欢编程吗？](http://www.movie.hkepx.cn/movie/7058284.htm)
+- [小说里的人物要具有神性，可以怎么写？](http://www.movie.hkepx.cn/movie/7058284.htm)
 
 </details>
 
 ## 原始来源
 
-- [国务院免去罗文国家市监总局局长职务](https://www.toutiao.com/trending/7672330009679577129/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%220%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227672330009679577129%22%2C%22hot_board_impr_id%22%3A%2220260811055121190E2C2333EE89A795DB%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [胖东来为何宁愿关店也不妥协](https://www.toutiao.com/trending/7672353653088325161/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2213%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227672353653088325161%22%2C%22hot_board_impr_id%22%3A%2220260811062212E1BE06F560EC353252AE%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f670619becb4105609c0 -->
+<!-- content-fingerprint: 71fec3c8c7e2bdf9620c -->
