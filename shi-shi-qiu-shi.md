@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 天然气公司要求壁挂炉满8年必须换
+# 关闭年赚1亿的店 胖东来把桌子掀了
 
-> 来源：今日头条热榜 · 排名：第 17 位 · 热度：16081821 · 更新：2026-08-13T14:00:40+08:00
+> 来源：百度热搜 · 排名：第 16 位 · 热度：6285543 · 更新：2026-08-13T15:46:00+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“天然气公司要求壁挂炉满8年必须换”位列第 17 位，公开热度指标为 16081821。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“关闭年赚1亿的店 胖东来把桌子掀了”位列第 16 位，公开热度指标为 6285543。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：8月7日，胖东来创始人于东来在直播里宣布，许昌生活广场店将于2026年12月永久关闭。关店并不是因为生意不好，恰恰相反这家店很赚钱，年销售额约20亿元，年利润超过1亿元。8月9日，于东来进一步在社交平台发文解释，因2015年租约合同未统一签订导致个别租户租金失控，合同到期后不再续约。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [媒体曝茶颜悦色入职培训强制收手机、被子叠「豆腐块」，具体什么情况？企业的行为侵犯员工权益了吗？](chi-zhi-yi-heng.md)
-- [全程随意发挥挑战，感到尴尬奖励1000](jian-ren-bu-ba.md)
-- [沈腾感谢榜一大姐马丽](zi-qiang-bu-xi.md)
-- [郭德纲 改编红歌](fen-fa-tu-qiang.md)
+- [肖战李沁五搭只有狼殿下有吻戏](chi-zhi-yi-heng.md)
+- [银行能办结婚证了](jian-ren-bu-ba.md)
+- [《寄生虫》里的豪宅，看起来没什么东西，豪在哪里？](zi-qiang-bu-xi.md)
+- [【毕导】吵翻天了！飞机放在跑步机上，到底能不能起飞？](fen-fa-tu-qiang.md)
 
 ## 站内推荐
 
-- [普京首次登上俄日争议岛屿](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [学生兼职送外卖一个月倒欠公司200多](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [暑期网上冲浪 这份安全提示请收好](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [美国渣男王水牛](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [如何评价 Grok4.6，有哪些亮点？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [手机价格全线暴涨](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [“两弹一星”元勋王希季逝世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [爷爷用象鼻虫做风车逗孙女](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [普京称俄日和平条约谈判僵局责任在日方](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [A股尾盘突发跳水 发生了什么](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [网友爆料科技圈电商圈的大厂拒收阿里系中高层，是真的吗？反映了什么问题？他们为什么被称为互联网藤壶？](http://www.movie.hkepx.cn/xiju/7278435.htm)
-- [银行能办结婚证了](http://www.daogukj.com/eaozjceu/)
-- [《西游记》中猪八戒和沙和尚到底是真的弱还是在摸鱼？](http://www.daogukj.com/xtfvegvn/)
+- [为什么过去都说鱼翅和鲍鱼是顶级菜肴，而现在却很少人提了？](http://www.movie.hkepx.cn/xiju/7278435.htm)
+- [【原神一条龙全收集】至冬7.0(成就数/冰神瞳/摩拉/影生翼滴/枪械蓝图)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.daogukj.com/eaozjceu/)
+- [学生兼职送外卖一个月倒欠公司200多](http://www.daogukj.com/xtfvegvn/)
 - [中共中央 全国人大常委会 国务院 全国政协讣告 朱镕基同志逝世](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
-- [“两弹一星”元勋王希季逝世](http://www.daogukj.com/fkuewdzb/)
-- [飞龙在天！](http://www.movie.hkepx.cn/xiju/4307844.htm)
-- [【网络热门AI鉴定】AI版野兽先生，居然这么离谱?如何做一个AI版挑战视频?](http://www.daogukj.com/8791893)
-- [深切缅怀！朱总理一路走好！](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
-- [姜潮麦迪娜新疆婚礼含金量太高了](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
-- [全程随意发挥挑战，感到尴尬奖励1000](http://www.daogukj.com/2165140)
-- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
-- [歌手节目组联系耳帝](http://www.movie.hkepx.cn/xiju/1440611.htm)
-- [普京首次登上俄日争议岛屿](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
-- [中国种植的土地那么大，为什么感觉东北大米比较出名又好吃？](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
+- [普京首次登上俄日争议岛屿](http://www.daogukj.com/fkuewdzb/)
+- [中国印尼首次台岛以东联演有何深意](http://www.movie.hkepx.cn/xiju/4307844.htm)
+- [银行能办结婚证了，天津开放首个银行网点婚姻登记处，这事只是「多一个领证地」这么简单吗？银行有什么盘算？](http://www.daogukj.com/8791893)
+- [姜潮麦迪娜新疆婚礼含金量太高了](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
+- [威少（维斯布鲁克）宣布退役，结束长达 18 年的 NBA 生涯，如何评价他的职业生涯？](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
+- [银行能办结婚证了](http://www.daogukj.com/2165140)
+- [重罚台风请假员工公司多年0人参保](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
+- [gap一年会失去什么](http://www.movie.hkepx.cn/xiju/1440611.htm)
+- [手机价格全线暴涨](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
+- [医保局公布住院人次排名第一的疾病](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
 - [新能源汽车迎来两个“首次”突破](http://www.daogukj.com/9837121)
-- [为见24岁儿子最后一面母亲报警赶高铁](http://www.movie.hkepx.cn/movie/5334415.htm)
-- [职场人嘴替！曹国舅出场台词火出圈](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
-- [骑行辅警被刺死其父亲发声](http://www.movie.hkepx.cn/movie/2391374.htm)
-- [美国渣男王水牛](http://www.movie.hkepx.cn/movie/4276791.htm)
-- [男子双腿被绞断 20个月后恢复行走](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
-- [学生兼职送外卖一个月倒欠公司200多](http://www.daogukj.com/6612016)
-- [云南大象睡了一地](http://www.movie.hkepx.cn/movie/4045624.htm)
-- [货车停服务区过夜绑带被割一半](http://www.daogukj.com/9217972)
+- [羊群逆行上省道遭货车猛烈撞击](http://www.movie.hkepx.cn/movie/5334415.htm)
+- [胖东来许昌老店关闭周边商户发声](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
+- [这些散落在不同作品里的日系旋律，早已不止是耳边流淌的曲调。](http://www.movie.hkepx.cn/movie/2391374.htm)
+- [普京称俄日和平条约谈判僵局责任在日方](http://www.movie.hkepx.cn/movie/4276791.htm)
+- [河南百年水位标识铁水牛被洪水淹没](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
+- [“两弹一星”元勋王希季逝世](http://www.daogukj.com/6612016)
+- [普京首登争议岛屿 对日释放什么信号](http://www.movie.hkepx.cn/movie/4045624.htm)
+- [日本“草莓仙人”挑衅中国人](http://www.daogukj.com/9217972)
 - [《影之刃零》预购开启，11分钟实机预告公开](http://www.daogukj.com/eecjrkxr/)
-- [如何评价《影之刃零》开启预售之后迅速荣登全球Steam畅销榜第一名？](http://www.movie.hkepx.cn/xiju/0864553.htm)
-- [谁在给可乐“判死刑”](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
+- [苹果被曝正测试长鑫存储芯片，将用于在中国市场销售的设备，双方最终达成合作的可能性有多大？](http://www.movie.hkepx.cn/xiju/0864553.htm)
+- [河南北汝河段民堤溃口](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
 - [朱镕基同志逝世](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
-- [造谣网约车司机猝死 两人被罚](http://www.daogukj.com/chnejvmg/)
-- [中国印尼首次台岛以东联演有何深意](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
-- [臣妾要线上告发熹贵妃](http://www.daogukj.com/dmyshqkp/)
-- [热烈欢迎方芳老师👏 来看驰骋台湾大陆影视综近60年的芳姐平时都会吃什么玩什么买什么呢？（这期听到好多前辈的名字哦](http://www.daogukj.com/hxjdxwxy/)
-- [恋与深空](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
-- [邹市明45岁重返拳击赛场](http://www.movie.hkepx.cn/movie/5093289.htm)
-- [峰哥5000元请邹市明打一场](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
-- [曝曾辉送考人不是韩雨彤了](http://www.movie.hkepx.cn/movie/7746903.htm)
-- [百米赛道高难度闯关、只有上过的才知道含金量有多高！](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
+- [这视频等了五年！](http://www.daogukj.com/chnejvmg/)
+- [当年为加入 WTO 做出的让步，今天看来到底有多值？](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
+- [歌手节目组联系耳帝](http://www.daogukj.com/dmyshqkp/)
+- [五公伴手礼](http://www.daogukj.com/hxjdxwxy/)
+- [河流地貌](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
+- [免费领鸡蛋还能抽奖？警惕涉老诈骗](http://www.movie.hkepx.cn/movie/5093289.htm)
+- [唐朝女人头上插那么多金钗步摇，走路不累吗，她们到底图什么？](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
+- [女子花8万做试管被推进简易房手术](http://www.movie.hkepx.cn/movie/7746903.htm)
+- [《顽童戏老叟》](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
 - [新规：禁止在居民楼开油烟餐饮](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
-- [如何评价 Grok4.6，有哪些亮点？](http://www.daogukj.com/2551047)
-- [如何看待郭德纲演出中即兴篡改经典红歌《弹起我心爱的土琵琶》，因未提前报备，遭武汉文旅立案调查？](http://www.daogukj.com/7700423)
-- [李雪健已经完全听不见了](http://www.daogukj.com/0062100)
-- [李雪健已完全听不见](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
-- [为纪念逝去的小狗创作的歌曲，却戳中无数人的内心，火了二十多年](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
-- [山西一医院实习护士晒患者隐私照，院方称将严肃处理，具体怎么回事？为什么这类事时有发生，问题出在哪？](http://www.daogukj.com/qzcflnda/)
-- [如何评价荣耀发布的全球首款机器人手机 Robot Phone，有哪些亮点和槽点？](http://www.movie.hkepx.cn/movie/1098440.htm)
-- [郭德纲 改编红歌](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
-- [曝张凌赫孙千刺棠领衔主演](http://www.daogukj.com/2428628)
-- [《寄生虫》里的豪宅，看起来没什么东西，豪在哪里？](http://www.daogukj.com/uftxwefl/)
-- [男子欠31万不还把百万货款转母亲账户](http://www.movie.hkepx.cn/movie/6056833.htm)
-- [养了三四年的猫，不想养了，送人没人要，养着又很烦心，该怎么办？](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
-- [爷爷用象鼻虫做风车逗孙女](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
+- [A股尾盘突发跳水 发生了什么](http://www.daogukj.com/2551047)
+- [高中牲自制蛛丝发射器（一）](http://www.daogukj.com/7700423)
+- [李雪健已完全听不见](http://www.daogukj.com/0062100)
+- [百米赛道高难度闯关、只有上过的才知道含金量有多高！](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
+- [金鹰奖女主提名](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
+- [普京：必须确保俄所有边境和领土安全](http://www.daogukj.com/qzcflnda/)
+- [手机壳 偷拍](http://www.movie.hkepx.cn/movie/1098440.htm)
+- [【毕导】吵翻天了！飞机放在跑步机上，到底能不能起飞？](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
+- [网传《欢迎来龙餐馆》男主角原定为徐峥，消息靠谱吗？如果是徐峥来演的话你认为效果会比沈腾好吗？](http://www.daogukj.com/2428628)
+- [🔥全看完的可以封神了！三角洲AI夏日晚会🔥](http://www.daogukj.com/uftxwefl/)
+- [沈腾最新的电影，欢迎来龙餐馆，你的感受如何？](http://www.movie.hkepx.cn/movie/6056833.htm)
+- [病毒吧吧主 人民的喜羊羊](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
+- [寺庙售卖开光奥特曼？当地回应](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
 
 </details>
 
 ## 原始来源
 
-- [天然气公司要求壁挂炉满8年必须换](https://www.toutiao.com/trending/7673115215432515594/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%228%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227673115215432515594%22%2C%22hot_board_impr_id%22%3A%22202608131400387F995870AC0A7C127BC1%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [关闭年赚1亿的店 胖东来把桌子掀了](https://www.baidu.com/s?wd=%E5%85%B3%E9%97%AD%E5%B9%B4%E8%B5%9A1%E4%BA%BF%E7%9A%84%E5%BA%97+%E8%83%96%E4%B8%9C%E6%9D%A5%E6%8A%8A%E6%A1%8C%E5%AD%90%E6%8E%80%E4%BA%86&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 77e00fb19aff6138d427 -->
+<!-- content-fingerprint: fb849b7b238857f86221 -->
