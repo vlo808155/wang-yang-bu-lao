@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 剑桥最年轻非裔教授辞职后被发现死亡
+# 儿科韩医生事件，会不会造成全国的防御性医疗的开端和大面积的医护离职潮爆发？未来儿科医生的数量腰斩？
 
-> 来源：百度热搜 · 排名：第 20 位 · 热度：5891289 · 更新：2026-08-15T19:28:15+08:00
+> 来源：知乎热榜 · 排名：第 16 位 · 热度：179 万热度 · 分类：问答 · 更新：2026-08-15T19:48:34+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“剑桥最年轻非裔教授辞职后被发现死亡”位列第 20 位，公开热度指标为 5891289。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“儿科韩医生事件，会不会造成全国的防御性医疗的开端和大面积的医护离职潮爆发？未来儿科医生的数量腰斩？”位列第 16 位，公开热度指标为 179 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：剑桥大学最年轻非裔教授杰森·阿迪（Jason Arday）因抄袭争议辞职后，于当地时间8月14日下午在伦敦南部巴特西的住所内被发现死亡，警方初步判定为意外。阿迪2023年以37岁成为剑桥史上最年轻非裔教授，其成长经历（自闭症、18岁学会读写）曾广受关注，但近期深陷博士论文抄袭及慈善成就造假风波。
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [oner一语成谶](chi-zhi-yi-heng.md)
-- [原来《恭喜恭喜》是庆祝抗战胜利](jian-ren-bu-ba.md)
-- [好消息：有鼠鼠！坏消息：鼠鼠都算好消息了....](zi-qiang-bu-xi.md)
-- [对付骚扰电话新思路：“婴语”对线](fen-fa-tu-qiang.md)
+- [“央妈这段运镜太有手法了，完全拍出了什么叫意气风发！”](chi-zhi-yi-heng.md)
+- [高市早苗遥拜靖国神社](jian-ren-bu-ba.md)
+- [杜女士你的身份证在邢昭林这儿](zi-qiang-bu-xi.md)
+- [王曼昱晋级女单四强](fen-fa-tu-qiang.md)
 
 ## 站内推荐
 
-- [胖东来 刑释人员](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [河南周口溃口封堵现场现“三蹦子”](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [高市早苗遥拜靖国神社](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [比利时学生挖到价值900万欧元金库](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [美防长不满陆军预备军官选拔门槛下降](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [旺旺 重大经营危机](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [我们的少年时代2有36集](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [公司空调已经做到这种程度了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [于东来称胖东来首批刑释职工30人无一离职，如何评价这一招聘计划的实际效果？其他企业能效仿吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [这是我经历过的最恐怖的“形影不离”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [保时捷溜车2员工拼命阻拦获加薪](http://www.movie.hkepx.cn/xiju/7278435.htm)
-- [原来活体器官运输不是专门的飞机](http://www.daogukj.com/eaozjceu/)
-- [这会不会有点太刺激了？！](http://www.daogukj.com/xtfvegvn/)
+- [日本人战斗分队在乌成立 与俄军作战](http://www.movie.hkepx.cn/xiju/7278435.htm)
+- [《欢迎来龙餐馆》里的餐厅老板扎伊德在妻女被杀后，为什么不加入政府军或其他组织，而是加入恐怖分子阵营？](http://www.daogukj.com/eaozjceu/)
+- [邓超给初代跑男合照签名](http://www.daogukj.com/xtfvegvn/)
 - [谁杀死了驾校](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
-- [大树疼痛的声音可以听见了](http://www.daogukj.com/fkuewdzb/)
-- [第6集丨“各怀心事？”](http://www.movie.hkepx.cn/xiju/4307844.htm)
-- [山东省检察院原检察长吴鹏飞逝世](http://www.daogukj.com/8791893)
-- [王俊凯演唱会](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
-- [家庭的复杂](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
-- [原来《恭喜恭喜》是庆祝抗战胜利](http://www.daogukj.com/2165140)
-- [张婧仪 怎么会有人睡觉也这么好看](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
-- [那年盖亚的导演选择了弹幕最多的打法！](http://www.movie.hkepx.cn/xiju/1440611.htm)
-- [胖东来 刑释人员](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
-- [邓超给初代跑男合照签名](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
-- [推动经济持续向新向优向好发展](http://www.daogukj.com/9837121)
-- [成都首个“无蚊街区”来了](http://www.movie.hkepx.cn/movie/5334415.htm)
-- [都什么年代，谁还渡传统通天河？！！](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
-- [【我在现代当幽差】EP01 大哥，你阳寿未尽啊【UP动画】](http://www.movie.hkepx.cn/movie/2391374.htm)
-- [比利时学生挖到价值900万欧元金库](http://www.movie.hkepx.cn/movie/4276791.htm)
-- [什么时候告白啊！！！！！](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
-- [河南周口溃口封堵现场现“三蹦子”](http://www.daogukj.com/6612016)
-- [骗儿子进戒网瘾机构母亲称自己被骗](http://www.movie.hkepx.cn/movie/4045624.htm)
-- [老人看病2天被拔21颗牙](http://www.daogukj.com/9217972)
-- [旺旺 配料表](http://www.daogukj.com/eecjrkxr/)
-- [哆啦A梦和大雄开心大喊：日本战败了](http://www.movie.hkepx.cn/xiju/0864553.htm)
-- [游客到上海参观四行仓库抗战旧址](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
-- [旺旺 重大经营危机](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
-- [老王出息了，今天带家人们一起探班龙餐馆的幕后~](http://www.daogukj.com/chnejvmg/)
-- [【千字拆解】全网最细解读《牛来》！有史最烂国产动漫！失眠必看哄，小孩必备！](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
-- [isa聊天记录](http://www.daogukj.com/dmyshqkp/)
-- [手机涨得快买不起了](http://www.daogukj.com/hxjdxwxy/)
-- [【独家】时光代理人 第三季 PartOne 第2集 困兽【8月国创】](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
-- [为何说旺旺最大竞争对手是糖](http://www.movie.hkepx.cn/movie/5093289.htm)
-- [电台播报日本投降：谁敢阻挡就被消灭](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
-- [带50位同事去参加水上闯关节目…](http://www.movie.hkepx.cn/movie/7746903.htm)
-- [比利时学生打工挖到900万欧元金库](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
-- [我们的少年时代2有36集](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
-- [美防长不满陆军预备军官选拔门槛下降](http://www.daogukj.com/2551047)
-- [麻了麻了 葡萄吃出花椒味](http://www.daogukj.com/7700423)
-- [好多明星暴瘦](http://www.daogukj.com/0062100)
-- [学者：美放弃电磁弹射不是技术之争](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
-- [公司空调已经做到这种程度了](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
-- [小学生花钱点蜡烛许愿被骗88万元](http://www.daogukj.com/qzcflnda/)
-- [车迷在张雪机车夺冠前就定制同款皮衣](http://www.movie.hkepx.cn/movie/1098440.htm)
-- [对付骚扰电话新思路：“婴语”对线](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
-- [印尼7.7级强震 海面出现巨大漩涡](http://www.daogukj.com/2428628)
-- [地铁站也能办结婚证了 上万人赶来](http://www.daogukj.com/uftxwefl/)
-- [秸秆禁烧不再“一刀切”](http://www.movie.hkepx.cn/movie/6056833.htm)
-- [“ 奔 跑 吧 五 区 兄 弟 ”](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
-- [法国最有松弛感的劫案是哪起？【硬核狠人91】](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
+- [汉奸石平参拜靖国神社](http://www.daogukj.com/fkuewdzb/)
+- [《疯狂动物城3》官宣](http://www.movie.hkepx.cn/xiju/4307844.htm)
+- [王曼昱4比1彭郁涵](http://www.daogukj.com/8791893)
+- [王嘉尔吃自己的瓜](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
+- [如何看待DeepSeek-V4 Pro正式版疑似过拟合DeepSeek Harness的极简模式？](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
+- [高市早苗遥拜靖国神社](http://www.daogukj.com/2165140)
+- [这会不会有点太刺激了？！](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
+- [比利时学生打工挖到900万欧元金库](http://www.movie.hkepx.cn/xiju/1440611.htm)
+- [旺旺 重大经营危机](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
+- [oner一语成谶](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
+- [今年外国人最爱逛哪里](http://www.daogukj.com/9837121)
+- [读懂中国生态保护答卷](http://www.movie.hkepx.cn/movie/5334415.htm)
+- [披荆斩棘直播](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
+- [电台播报日本投降：谁敢阻挡就被消灭](http://www.movie.hkepx.cn/movie/2391374.htm)
+- [于东来称胖东来首批刑释职工30人无一离职，如何评价这一招聘计划的实际效果？其他企业能效仿吗？](http://www.movie.hkepx.cn/movie/4276791.htm)
+- [普京首次登上南千岛群岛视察民生产业，高市早苗激烈抗议，称是日本固有领土，俄方强硬回击，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
+- [我们的少年时代2有36集](http://www.daogukj.com/6612016)
+- [程序员为保工作每月倒贴买 token「自费上班」，这反映了行业哪些问题？](http://www.movie.hkepx.cn/movie/4045624.htm)
+- [《堡垒之夜》X《明日方舟：终末地》佩丽卡 舞蹈展示](http://www.daogukj.com/9217972)
+- [绿水青山间的生态答卷](http://www.daogukj.com/eecjrkxr/)
+- [河南周口溃口封堵现场现“三蹦子”](http://www.movie.hkepx.cn/xiju/0864553.htm)
+- [十八载征程，感谢有你，一路相伴。](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
+- [秸秆禁烧不再“一刀切”](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
+- [那年盖亚的导演选择了弹幕最多的打法！](http://www.daogukj.com/chnejvmg/)
+- [老王出息了，今天带家人们一起探班龙餐馆的幕后~](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
+- [中方：这个人一贯攻击抹黑中国](http://www.daogukj.com/dmyshqkp/)
+- [比利时学生挖到价值900万欧元金库](http://www.daogukj.com/hxjdxwxy/)
+- [星宇股份裁员数百应届生并要求「个人原因」离职，具体什么情况？拒绝者被调岗打螺丝，面对该操作只能认栽吗？](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
+- [关晓彤大长腿溢出屏幕](http://www.movie.hkepx.cn/movie/5093289.htm)
+- [国乒男单无缘 WTT 瑞典站 8 强，国乒男单连续第三站 WTT 高级别赛事全军覆没，男队怎么了？](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
+- [儿子40年未赡养分走180万遗产](http://www.movie.hkepx.cn/movie/7746903.htm)
+- [宝鸡一天然气公司要求热水器满 8 年必须换，否则不给购气，这个要求合理吗？燃气公司有权这么做吗？](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
+- [胖东来 刑释人员](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
+- [这是我经历过的最恐怖的“形影不离”](http://www.daogukj.com/2551047)
+- [广州 11 岁男孩暑假在景点为游客拍照，月收入一千多，直言「拍照比刷题好玩」，这种暑假实践适合孩子吗？](http://www.daogukj.com/7700423)
+- [曝与张凌赫合照价格](http://www.daogukj.com/0062100)
+- [电视剧「蜗居」里的宋思明权力那么大，为什么没把海藻安排进体制内？](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
+- [好多明星暴瘦](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
+- [终于明白减重减肥减脂区别](http://www.daogukj.com/qzcflnda/)
+- [都什么年代，谁还渡传统通天河？！！](http://www.movie.hkepx.cn/movie/1098440.htm)
+- [王曼昱晋级女单四强](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
+- [游客到上海参观四行仓库抗战旧址](http://www.daogukj.com/2428628)
+- [儿童动画变成了“毒药”](http://www.daogukj.com/uftxwefl/)
+- [为何说旺旺最大竞争对手是糖](http://www.movie.hkepx.cn/movie/6056833.htm)
+- [第6集丨“各怀心事？”](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
+- [短剧车祸戏居然是真撞](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
 
 </details>
 
 ## 原始来源
 
-- [剑桥最年轻非裔教授辞职后被发现死亡](https://www.baidu.com/s?wd=%E5%89%91%E6%A1%A5%E6%9C%80%E5%B9%B4%E8%BD%BB%E9%9D%9E%E8%A3%94%E6%95%99%E6%8E%88%E8%BE%9E%E8%81%8C%E5%90%8E%E8%A2%AB%E5%8F%91%E7%8E%B0%E6%AD%BB%E4%BA%A1&sa=fyb_news&rsv_dl=fyb_news)
+- [儿科韩医生事件，会不会造成全国的防御性医疗的开端和大面积的医护离职潮爆发？未来儿科医生的数量腰斩？](https://www.zhihu.com/question/2069050672704705907)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 100d7473c0cc51141669 -->
+<!-- content-fingerprint: 80e30cdadcf30bc6c47f -->
