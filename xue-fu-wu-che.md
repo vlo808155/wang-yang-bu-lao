@@ -2,11 +2,11 @@
 
 # 普京首次登上南千岛群岛视察民生产业，高市早苗激烈抗议，称是日本固有领土，俄方强硬回击，如何看待此事？
 
-> 来源：知乎热榜 · 排名：第 14 位 · 热度：175 万热度 · 分类：问答 · 更新：2026-08-15T21:37:12+08:00
+> 来源：知乎热榜 · 排名：第 14 位 · 热度：155 万热度 · 分类：问答 · 更新：2026-08-15T21:55:38+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“普京首次登上南千岛群岛视察民生产业，高市早苗激烈抗议，称是日本固有领土，俄方强硬回击，如何看待此事？”位列第 14 位，公开热度指标为 175 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“普京首次登上南千岛群岛视察民生产业，高市早苗激烈抗议，称是日本固有领土，俄方强硬回击，如何看待此事？”位列第 14 位，公开热度指标为 155 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：俄罗斯联邦安全会议副主席、统一俄罗斯党主席梅德韦杰夫13日说，南千岛群岛（日本称北方四岛）“过去、现在、将来都是俄罗斯的领土”，日本首相高市早苗的有关言论“不会改变任何事”。 13日早些时候，高市举行记者会，强烈抗议俄总统普京当天登上争议岛屿。高市称，北方四岛是日本的“固有领土”，对普京此举“绝对无法接受”。她还称，普京此举进一步恶化了日本民众对俄罗斯的看法，也让中长期内恢复两国关系变得困难。 梅德韦杰夫在社交媒体上表示，高市随意表态称“南千岛群岛向来是日本的”，“这种胡言乱语不会改变任何事，南千岛群岛过去、现在、将来都是俄罗斯的领土。不明白这一点的人将
 
@@ -19,70 +19,70 @@
 ## 相关热点
 
 - [【直到大地变成一颗酸橙】TO-S-1至TO-S-4突袭至TO-MO-1 摆完挂机 简单好抄](bo-wen-qiang-ji.md)
-- [港星的含金量还在上升](wen-gu-zhi-xin.md)
-- [曹骏跳操前后对比](ju-yi-fan-san.md)
-- [大V：小马科斯对华换上另一副面孔](rong-hui-guan-tong.md)
+- [旺旺 重大经营危机](wen-gu-zhi-xin.md)
+- [余文乐赢了曹骏](ju-yi-fan-san.md)
+- [为何说旺旺最大竞争对手是糖](rong-hui-guan-tong.md)
 
 ## 站内推荐
 
-- [余文乐赢了曹骏](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [苏州暴雨太湖水倒灌小区车库被淹](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [旺旺被指最大竞争对手是糖，网友集体呼吁旺旺减糖，这样真能救旺旺吗？传统食品行业正面临哪些挑战？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [王传君终于原谅爱情公寓了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [旺旺为何卖不动了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [星宇股份裁员数百应届生并要求「个人原因」离职，具体什么情况？拒绝者被调岗打螺丝，面对该操作只能认栽吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
 - [儿科韩医生事件，会不会造成全国的防御性医疗的开端和大面积的医护离职潮爆发？未来儿科医生的数量腰斩？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [黑白色经典星空喷漆画，划走你就草率了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [广州 11 岁男孩暑假在景点为游客拍照，月收入一千多，直言「拍照比刷题好玩」，这种暑假实践适合孩子吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [男子彩票中598万 没告诉妻儿父母](http://www.play.hengshemaoyi.cn/xiju/7605701.htm)
+- [四川一村有33对双胞胎 专家谈成因](http://www.play.hengshemaoyi.cn/xiju/7605701.htm)
 - [国家叫停「速成车」，新国标落地将如何影响消费者购车？](http://www.daogukj.com/7763134)
-- [都什么年代，谁还渡传统通天河？！！](http://www.movie.hkepx.cn/movie/9676418.htm)
-- [大V：小马科斯对华换上另一副面孔](http://www.daogukj.com/glgoceuy/)
-- [旺旺为何卖不动了](http://www.daogukj.com/orzdfsse/)
+- [从《欢迎来龙餐馆》来说，基本都觉得萨达姆坏，可是为何很多人也觉得美国插手不对，这不矛盾吗？](http://www.movie.hkepx.cn/movie/9676418.htm)
+- [为何说旺旺最大竞争对手是糖](http://www.daogukj.com/glgoceuy/)
+- [大V：小马科斯对华换上另一副面孔](http://www.daogukj.com/orzdfsse/)
 - [如果条件允许的话，完全以矿泉水或纯净水作为日常饮用水好不好？](http://www.play.hengshemaoyi.cn/xiju/8405399.htm)
 - [儿科韩医生事件，会不会造成全国的防御性医疗的开端和大面积的医护离职潮爆发？未来儿科医生的数量腰斩？](http://www.daogukj.com/eymflmzk/)
-- [旺旺 重大经营危机](http://www.play.hengshemaoyi.cn/kongbu/7715467.htm)
-- [郭富城全网首试奕境X9](http://www.movie.hkepx.cn/movie/6971182.htm)
+- [什么是“984.5高校”](http://www.play.hengshemaoyi.cn/kongbu/7715467.htm)
+- [被AI投毒后假400售后上门真演戏](http://www.movie.hkepx.cn/movie/6971182.htm)
 - [日本投降日走进武汉受降堂重温历史](http://www.movie.hkepx.cn/movie/4395855.htm)
-- [旺旺被指最大竞争对手是糖，网友集体呼吁旺旺减糖，这样真能救旺旺吗？传统食品行业正面临哪些挑战？](http://www.daogukj.com/qotrqcnx/)
+- [星宇股份裁员数百应届生并要求「个人原因」离职，具体什么情况？拒绝者被调岗打螺丝，面对该操作只能认栽吗？](http://www.daogukj.com/qotrqcnx/)
 - [河南周口117米溃口成功合龙](http://www.movie.hkepx.cn/movie/3034740.htm)
 - [十八载征程，感谢有你，一路相伴。](http://www.play.hengshemaoyi.cn/xiju/2234210.htm)
 - [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉119/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.play.hengshemaoyi.cn/xiju/4074352.htm)
-- [对付骚扰电话新思路：“婴语”对线](http://www.daogukj.com/6535873)
-- [好多明星暴瘦](http://www.play.hengshemaoyi.cn/kongbu/0771677.htm)
+- [刘畊宏把王传君唱哭了](http://www.daogukj.com/6535873)
+- [河南贾鲁河周口川汇区段溃口合龙](http://www.play.hengshemaoyi.cn/kongbu/0771677.htm)
 - [全国票房日冠地图显示「东北龙餐馆，上海奥德赛」，如何看待这一现象？反应了怎样的区域观影偏好差异？](http://www.play.hengshemaoyi.cn/xiju/3926740.htm)
 - [我们为什么总是容易相信谣言](http://www.play.hengshemaoyi.cn/kongbu/0629663.htm)
 - [男童走失4天找回 父亲设宴200桌答谢](http://www.movie.hkepx.cn/xiju/4618462.htm)
 - [【时代少年团】《浅炸一下吧！》81：2026夏季时代少年团会运动（上）](http://www.play.hengshemaoyi.cn/kongbu/4226628.htm)
-- [王曼昱晋级WTT瑞典大满贯女单四强](http://www.play.hengshemaoyi.cn/xiju/1687476.htm)
-- [星宇股份裁员数百应届生并要求「个人原因」离职，具体什么情况？拒绝者被调岗打螺丝，面对该操作只能认栽吗？](http://www.daogukj.com/7225995)
-- [港星的含金量还在上升](http://www.movie.hkepx.cn/xiju/2047156.htm)
-- [余文乐赢了曹骏](http://www.daogukj.com/9963303)
-- [曹骏跳操前后对比](http://www.play.hengshemaoyi.cn/kongbu/1215997.htm)
-- [宋亚轩缺席国乐那期在拍运动会](http://www.daogukj.com/ybrclrlt/)
+- [都什么年代，谁还渡传统通天河？！！](http://www.play.hengshemaoyi.cn/xiju/1687476.htm)
+- [《欢迎来龙餐馆》里的餐厅老板扎伊德在妻女被杀后，为什么不加入政府军或其他组织，而是加入恐怖分子阵营？](http://www.daogukj.com/7225995)
+- [旺旺 重大经营危机](http://www.movie.hkepx.cn/xiju/2047156.htm)
+- [王传君终于原谅爱情公寓了](http://www.daogukj.com/9963303)
+- [余文乐赢了曹骏](http://www.play.hengshemaoyi.cn/kongbu/1215997.htm)
+- [《欢迎来龙餐馆》票房破7亿](http://www.daogukj.com/ybrclrlt/)
 - [制作糖果的流程—解压](http://www.play.hengshemaoyi.cn/xiju/1146323.htm)
-- [比利时一学生挖到大量金币金条](http://www.daogukj.com/0361450)
+- [赵丽颖13个月没进组了](http://www.daogukj.com/0361450)
 - [那年盖亚的导演选择了弹幕最多的打法！](http://www.daogukj.com/2827507)
-- [暗星拍的王俊凯](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
-- [胖东来 刑释人员](http://www.movie.hkepx.cn/xiju/4072931.htm)
+- [王曼昱晋级WTT瑞典大满贯女单四强](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
+- [王楚钦兼项负荷过重](http://www.movie.hkepx.cn/xiju/4072931.htm)
 - [【TF家族练习生】《突围II破局》EP08：任何方向都是前方（上）](http://www.movie.hkepx.cn/movie/5903663.htm)
-- [赵丽颖13个月没进组了](http://www.daogukj.com/vhjggfrk/)
+- [C罗若离婚乔治娜每月将获10万欧元](http://www.daogukj.com/vhjggfrk/)
 - [【独家】时光代理人 第三季 PartOne 第2集 困兽【8月国创】](http://www.play.hengshemaoyi.cn/kongbu/3924344.htm)
-- [“央妈这段运镜太有手法了，完全拍出了什么叫意气风发！”](http://www.movie.hkepx.cn/movie/9473120.htm)
-- [四川一村有33对双胞胎 专家谈成因](http://www.play.hengshemaoyi.cn/kongbu/1478965.htm)
-- [披荆斩棘初舞台](http://www.daogukj.com/tfijfvel/)
-- [被AI投毒后假400售后上门真演戏](http://www.daogukj.com/dazlebgh/)
+- [如何看待「大学新生三件套」涨价近五成，如果只给 5000 元预算配齐「开学三件套」，你会怎么分配？](http://www.movie.hkepx.cn/movie/9473120.htm)
+- [父子决裂40年亲生儿子仍继承9成遗产](http://www.play.hengshemaoyi.cn/kongbu/1478965.htm)
+- [披荆斩棘直播](http://www.daogukj.com/tfijfvel/)
+- [DOTA2](http://www.daogukj.com/dazlebgh/)
 - [WasteTheFallen丨首曝PV＆实机演示：凝视深渊，人性渐泯](http://www.play.hengshemaoyi.cn/kongbu/6412162.htm)
-- [东海小开渔宁波“全城抢鲜”](http://www.play.hengshemaoyi.cn/kongbu/1040618.htm)
+- [王传君唱rap](http://www.play.hengshemaoyi.cn/kongbu/1040618.htm)
 - [大厂员工吐槽现在开会就是互丢AI文档，你有同感吗？很多公司都强调内化AI能力，但真的有提升产出质量吗？](http://www.movie.hkepx.cn/xiju/5518395.htm)
-- [从《欢迎来龙餐馆》来说，基本都觉得萨达姆坏，可是为何很多人也觉得美国插手不对，这不矛盾吗？](http://www.play.hengshemaoyi.cn/kongbu/5070757.htm)
+- [哆啦A梦和大雄开心大喊：日本战败了](http://www.play.hengshemaoyi.cn/kongbu/5070757.htm)
 - [唐艺昕录节目很自然盘在李小冉身上](http://www.movie.hkepx.cn/movie/5067570.htm)
 - [今年外国人最爱逛哪里](http://www.movie.hkepx.cn/xiju/7472860.htm)
-- [保时捷溜车2员工飞身拦车 1人升店长](http://www.daogukj.com/wzbnsgim/)
-- [电台播报日本投降：谁敢阻挡就被消灭](http://www.movie.hkepx.cn/movie/6034324.htm)
-- [30岁男子患抑郁症被母亲送进特训营](http://www.daogukj.com/skozyuih/)
+- [全省仅招2人 俩人同年同月同日生](http://www.daogukj.com/wzbnsgim/)
+- [青海省副省长刘涛发表文学作品](http://www.movie.hkepx.cn/movie/6034324.htm)
+- [男子彩票中598万 没告诉妻儿父母](http://www.daogukj.com/skozyuih/)
 - [如何看待DeepSeek-V4 Pro正式版疑似过拟合DeepSeek Harness的极简模式？](http://www.play.hengshemaoyi.cn/kongbu/7371955.htm)
 - [纪念江泽民同志诞辰100周年大会将举行](http://www.play.hengshemaoyi.cn/kongbu/2749128.htm)
 - [胖东来郑州店发公告招100名边防军人和20名刑释人员，企业兜底「社会融合」职能，是进步还是错位？](http://www.play.hengshemaoyi.cn/xiju/7990952.htm)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9c591df6c4b544469111 -->
+<!-- content-fingerprint: f3a5dbd258abd59530b6 -->
