@@ -2,7 +2,7 @@
 
 # 如何看待「大学新生三件套」涨价近五成，如果只给 5000 元预算配齐「开学三件套」，你会怎么分配？
 
-> 来源：知乎热榜 · 排名：第 15 位 · 热度：74 万热度 · 分类：问答 · 更新：2026-08-16T05:50:34+08:00
+> 来源：知乎热榜 · 排名：第 15 位 · 热度：74 万热度 · 分类：问答 · 更新：2026-08-16T06:01:05+08:00
 
 ## 热点正文
 
@@ -19,16 +19,16 @@
 ## 相关热点
 
 - [都什么年代，谁还渡传统通天河？！！](jing-yi-qiu-jing.md)
-- [今年已有多人被蝉鸣“震聋”](jiao-ta-shi-di.md)
-- [张睿危险](shi-shi-qiu-shi.md)
-- [唐艺昕录节目很自然盘在李小冉身上](chi-zhi-yi-heng.md)
+- [C罗若离婚 乔治娜每月将获77万](jiao-ta-shi-di.md)
+- [网友建议旺旺开发无糖产品](shi-shi-qiu-shi.md)
+- [儿科韩医生事件，会不会造成全国的防御性医疗的开端和大面积的医护离职潮爆发？未来儿科医生的数量腰斩？](chi-zhi-yi-heng.md)
 
 ## 站内推荐
 
 - [纪念江泽民同志诞辰100周年大会将举行](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
 - [为何说旺旺最大竞争对手是糖](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
 - [男童走失4天找回 父亲设宴200桌答谢](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [大厂员工吐槽现在开会就是互丢AI文档，你有同感吗？很多公司都强调内化AI能力，但真的有提升产出质量吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [国家叫停「速成车」，新国标落地将如何影响消费者购车？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
 - [【TF家族练习生】《突围II破局》EP08：任何方向都是前方（上）](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
@@ -39,34 +39,34 @@
 - [赛伯朋克之大圣归来：耗时两年半，精品制作，一口气看完。](http://www.daogukj.com/baxpihzh/)
 - [如何评价安妮·海瑟薇、伊万·麦克格雷格主演的惊悚电影《逃出绝命街》？](http://www.play.hengshemaoyi.cn/kongbu/2062726.htm)
 - [于东来称胖东来首批刑释职工30人无一离职，如何评价这一招聘计划的实际效果？其他企业能效仿吗？](http://www.daogukj.com/1315659)
-- [张睿 中国内地郭富城](http://www.play.hengshemaoyi.cn/xiju/2704335.htm)
-- [今年已有多人被蝉鸣“震聋”](http://www.daogukj.com/lumregqz/)
+- [张本智和4比0大勒布伦](http://www.play.hengshemaoyi.cn/xiju/2704335.htm)
+- [C罗若离婚 乔治娜每月将获77万](http://www.daogukj.com/lumregqz/)
 - [用MC还原《神的随波逐流》 【B萌应援】](http://www.daogukj.com/kwbyfzbo/)
 - [这会不会有点太刺激了？！](http://www.movie.hkepx.cn/movie/4575020.htm)
-- [全国票房日冠地图显示「东北龙餐馆，上海奥德赛」，如何看待这一现象？反应了怎样的区域观影偏好差异？](http://www.daogukj.com/1670070)
+- [曾经爆火的洞洞鞋遇冷，Crocs 联合瑞幸推出近六百元洞洞鞋，二手平台半价出售，高价洞洞鞋卖不动了吗？](http://www.daogukj.com/1670070)
 - [许昌胖东来附近老板流泪说舍不得](http://www.play.hengshemaoyi.cn/xiju/3416396.htm)
 - [美国大模型帮日本对AI进行投毒](http://www.daogukj.com/1634277)
 - [为什么上海人对《奥德赛》情有独钟](http://www.daogukj.com/5380912)
-- [大厂员工吐槽现在开会就是互丢AI文档，你有同感吗？很多公司都强调内化AI能力，但真的有提升产出质量吗？](http://www.movie.hkepx.cn/xiju/8054512.htm)
-- [关晓彤大长腿溢出屏幕](http://www.daogukj.com/7644617)
-- [《披荆斩棘》初舞台观众现场喊黑幕](http://www.daogukj.com/5432364)
+- [国家叫停「速成车」，新国标落地将如何影响消费者购车？](http://www.movie.hkepx.cn/xiju/8054512.htm)
+- [王祖贤现身广州网易总部](http://www.daogukj.com/7644617)
+- [卫龙还算辣条公司吗](http://www.daogukj.com/5432364)
 - [穿越战锤20年，你却靠实力登上贵族宝座，你的后半生会如何度过？](http://www.play.hengshemaoyi.cn/xiju/0868894.htm)
-- [王祖贤现身广州网易总部](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
-- [普京首次登上南千岛群岛视察民生产业，高市早苗激烈抗议，称是日本固有领土，俄方强硬回击，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/2616443.htm)
-- [新乡胖东来搬走前VS搬走后](http://www.daogukj.com/0678164)
+- [关晓彤大长腿溢出屏幕](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
+- [全国票房日冠地图显示「东北龙餐馆，上海奥德赛」，如何看待这一现象？反应了怎样的区域观影偏好差异？](http://www.play.hengshemaoyi.cn/xiju/2616443.htm)
+- [直观看见了女儿奴的诞生](http://www.daogukj.com/0678164)
 - [《一切正常｜異常なし》MV：当所有日本人都说没问题 那问题大了](http://www.daogukj.com/4244457)
-- [国家叫停「速成车」，新国标落地将如何影响消费者购车？](http://www.movie.hkepx.cn/movie/9295074.htm)
+- [大厂员工吐槽现在开会就是互丢AI文档，你有同感吗？很多公司都强调内化AI能力，但真的有提升产出质量吗？](http://www.movie.hkepx.cn/movie/9295074.htm)
 - [旺旺被指最大竞争对手是糖，网友集体呼吁旺旺减糖，这样真能救旺旺吗？传统食品行业正面临哪些挑战？](http://www.play.hengshemaoyi.cn/xiju/0913157.htm)
 - [纪念江泽民同志诞辰100周年大会](http://www.movie.hkepx.cn/movie/2532435.htm)
 - [28岁男子和43岁女子领证结婚](http://www.play.hengshemaoyi.cn/kongbu/9083706.htm)
 - [汉奸石平参拜靖国神社](http://www.movie.hkepx.cn/xiju/0437055.htm)
 - [为何说旺旺最大竞争对手是糖](http://www.play.hengshemaoyi.cn/xiju/0405943.htm)
-- [网友建议旺旺开发无糖产品](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
-- [台风都走了 为何雨还下个不停](http://www.daogukj.com/8118057)
+- [张睿危险](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
+- [今年已有多人被蝉鸣“震聋”](http://www.daogukj.com/8118057)
 - [我实现了我儿时的梦想](http://www.play.hengshemaoyi.cn/xiju/3197658.htm)
 - [杜华：王传君坏人不像演的](http://www.play.hengshemaoyi.cn/kongbu/3085425.htm)
 - [为什么说马拉多纳的「上帝之手」经典？](http://www.movie.hkepx.cn/movie/4468433.htm)
-- [张本智和4比0大勒布伦](http://www.movie.hkepx.cn/xiju/0951693.htm)
+- [张睿 中国内地郭富城](http://www.movie.hkepx.cn/xiju/0951693.htm)
 - [老王出息了，今天带家人们一起探班龙餐馆的幕后~](http://www.movie.hkepx.cn/movie/5267051.htm)
 - [制作糖果的流程—解压](http://www.daogukj.com/3228319)
 - [年轻人山顶举起国旗与日本投降旗帜](http://www.movie.hkepx.cn/xiju/0255674.htm)
@@ -79,7 +79,7 @@
 - [绿水青山间的生态答卷](http://www.play.hengshemaoyi.cn/xiju/2201754.htm)
 - [河南贾鲁河堤防117米溃口成功合龙](http://www.movie.hkepx.cn/xiju/9904424.htm)
 - [曹骏披哥席位第一](http://www.play.hengshemaoyi.cn/xiju/7993084.htm)
-- [卫龙还算辣条公司吗](http://www.movie.hkepx.cn/xiju/2553336.htm)
+- [看似吃个大鸡排其实就吃了个鸡蛋](http://www.movie.hkepx.cn/xiju/2553336.htm)
 - [生活中如何分辨善妒的人](http://www.play.hengshemaoyi.cn/kongbu/6028567.htm)
 - [DeepSeek-V4-Pro-0813已发布，体验下来怎么样？](http://www.play.hengshemaoyi.cn/xiju/6306862.htm)
 - [我们为什么总是容易相信谣言](http://www.movie.hkepx.cn/xiju/2775713.htm)
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: fb3f416b083c520fc653 -->
+<!-- content-fingerprint: c462ebdef67f95f4ed41 -->
