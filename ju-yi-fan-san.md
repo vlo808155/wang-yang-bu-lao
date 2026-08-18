@@ -2,11 +2,11 @@
 
 # 柯洁装弱智赢AI围棋
 
-> 来源：微博热搜 · 排名：第 15 位 · 热度：87640 · 分类：体育 · 更新：2026-08-19T02:50:04+08:00
+> 来源：微博热搜 · 排名：第 15 位 · 热度：57323 · 分类：体育 · 更新：2026-08-19T03:18:03+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“柯洁装弱智赢AI围棋”位列第 15 位，公开热度指标为 87640，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“柯洁装弱智赢AI围棋”位列第 15 位，公开热度指标为 57323，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -18,7 +18,7 @@
 
 ## 相关热点
 
-- [反抗暴力强拆致死被判无罪当事人发声](rong-hui-guan-tong.md)
+- [Jennie发文道歉](rong-hui-guan-tong.md)
 - [如果没有中科大，合肥会沦为南昌，石家庄，太原之类二流城市，失去如今地位与潜力吗？科大是决定性要素吗？](ji-si-guang-yi.md)
 - [《如常运转｜正常運転》MV：全世界都会震惊于日本的灾后重建速度](qu-chang-bu-duan.md)
 - [男子在景德镇卖树叶10元一片](jing-yi-qiu-jing.md)
@@ -26,7 +26,7 @@
 ## 站内推荐
 
 - [“泔水喂猪”被正式写入禁令](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [打过四价九价HPV疫苗不用再打双价](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [调查组通报杭州酒局事件](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
 - [女子开门杀反遭关门杀](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
 - [美股](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
 - [Dior全球公关总监去世](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
@@ -39,51 +39,51 @@
 - [公积金新政来了](http://www.movie.hkepx.cn/xiju/5307975.htm)
 - [【原神一条龙全收集】至冬7.0(成就数345/冰神瞳140/摩拉120/影生翼滴58)古兽冰原+焰羽谷+永凝冻土+霜殛寒峰+白桦雪藏地/玉帛/原神7.0一条龙](http://www.movie.hkepx.cn/movie/2609609.htm)
 - [忍术回战 26分钟沉浸式观看](http://www.daogukj.com/0409437)
-- [公积金制度调整释放了哪些信号](http://www.movie.hkepx.cn/xiju/9563004.htm)
-- [伊朗称「美军比想象中更弱」，这一判断基于哪些事实，反映出美军的何种现状？](http://www.daogukj.com/irdcrmjv/)
+- [外交部直接把靖国神社称作战犯神社](http://www.movie.hkepx.cn/xiju/9563004.htm)
+- [罗斯柴尔德家族真的像《货币战争》中描述的那么厉害吗？](http://www.daogukj.com/irdcrmjv/)
 - [60万亿元，打开消费增长新空间](http://www.play.hengshemaoyi.cn/kongbu/8052623.htm)
 - [周洛汐演唱会喊话KPOP三大公司](http://www.play.hengshemaoyi.cn/xiju/2544606.htm)
-- [反抗暴力强拆致死被判无罪当事人发声](http://www.daogukj.com/yxaiauxe/)
+- [Jennie发文道歉](http://www.daogukj.com/yxaiauxe/)
 - [餐馆未打码曝光逃单顾客照片引争议](http://www.daogukj.com/hfysjbhb/)
 - [「结婚8年3孩均非亲生」案女方当庭承认出轨，主张男方在婚内已知晓孩子非亲生，这会怎样影响法律判定？](http://www.play.hengshemaoyi.cn/xiju/9852517.htm)
-- [罗斯柴尔德家族真的像《货币战争》中描述的那么厉害吗？](http://www.movie.hkepx.cn/movie/6952786.htm)
+- [伊朗称「美军比想象中更弱」，这一判断基于哪些事实，反映出美军的何种现状？](http://www.movie.hkepx.cn/movie/6952786.htm)
 - [官方调整住房公积金政策，租房提取公积金取消收入比例门槛，装修自住住房可提取公积金，哪些变化值得关注？](http://www.play.hengshemaoyi.cn/kongbu/6044698.htm)
-- [中国小伙去越南见女友家长坠海失踪](http://www.play.hengshemaoyi.cn/kongbu/2966437.htm)
-- [75岁王石再创业](http://www.movie.hkepx.cn/xiju/5545431.htm)
+- [中科院80后博士干出460亿激光器王国](http://www.play.hengshemaoyi.cn/kongbu/2966437.htm)
+- [今冬或现史上最强厄尔尼诺事件](http://www.movie.hkepx.cn/xiju/5545431.htm)
 - [如果没有中科大，合肥会沦为南昌，石家庄，太原之类二流城市，失去如今地位与潜力吗？科大是决定性要素吗？](http://www.daogukj.com/7790597)
-- [章子怡到手了3个亿 不是通过演戏](http://www.movie.hkepx.cn/xiju/8694011.htm)
+- [游泳警惕腺病毒 暂无特效药](http://www.movie.hkepx.cn/xiju/8694011.htm)
 - [官方通报杭州酒局事件](http://www.movie.hkepx.cn/movie/5422234.htm)
 - [9部门发文活跃县域消费](http://www.daogukj.com/hygudrhy/)
 - [七夕](http://www.movie.hkepx.cn/xiju/6712464.htm)
 - [小米集团第二季度总收入 1089 亿元，经调整净利润 62 亿元，如何评价其业绩表现？](http://www.movie.hkepx.cn/xiju/3635472.htm)
-- [何炅因年龄大被密室拒绝](http://www.daogukj.com/1094500)
-- [调查组通报杭州酒局事件](http://www.daogukj.com/kjnonujn/)
+- [做事千万不要有状态洁癖](http://www.daogukj.com/1094500)
+- [全国首例反强拆致死判正当防卫案](http://www.daogukj.com/kjnonujn/)
 - [宇树科技发布「超人」，原地跳高 2米、奔跑极限速度每秒 12.66 米，人形机器人距离实用还有多远？](http://www.movie.hkepx.cn/movie/2005213.htm)
 - [意外穿越怪谈世界，十二星座决定你的专属变身 第二期 （下） ASMR](http://www.movie.hkepx.cn/xiju/4140224.htm)
 - [比野生狗奶还永久的存在出现了](http://www.movie.hkepx.cn/xiju/2598641.htm)
-- [打过四价九价HPV疫苗不用再打双价](http://www.daogukj.com/idbcchjh/)
-- [旅客自带充气床入住酒店](http://www.movie.hkepx.cn/xiju/2099126.htm)
+- [调查组通报杭州酒局事件](http://www.daogukj.com/idbcchjh/)
+- [方程豹钛9官宣成都车展全球首秀](http://www.movie.hkepx.cn/xiju/2099126.htm)
 - [你的经济属于什么水平](http://www.daogukj.com/fqrljege/)
 - [童年最大愿望实现啦！100元在各家能买多少汉堡？！](http://www.daogukj.com/gjlzfppj/)
-- [游泳警惕腺病毒 暂无特效药](http://www.movie.hkepx.cn/movie/2153704.htm)
+- [“无糖”为何尝起来甜](http://www.movie.hkepx.cn/movie/2153704.htm)
 - [不缩小20倍，我也吃不了这么多呀……#全世界都吃不下，只有我吃到服务器瘫痪](http://www.daogukj.com/cxpctjvk/)
 - [蒙古不法分子擅闯中资营地侮辱员工](http://www.movie.hkepx.cn/xiju/0125063.htm)
 - [河南钻石把英伟达馋哭了](http://www.movie.hkepx.cn/movie/5966591.htm)
-- [公积金新规 通俗解读](http://www.play.hengshemaoyi.cn/xiju/2133033.htm)
+- [现在该不该换手机](http://www.play.hengshemaoyi.cn/xiju/2133033.htm)
 - [奥特曼中 出了一个怪兽的卧底【AI全民制作人】](http://www.daogukj.com/tyanyuwx/)
-- [小米汽车赌向澎程](http://www.movie.hkepx.cn/xiju/0508741.htm)
+- [中国小伙去越南见女友家长坠海失踪](http://www.movie.hkepx.cn/xiju/0508741.htm)
 - [杭州酒局事件赵某峰郁某栋被刑拘](http://www.play.hengshemaoyi.cn/kongbu/9417431.htm)
-- [被央视曝光 云南通报调查结果](http://www.movie.hkepx.cn/movie/9354072.htm)
+- [4S店“爆改”大排档健身房](http://www.movie.hkepx.cn/movie/9354072.htm)
 - [《影之刃零》专场 State of Play 全程回顾](http://www.movie.hkepx.cn/xiju/0708358.htm)
 - [医生：泡面不健康不是因为防腐剂](http://www.daogukj.com/ozjlrwei/)
-- [全红婵现身广东省运会跳水赛场观战](http://www.play.hengshemaoyi.cn/xiju/7882271.htm)
+- [周星驰回应为什么不重回幕前](http://www.play.hengshemaoyi.cn/xiju/7882271.htm)
 - [当你相亲遇到天价嫁妆](http://www.movie.hkepx.cn/xiju/7392987.htm)
-- [Jennie发文道歉](http://www.movie.hkepx.cn/xiju/3057735.htm)
+- [“反诈老陈”宣布停更7天挣生活费](http://www.movie.hkepx.cn/xiju/3057735.htm)
 - [萨特：当所有人都在定义你，你还能怎么做自己？](http://www.daogukj.com/7724415)
-- [如何看待“泔水喂猪”被写入禁令](http://www.movie.hkepx.cn/xiju/7394575.htm)
+- [女子凭基因认出十几年前同学的儿子](http://www.movie.hkepx.cn/xiju/7394575.htm)
 - [“泔水喂猪”被正式写入禁令](http://www.play.hengshemaoyi.cn/kongbu/1461320.htm)
 - [我们不欢迎这样的客人，也不赚这种米](http://www.movie.hkepx.cn/movie/9245741.htm)
-- [窦靖童同父异母妹妹自曝从小被网暴](http://www.movie.hkepx.cn/movie/4514053.htm)
+- [特朗普还对人民大会堂念念不忘](http://www.movie.hkepx.cn/movie/4514053.htm)
 - [《鸣潮》共鸣者「清宵」PV | 修行](http://www.daogukj.com/8315110)
 - [日媒称日本在「汇率战争」中「战败」，日本经济面临怎样的两难困境？](http://www.play.hengshemaoyi.cn/kongbu/1549451.htm)
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7203740379a4dca64548 -->
+<!-- content-fingerprint: c62a3895d8a2c2bc48aa -->
