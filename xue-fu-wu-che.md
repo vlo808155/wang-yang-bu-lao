@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 肖战小说都不敢这么写
+# 遭枪击身亡处长女儿曾遭死亡威胁
 
-> 来源：微博热搜 · 排名：第 14 位 · 热度：363503 · 分类：艺人 · 更新：2026-08-20T09:56:41+08:00
+> 来源：微博热搜 · 排名：第 14 位 · 热度：333033 · 分类：民生新闻 · 更新：2026-08-20T10:52:22+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“肖战小说都不敢这么写”位列第 14 位，公开热度指标为 363503，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“遭枪击身亡处长女儿曾遭死亡威胁”位列第 14 位，公开热度指标为 333033，榜单分类为“民生新闻”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,76 +14,76 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻`
 
 ## 相关热点
 
-- [美国新冠疫苗巨头股价暴涨超130%](bo-wen-qiang-ji.md)
-- [如何看待大量「有名有姓」的数学猜想被 AI 解决？](wen-gu-zhi-xin.md)
-- [韩国从黄金时代到黑铁](ju-yi-fan-san.md)
-- [家长带娃查癫痫无异常 执意要退费](rong-hui-guan-tong.md)
+- [《黑神话：钟馗》实机视频公布](bo-wen-qiang-ji.md)
+- [电视剧《潜伏》里，吴站长是不是知道余则成的真实身份？](wen-gu-zhi-xin.md)
+- [不是！可她真的不一样！](ju-yi-fan-san.md)
+- [日本乐天集团被曝涉足武器装备](rong-hui-guan-tong.md)
 
 ## 站内推荐
 
-- [全季酒店 再追究对我们对你都不好](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [空枪 李嘉诚儿子绑架案](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [金价彻底反弹了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [中国实现火箭陆地回收 外媒反应来了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [河南某小区凭高考成绩减免物业费，有人质疑减免的物业费是否变相由其他业主承担，如何看待这一举措？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [黑神话](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [全季酒店 再追究对我们对你都不好](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [彭小苒承认恋情](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [一景区21岁水上飞人教练溺亡](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [中国实现火箭陆地回收 外媒反应来了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [全女医生集结！速通医院查体项目！每项都需要暴露到什么程度？](http://www.play.hengshemaoyi.cn/xiju/7605701.htm)
-- [武汉一程序员坚持5年远距离通勤，每日往返150公里通勤5小时，称想「多陪陪妻女」，你会这样选择吗？](http://www.daogukj.com/7763134)
-- [那英身材管理好牛](http://www.movie.hkepx.cn/movie/9676418.htm)
-- [家长带娃查癫痫无异常 执意要退费](http://www.daogukj.com/glgoceuy/)
-- [七夕但不对劲](http://www.daogukj.com/orzdfsse/)
-- [美国制裁赤根智子 日本网民炸锅](http://www.play.hengshemaoyi.cn/xiju/8405399.htm)
-- [中国实现火箭陆地回收 外媒反应来了](http://www.daogukj.com/eymflmzk/)
-- [8.19医师节全国多家医院免挂号费，如何看待这一举措？应该被推广吗？](http://www.play.hengshemaoyi.cn/kongbu/7715467.htm)
-- [10台摩托车组团冲卡上高速 1人死亡](http://www.movie.hkepx.cn/movie/6971182.htm)
-- [用剩菜剩饭喂猪违法？律师解读](http://www.movie.hkepx.cn/movie/4395855.htm)
-- [金价彻底反弹了](http://www.daogukj.com/qotrqcnx/)
-- [童年最大愿望实现啦！100元在各家能买多少汉堡？！](http://www.movie.hkepx.cn/movie/3034740.htm)
-- [《影之刃零》专场 State of Play 全程回顾](http://www.play.hengshemaoyi.cn/xiju/2234210.htm)
+- [七夕节老番茄就和自己玩游戏](http://www.play.hengshemaoyi.cn/xiju/7605701.htm)
+- [抖音推出「馋猫外卖」虚拟点餐，订单不会送达，金额存入「一起攒」，如何看待这一功能？怎样从商业角度解读？](http://www.daogukj.com/7763134)
+- [金与正回应乌称朝鲜向俄增兵参战](http://www.movie.hkepx.cn/movie/9676418.htm)
+- [日本乐天集团被曝涉足武器装备](http://www.daogukj.com/glgoceuy/)
+- [大学生一个月给多少生活费合适](http://www.daogukj.com/orzdfsse/)
+- [长和向巴拿马索赔超15亿美元](http://www.play.hengshemaoyi.cn/xiju/8405399.htm)
+- [一景区21岁水上飞人教练溺亡](http://www.daogukj.com/eymflmzk/)
+- [小米集团2026年Q2财报出炉，营收1089亿，你认为小米汽车还要几年才能成为第一大营收和利润来源?](http://www.play.hengshemaoyi.cn/kongbu/7715467.htm)
+- [女孩买空座放零食 大姐想坐遭拒](http://www.movie.hkepx.cn/movie/6971182.htm)
+- [家长带娃查癫痫无异常 执意要退费](http://www.movie.hkepx.cn/movie/4395855.htm)
+- [彭小苒承认恋情](http://www.daogukj.com/qotrqcnx/)
+- [怪谈逃生指南第一期：《恶魔法典》](http://www.movie.hkepx.cn/movie/3034740.htm)
+- [我这一生最大的罪，是把人写成了妖……](http://www.play.hengshemaoyi.cn/xiju/2234210.htm)
 - [涉汛谣言大起底](http://www.play.hengshemaoyi.cn/xiju/4074352.htm)
-- [一种很“嘉豪”的合成方式](http://www.daogukj.com/6535873)
+- [这是我经历过的最恐怖的“形影不离”](http://www.daogukj.com/6535873)
 - [2026年涉汛谣言大起底](http://www.play.hengshemaoyi.cn/kongbu/0771677.htm)
-- [电视剧《潜伏》里，吴站长是不是知道余则成的真实身份？](http://www.play.hengshemaoyi.cn/xiju/3926740.htm)
-- [《如常运转｜正常運転》MV：全世界都会震惊于日本的灾后重建速度](http://www.play.hengshemaoyi.cn/kongbu/0629663.htm)
+- [为什么苏轼书法被誉为宋朝第一，但是后世却很少学苏轼笔法的人呢？](http://www.play.hengshemaoyi.cn/xiju/3926740.htm)
+- [为什么我们常以怜悯的目光看待年迈者](http://www.play.hengshemaoyi.cn/kongbu/0629663.htm)
 - [特朗普宣布对伊朗发起空前经济战](http://www.movie.hkepx.cn/xiju/4618462.htm)
-- [古惑仔都说为社团做事，被砍、去坐牢也不怕，这么忠诚，社团为什么不送他们去打螺丝？](http://www.play.hengshemaoyi.cn/kongbu/4226628.htm)
-- [韩媒曝韩国足协曾性贿赂 3 名中国足协人士，中国足协回应已展开调查，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/1687476.htm)
-- [青岛男子辱骂女游客视频](http://www.daogukj.com/7225995)
-- [如何看待大量「有名有姓」的数学猜想被 AI 解决？](http://www.movie.hkepx.cn/xiju/2047156.htm)
-- [全季酒店 再追究对我们对你都不好](http://www.daogukj.com/9963303)
-- [韩国从黄金时代到黑铁](http://www.play.hengshemaoyi.cn/kongbu/1215997.htm)
-- [AI演员能替代真人演员吗](http://www.daogukj.com/ybrclrlt/)
-- [为什么有了孩子之后，夫妻会频繁吵架？](http://www.play.hengshemaoyi.cn/xiju/1146323.htm)
-- [女孩买空座放零食 大姐想坐遭拒](http://www.daogukj.com/0361450)
-- [德国最忌讳的两线作战，为何到1941年，居然让希特勒自己拾了起来？就没人冒死劝谏？](http://www.daogukj.com/2827507)
-- [一个小区住了40万人！故宫面积的6倍，亚洲之最。贵州花果园物业服务真实测评](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
-- [北大报到日校园满是扛床垫的爸](http://www.movie.hkepx.cn/xiju/4072931.htm)
-- [七夕节老番茄就和自己玩游戏](http://www.movie.hkepx.cn/movie/5903663.htm)
-- [不是！可她真的不一样！](http://www.daogukj.com/vhjggfrk/)
-- [LPL2026赛季第三赛段组内赛AL 1:2 TES，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/kongbu/3924344.htm)
-- [小米集团2026年Q2财报出炉，营收1089亿，你认为小米汽车还要几年才能成为第一大营收和利润来源?](http://www.movie.hkepx.cn/movie/9473120.htm)
-- [怪谈逃生指南第一期：《恶魔法典》](http://www.play.hengshemaoyi.cn/kongbu/1478965.htm)
-- [12306回应买票占座放零食这座位能让吗](http://www.daogukj.com/tfijfvel/)
-- [女子凌晨倒24瓶爱心水只为拿走空瓶](http://www.daogukj.com/dazlebgh/)
+- [那些把软件放D盘的人是出于什么目的考虑的？](http://www.play.hengshemaoyi.cn/kongbu/4226628.htm)
+- [德国最忌讳的两线作战，为何到1941年，居然让希特勒自己拾了起来？就没人冒死劝谏？](http://www.play.hengshemaoyi.cn/xiju/1687476.htm)
+- [肖战小说都不敢这么写](http://www.daogukj.com/7225995)
+- [电视剧《潜伏》里，吴站长是不是知道余则成的真实身份？](http://www.movie.hkepx.cn/xiju/2047156.htm)
+- [黑神话](http://www.daogukj.com/9963303)
+- [不是！可她真的不一样！](http://www.play.hengshemaoyi.cn/kongbu/1215997.htm)
+- [疾风借用了泉奈的写轮眼去打航天 ⚡️以防你不知道三角洲也有条疯狗⚡️](http://www.daogukj.com/ybrclrlt/)
+- [如何评价韩延导演，朱一龙、檀健次、梁家辉、卫诗雅等主演的犯罪剧情电影《空枪》？](http://www.play.hengshemaoyi.cn/xiju/1146323.htm)
+- [你们忍得住不说吗？](http://www.daogukj.com/0361450)
+- [河南某小区凭高考成绩减免物业费，有人质疑减免的物业费是否变相由其他业主承担，如何看待这一举措？](http://www.daogukj.com/2827507)
+- [一口气看7小时高质量原创文娱漫剧《我只想亏钱，怎么捧出一个时代》1~26集](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
+- [青岛一男子辱骂女游客 警方通报](http://www.movie.hkepx.cn/xiju/4072931.htm)
+- [时空列车](http://www.movie.hkepx.cn/movie/5903663.htm)
+- [打了10分钟就我一个在送，这就很尴尬了](http://www.daogukj.com/vhjggfrk/)
+- [古惑仔都说为社团做事，被砍、去坐牢也不怕，这么忠诚，社团为什么不送他们去打螺丝？](http://www.play.hengshemaoyi.cn/kongbu/3924344.htm)
+- [6岁女孩徒步380公里抵达登封](http://www.movie.hkepx.cn/movie/9473120.htm)
+- [《岸防炮模拟器》](http://www.play.hengshemaoyi.cn/kongbu/1478965.htm)
+- [宇树大跌](http://www.daogukj.com/tfijfvel/)
+- [中国黄金协会严正声明](http://www.daogukj.com/dazlebgh/)
 - [如何看待8月19日长江存储完成IPO辅导验收，「最快速度」冲刺A股？](http://www.play.hengshemaoyi.cn/kongbu/6412162.htm)
-- [骑士掘金快船交易](http://www.play.hengshemaoyi.cn/kongbu/1040618.htm)
-- [日对俄强硬正反噬“北方四岛外交”吗](http://www.movie.hkepx.cn/xiju/5518395.htm)
-- [游戏科学](http://www.play.hengshemaoyi.cn/kongbu/5070757.htm)
-- [《空枪》 李嘉诚儿子被绑架案](http://www.movie.hkepx.cn/movie/5067570.htm)
-- [公积金新政来了 有哪些利好](http://www.movie.hkepx.cn/xiju/7472860.htm)
+- [女子凌晨倒24瓶爱心水只为拿走空瓶](http://www.play.hengshemaoyi.cn/kongbu/1040618.htm)
+- [1300万买到样板房 开发商拒回应](http://www.movie.hkepx.cn/xiju/5518395.htm)
+- [12306回应买票占座放零食这座位能让吗](http://www.play.hengshemaoyi.cn/kongbu/5070757.htm)
+- [日本民众排队5小时买中国相机](http://www.movie.hkepx.cn/movie/5067570.htm)
+- [这份五年规划 事关参保、就医、购药](http://www.movie.hkepx.cn/xiju/7472860.htm)
 - [男子花1290万买精装豪宅竟是样板间](http://www.daogukj.com/wzbnsgim/)
-- [姜珮瑶找凌玲像AI一样丝滑](http://www.movie.hkepx.cn/movie/6034324.htm)
-- [你们忍得住不说吗？](http://www.daogukj.com/skozyuih/)
-- [25岁李刚仁马竞西甲首秀轰世界波](http://www.play.hengshemaoyi.cn/kongbu/7371955.htm)
+- [空枪 李嘉诚儿子绑架案](http://www.movie.hkepx.cn/movie/6034324.htm)
+- [《鸡来》一个半小时超长电影！！！](http://www.daogukj.com/skozyuih/)
+- [印度媒体人：中国不说教只分享经验](http://www.play.hengshemaoyi.cn/kongbu/7371955.htm)
 - [12306回应2人买3座是否有处置权](http://www.play.hengshemaoyi.cn/kongbu/2749128.htm)
 - [两人买三张票空座放零食，站票乘客想入座，列车员称无法强制协调，你觉得该让座吗？两人买三座算浪费资源吗？](http://www.play.hengshemaoyi.cn/xiju/7990952.htm)
 
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [肖战小说都不敢这么写](https://s.weibo.com/weibo?q=%E8%82%96%E6%88%98%E5%B0%8F%E8%AF%B4%E9%83%BD%E4%B8%8D%E6%95%A2%E8%BF%99%E4%B9%88%E5%86%99)
+- [遭枪击身亡处长女儿曾遭死亡威胁](https://s.weibo.com/weibo?q=%E9%81%AD%E6%9E%AA%E5%87%BB%E8%BA%AB%E4%BA%A1%E5%A4%84%E9%95%BF%E5%A5%B3%E5%84%BF%E6%9B%BE%E9%81%AD%E6%AD%BB%E4%BA%A1%E5%A8%81%E8%83%81)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 83722e456ab9cfaa4cbf -->
+<!-- content-fingerprint: 3cc6f62487c7f3985f66 -->
