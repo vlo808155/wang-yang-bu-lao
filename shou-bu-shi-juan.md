@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 两人买三张票空座放零食，站票乘客想入座，列车员称无法强制协调，你觉得该让座吗？两人买三座算浪费资源吗？
+# 魔丸是怎样炼成的
 
-> 来源：知乎热榜 · 排名：第 14 位 · 热度：154 万热度 · 分类：问答 · 更新：2026-08-20T19:57:35+08:00
+> 来源：哔哩哔哩热门 · 排名：第 14 位 · 热度：2409066 · 分类：搞笑 · 更新：2026-08-20T21:04:05+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“两人买三张票空座放零食，站票乘客想入座，列车员称无法强制协调，你觉得该让座吗？两人买三座算浪费资源吗？”位列第 14 位，公开热度指标为 154 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“魔丸是怎样炼成的”位列第 14 位，公开热度指标为 2409066，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：两人买三座，一个座位放零食和书包，无座乘客找列车员协调让座无果，无座乘客：大家都在一个车上，互相体谅_腾讯新闻
+哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
 
 ## 相关热点
 
-- [航天撤离改动！现在3闸拉2就能走！牢太和小弟技能详细介绍！专用电梯专用撤离点都可以夺舍！「S11测试服」](xue-fu-wu-che.md)
-- [孙颖莎抵达上海封训](bo-wen-qiang-ji.md)
+- [那英身材管理好牛](xue-fu-wu-che.md)
+- [彭小苒既要爱情的糖也要事业的光](bo-wen-qiang-ji.md)
 - [享界V8亮相](wen-gu-zhi-xin.md)
 - [如何看待8月19日下午DeepSeek被曝再次开始灰度测试，能力超过上次灰测？](ju-yi-fan-san.md)
 
 ## 站内推荐
 
-- [绝对的“女汉子”任上落马](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [女孩极端节食致神经不可逆损伤](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [多地商场外墙撤下商业广告，挂上钱学森、邓稼先等多名科学家公益海报，这么做背后可能有哪些考量？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [《鸡来》一个半小时超长电影！！！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [300W性能释放之外，HyperX暗影精灵MAX这次还改了不少](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [癌症疫苗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [《西游记》里唐僧为什么不利用孙悟空的金箍棒直接变长送到西天？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [停更7年，我又以经典的方式玩MC](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [怪谈逃生指南第一期：《恶魔法典》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [航天撤离改动！现在3闸拉2就能走！牢太和小弟技能详细介绍！专用电梯专用撤离点都可以夺舍！「S11测试服」](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [正厅级何雄被查 曾任郑州市市长](http://www.daogukj.com/8478676)
-- [癌症疫苗](http://www.daogukj.com/3239411)
+- [《黑神话：钟馗》主角钟馗首次露脸亮相，如何评价这版青年钟馗的形象设计？](http://www.daogukj.com/8478676)
+- [车管所被指“公电私充”工作人员回应](http://www.daogukj.com/3239411)
 - [《黑神话：钟馗》15分钟实机演示](http://www.play.hengshemaoyi.cn/kongbu/6693593.htm)
-- [今年秋裤可能真的不用穿了](http://www.play.hengshemaoyi.cn/kongbu/3393647.htm)
-- [哈佛医学院惊天丑闻和解](http://www.daogukj.com/5177434)
-- [唐晶上班有员工在玩蜘蛛纸牌](http://www.daogukj.com/9757981)
-- [中非视听之约北京启幕](http://www.play.hengshemaoyi.cn/kongbu/5254314.htm)
-- [绝对的“女汉子”任上落马](http://www.play.hengshemaoyi.cn/kongbu/6062543.htm)
-- [《黑神话：钟馗》发布 15 分钟实机演示视频，有哪些细节设计值得关注？](http://www.daogukj.com/vvhxfmlz/)
-- [华为PuraXView](http://www.play.hengshemaoyi.cn/kongbu/6868011.htm)
-- [司法部认定欧盟针对京东的《外国补贴条例》跨境调查构成不当域外管辖，任何人不得协助执行，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/0581687.htm)
-- [10后小朋友分享心中最好看的女性](http://www.play.hengshemaoyi.cn/xiju/3249372.htm)
-- [媒体：座位纠纷别总让乘客自己协商](http://www.movie.hkepx.cn/xiju/6239174.htm)
-- [“司令”和“司令员”，差了一个字，到底有什么不同？](http://www.movie.hkepx.cn/xiju/9361968.htm)
-- [我的蚊子生病了，带它去看病](http://www.play.hengshemaoyi.cn/xiju/0141985.htm)
-- [孙颖莎抵达上海封训](http://www.daogukj.com/3639582)
-- [300W性能释放之外，HyperX暗影精灵MAX这次还改了不少](http://www.daogukj.com/olcgjzxy/)
-- [多地商场外墙撤下商业广告，挂上钱学森、邓稼先等多名科学家公益海报，这么做背后可能有哪些考量？](http://www.play.hengshemaoyi.cn/xiju/4459303.htm)
-- [《黑神话：钟馗》15分钟视频满屏来了](http://www.daogukj.com/ogctigmk/)
-- [余承东称刚刚发布会没讲好](http://www.play.hengshemaoyi.cn/kongbu/4101569.htm)
-- [大数据杀熟 3台手机竟显示3个价格](http://www.play.hengshemaoyi.cn/kongbu/1623587.htm)
-- [孕妇误服甲醇前曾反复向医生确认](http://www.movie.hkepx.cn/xiju/2974024.htm)
-- [那英身材管理好牛](http://www.daogukj.com/qduaipey/)
-- [RTX5060Ti 显卡价格暴涨至 6000 元，其背后可能存在哪些原因？](http://www.play.hengshemaoyi.cn/xiju/8227935.htm)
-- [航天撤离改动！现在3闸拉2就能走！牢太和小弟技能详细介绍！专用电梯专用撤离点都可以夺舍！「S11测试服」](http://www.play.hengshemaoyi.cn/kongbu/4160027.htm)
-- [峰哥把机器人踹瘫痪了](http://www.play.hengshemaoyi.cn/kongbu/9952478.htm)
+- [华为阔直板手机亮相](http://www.play.hengshemaoyi.cn/kongbu/3393647.htm)
+- [“不怕楼上跑跳的”房子要来了吗](http://www.daogukj.com/5177434)
+- [孕妇误服甲醇前曾反复向医生确认](http://www.daogukj.com/9757981)
+- [县域消费跑出加速度](http://www.play.hengshemaoyi.cn/kongbu/5254314.htm)
+- [癌症疫苗](http://www.play.hengshemaoyi.cn/kongbu/6062543.htm)
+- [男子重病期间立遗嘱遗产全部留给弟弟不给妻儿，引爆房产争夺战，如何从法律角度解读？](http://www.daogukj.com/vvhxfmlz/)
+- [伊朗真要“由守转攻”吗](http://www.play.hengshemaoyi.cn/kongbu/6868011.htm)
+- [动态视频｜火箭降落的全过程，拍到了！](http://www.play.hengshemaoyi.cn/xiju/0581687.htm)
+- [女子发现孩子没出地铁强行往车厢挤](http://www.play.hengshemaoyi.cn/xiju/3249372.htm)
+- [杨玉成扮演者回应丁禹兮直播迟到](http://www.movie.hkepx.cn/xiju/6239174.htm)
+- [顾客曝全季酒店敞房门8小时，20万财产无人看管，片区主管称再追究下去对你我都不好，哪些问题值得关注？](http://www.movie.hkepx.cn/xiju/9361968.htm)
+- [恒大集团和恒大地产被罚，那些因烂尾楼、理财暴雷等受损的受害者该如何维护自身权益呢？](http://www.play.hengshemaoyi.cn/xiju/0141985.htm)
+- [彭小苒既要爱情的糖也要事业的光](http://www.daogukj.com/3639582)
+- [航天撤离改动！现在3闸拉2就能走！牢太和小弟技能详细介绍！专用电梯专用撤离点都可以夺舍！「S11测试服」](http://www.daogukj.com/olcgjzxy/)
+- [停更7年，我又以经典的方式玩MC](http://www.play.hengshemaoyi.cn/xiju/4459303.htm)
+- [合肥外卖店 我上网就是为了看这些](http://www.daogukj.com/ogctigmk/)
+- [女孩在陕西景区“强势”宣传广西](http://www.play.hengshemaoyi.cn/kongbu/4101569.htm)
+- [沈腾又忘记扶杨幂了](http://www.play.hengshemaoyi.cn/kongbu/1623587.htm)
+- [峰哥把机器人踹瘫痪了](http://www.movie.hkepx.cn/xiju/2974024.htm)
+- [父女黄河大堤失踪车上录音曝光](http://www.daogukj.com/qduaipey/)
+- [Moderna股价暴涨177%，创三年半来新高，mRNA癌症疫苗三期临床达成终点，本次突破含金量多大？](http://www.play.hengshemaoyi.cn/xiju/8227935.htm)
+- [那英身材管理好牛](http://www.play.hengshemaoyi.cn/kongbu/4160027.htm)
+- [张家界天门山中外游客击掌走红](http://www.play.hengshemaoyi.cn/kongbu/9952478.htm)
 - [抖音推出「馋猫外卖」虚拟点餐，订单不会送达，金额存入「一起攒」，如何看待这一功能？怎样从商业角度解读？](http://www.movie.hkepx.cn/xiju/1449526.htm)
-- [女子使用公用瑜伽垫后感染HPV](http://www.play.hengshemaoyi.cn/kongbu/5233867.htm)
-- [《鸡来》一个半小时超长电影！！！](http://www.daogukj.com/foorujpq/)
-- [如果半岛没有分裂（韩国继承半岛全境），今天的朝鲜地区城市，如平壤、元山会发展成什么样？](http://www.movie.hkepx.cn/xiju/1941094.htm)
-- [七夕节老番茄就和自己玩游戏](http://www.movie.hkepx.cn/movie/4257941.htm)
-- [沈腾又忘记扶杨幂了](http://www.play.hengshemaoyi.cn/kongbu/5339935.htm)
+- [如何看待杨国福麻辣烫宣称花滑名将羽生结弦为开业送花，被打假后公开致歉？](http://www.play.hengshemaoyi.cn/kongbu/5233867.htm)
+- [怪谈逃生指南第一期：《恶魔法典》](http://www.daogukj.com/foorujpq/)
+- [好专业的煎饼果子来一套](http://www.movie.hkepx.cn/xiju/1941094.htm)
+- [《鸡来》一个半小时超长电影！！！](http://www.movie.hkepx.cn/movie/4257941.htm)
+- [网传涉蚌埠普高录取工作通知不实](http://www.play.hengshemaoyi.cn/kongbu/5339935.htm)
 - [他予回声StarToU | MacGuffin 公开](http://www.daogukj.com/ailrualr/)
-- [我这一生最大的罪，是把人写成了妖……](http://www.play.hengshemaoyi.cn/xiju/5385609.htm)
-- [张家界天门山中外游客击掌走红](http://www.movie.hkepx.cn/movie/0789293.htm)
-- [《黑神话：钟馗》主角钟馗首次露脸亮相，如何评价这版青年钟馗的形象设计？](http://www.movie.hkepx.cn/xiju/4446039.htm)
-- [外卖小哥撞倒持刀男子获平台奖励](http://www.play.hengshemaoyi.cn/kongbu/7816841.htm)
-- [美甲贴 性早熟](http://www.play.hengshemaoyi.cn/kongbu/9613360.htm)
-- [好专业的煎饼果子来一套](http://www.daogukj.com/cdrpkogq/)
-- [这份五年规划事关参保、就医、购药](http://www.movie.hkepx.cn/movie/2665746.htm)
-- [这和换头有什么区别啊](http://www.daogukj.com/zobrwsba/)
-- [同样是反战片，为什么《欢迎来龙餐馆》的味道和好莱坞完全不一样？](http://www.daogukj.com/0656524)
-- [网传涉蚌埠普高录取工作通知不实](http://www.movie.hkepx.cn/movie/2963324.htm)
-- [华晨宇首创全域场景演唱会](http://www.daogukj.com/oapvfaci/)
-- [交警提醒轮胎脱落女子仍坚持开走](http://www.daogukj.com/1720245)
-- [停更7年，我又以经典的方式玩MC](http://www.play.hengshemaoyi.cn/xiju/2000340.htm)
-- [黑神话钟馗主角脸模说很兴奋](http://www.play.hengshemaoyi.cn/kongbu/4181508.htm)
-- [魔丸是怎样炼成的](http://www.play.hengshemaoyi.cn/kongbu/7488097.htm)
-- [涉蚌埠普高录取工作通知为虚假文件](http://www.play.hengshemaoyi.cn/xiju/5445185.htm)
-- [第19号台风紫檀有消息了](http://www.movie.hkepx.cn/movie/7058284.htm)
+- [菜谱：洋葱炒蛋，家庭红烧鱼，蒜炒西兰花，辣椒炒猪腰，绿豆汤，从买菜开始，你在家随时可以复刻](http://www.play.hengshemaoyi.cn/xiju/5385609.htm)
+- [余承东预告享界V8](http://www.movie.hkepx.cn/movie/0789293.htm)
+- [【独家/完结】《将夜》第19集 光明之夜【4月国创】](http://www.movie.hkepx.cn/xiju/4446039.htm)
+- [女孩极端节食致神经不可逆损伤](http://www.play.hengshemaoyi.cn/kongbu/7816841.htm)
+- [RTX5060Ti 显卡价格暴涨至 6000 元，其背后可能存在哪些原因？](http://www.play.hengshemaoyi.cn/kongbu/9613360.htm)
+- [奥运冠军刘虹退役](http://www.daogukj.com/cdrpkogq/)
+- [公积金新政来了，有哪些利好](http://www.movie.hkepx.cn/movie/2665746.htm)
+- [女子使用公用瑜伽垫后感染HPV](http://www.daogukj.com/zobrwsba/)
+- [多地商场外墙撤下商业广告，挂上钱学森、邓稼先等多名科学家公益海报，这么做背后可能有哪些考量？](http://www.daogukj.com/0656524)
+- [如何看待《诡秘之主》称游戏开发总成本已达12亿，大型MMO没10亿上不了桌？钱都烧哪了？能回本吗？](http://www.movie.hkepx.cn/movie/2963324.htm)
+- [美甲贴 性早熟](http://www.daogukj.com/oapvfaci/)
+- [疫苗的东风终于来了](http://www.daogukj.com/1720245)
+- [房东赶走怀孕租客称“借死不借生”](http://www.play.hengshemaoyi.cn/xiju/2000340.htm)
+- [10后小朋友分享心中最好看的女性](http://www.play.hengshemaoyi.cn/kongbu/4181508.htm)
+- [6岁女童15天暴走380公里](http://www.play.hengshemaoyi.cn/kongbu/7488097.htm)
+- [摊主住院100多天生意没断过](http://www.play.hengshemaoyi.cn/xiju/5445185.htm)
+- [银行卖保险 员工扛不住自己买了1万](http://www.movie.hkepx.cn/movie/7058284.htm)
 
 </details>
 
 ## 原始来源
 
-- [两人买三张票空座放零食，站票乘客想入座，列车员称无法强制协调，你觉得该让座吗？两人买三座算浪费资源吗？](https://www.zhihu.com/question/2073342342912795120)
+- [魔丸是怎样炼成的](https://b23.tv/BV188gT6wE44)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b87e63e3fc4c0138d1c9 -->
+<!-- content-fingerprint: 3d47360bf9cd89d7ee89 -->
