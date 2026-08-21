@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 真实版大炮打蚊子
+# 外貌红利 人高马大
 
-> 来源：百度热搜 · 排名：第 13 位 · 热度：6566715 · 更新：2026-08-21T10:09:36+08:00
+> 来源：微博热搜 · 排名：第 14 位 · 热度：319337 · 分类：议题讨论 · 更新：2026-08-21T11:15:14+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“真实版大炮打蚊子”位列第 13 位，公开热度指标为 6566715。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“外貌红利 人高马大”位列第 14 位，公开热度指标为 319337，榜单分类为“议题讨论”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，江苏常州一年轻团队研发灭蚊“激光炮”，通过毫米级雷达实时捕捉蚊子，再用高能脉冲激光精准击中蚊翅，扫描、定位、发射整套流程无需人工操作，画面科幻感十足。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `议题讨论`
 
 ## 相关热点
 
-- [孟子义李昀锐第三视角](shou-bu-shi-juan.md)
-- [男子连饮两场酒后身亡 法院判了](xue-fu-wu-che.md)
-- [遇见小面连续 4 年降价，平均客单价降到 27.7 元，上半年净利涨超 50% ，为什么降价后赚更多？](bo-wen-qiang-ji.md)
-- [终于走回深圳了｜挑战上海走回深圳最后一集！！](wen-gu-zhi-xin.md)
+- [针灸师以理疗为名约女护士发生关系](shou-bu-shi-juan.md)
+- [遇见小面连续 4 年降价，平均客单价降到 27.7 元，上半年净利涨超 50% ，为什么降价后赚更多？](xue-fu-wu-che.md)
+- [房主反杀非法上门强拆者，陕西判了，无罪](bo-wen-qiang-ji.md)
+- [月租600电费400 租客不敢开空调](wen-gu-zhi-xin.md)
 
 ## 站内推荐
 
-- [《影之刃零》专场 State of Play 全程回顾](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [我这一生最大的罪，是把人写成了妖……](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
 - [举手之劳 亦是人间微光](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [女子用了公用瑜伽垫后感染HPV](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [孙骁骁写信深情表白任重](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [如何评价《鸣潮》3.6版本的剧情？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [你还记得庞中华吗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [爱在无尽夏开机路透](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [张本美和：对阵孙颖莎拿1分都侥幸](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [我这一生最大的罪，是把人写成了妖……](http://www.movie.hkepx.cn/movie/8315527.htm)
-- [菜谱：洋葱炒蛋，家庭红烧鱼，蒜炒西兰花，辣椒炒猪腰，绿豆汤，从买菜开始，你在家随时可以复刻](http://www.movie.hkepx.cn/xiju/9744003.htm)
-- [很多瘦子根本不瘦](http://www.play.hengshemaoyi.cn/kongbu/2167324.htm)
-- [泡泡玛特IP格局大变](http://www.movie.hkepx.cn/movie/0598458.htm)
-- [张本美和：对阵孙颖莎拿1分都侥幸](http://www.movie.hkepx.cn/movie/1195486.htm)
-- [曾辉小沈阳这段诡异得像AI生成](http://www.movie.hkepx.cn/movie/1040288.htm)
-- [美空军欲采购中国大疆无人机有何意图](http://www.movie.hkepx.cn/xiju/1529442.htm)
-- [赖岳谦：解放军一旦登岛就不会再走](http://www.daogukj.com/9990647)
-- [何婧婧流产原因是胚胎优胜劣汰](http://www.daogukj.com/vuidxsxb/)
-- [女子用了公用瑜伽垫后感染HPV](http://www.movie.hkepx.cn/xiju/2812834.htm)
-- [学籍案弟弟称从小把妈妈当小姨看](http://www.movie.hkepx.cn/movie/0453152.htm)
-- [2026 LPL第三赛段组内赛 BLG 2:1 LGD，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/3141529.htm)
+- [《影之刃零》专场 State of Play 全程回顾](http://www.movie.hkepx.cn/movie/8315527.htm)
+- [从《黑神话：钟馗》最新的实机展示来看，是否游戏仍然延续了《黑神话：悟空》的线性关卡设计？](http://www.movie.hkepx.cn/xiju/9744003.htm)
+- [女子用了公用瑜伽垫后感染HPV](http://www.play.hengshemaoyi.cn/kongbu/2167324.htm)
+- [398一杯的芋圆葡萄](http://www.movie.hkepx.cn/movie/0598458.htm)
+- [女子明知患艾滋病仍卖淫50次](http://www.movie.hkepx.cn/movie/1195486.htm)
+- [易烊千玺实体专备案](http://www.movie.hkepx.cn/movie/1040288.htm)
+- [医院能办结婚证了](http://www.movie.hkepx.cn/xiju/1529442.htm)
+- [武汉市委秘书长曾晟被查](http://www.daogukj.com/9990647)
+- [父女黄河大堤失踪 车上录音曝光](http://www.daogukj.com/vuidxsxb/)
+- [你还记得庞中华吗](http://www.movie.hkepx.cn/xiju/2812834.htm)
+- [第18号台风刚生成 第19号台风也来了](http://www.movie.hkepx.cn/movie/0453152.htm)
+- [如何评价真人互动影视游戏作品《绍宋：还我河山》？](http://www.play.hengshemaoyi.cn/xiju/3141529.htm)
 - [【独家】时光代理人 第三季 PartOne 第3集 血洗缅挝【8月国创】](http://www.play.hengshemaoyi.cn/kongbu/3227732.htm)
-- [女子连续3年陪丈夫祭奠其亡妻](http://www.daogukj.com/lttpjdfd/)
-- [“准两万亿”之城要上桌了](http://www.play.hengshemaoyi.cn/xiju/8191525.htm)
-- [蟹塘每天被国宝「东方白鹳」吃掉三四万元螃蟹，塘主直呼扛不住，有哪些好的解决办法吗？塘主的损失谁该负责？](http://www.daogukj.com/zjpmceko/)
-- [伊朗回应“美将公布经济孤立措施”](http://www.play.hengshemaoyi.cn/xiju/6169098.htm)
-- [如何看待起点中文网集中处置下架一批 AI 痕迹过重的网络小说，不予推荐？](http://www.movie.hkepx.cn/xiju/0248646.htm)
-- [遇见小面连续 4 年降价，平均客单价降到 27.7 元，上半年净利涨超 50% ，为什么降价后赚更多？](http://www.daogukj.com/8328518)
-- [迪丽热巴跑男时期的感觉回来啦](http://www.play.hengshemaoyi.cn/xiju/8682512.htm)
-- [大学生疯狂刷多段实习，有人大二时已经积累了六段实习，实习为什么越来越「卷」？这份实习焦虑从何而来？](http://www.play.hengshemaoyi.cn/kongbu/6784091.htm)
-- [男子聚会拒敬酒遭殴打致死已判赔](http://www.daogukj.com/kcmcfwfy/)
-- [泡泡玛特上半年营收 171.7 亿元，净利润 50.4 亿元，低于市场预期，如何评价其业绩表现？](http://www.daogukj.com/pqcczpwj/)
-- [你还记得庞中华吗](http://www.movie.hkepx.cn/xiju/5113891.htm)
-- [孟子义李昀锐第三视角](http://www.play.hengshemaoyi.cn/kongbu/6074356.htm)
+- [金饰克价月内涨超100元 缘何反弹](http://www.daogukj.com/lttpjdfd/)
+- [张雪 送到统一为止](http://www.play.hengshemaoyi.cn/xiju/8191525.htm)
+- [怎么看待芬兰研究人员发现儿童的屏幕时间与青少年时期认知处理能力的正向统计关联？](http://www.daogukj.com/zjpmceko/)
+- [长城偶遇冯绍峰父子](http://www.play.hengshemaoyi.cn/xiju/6169098.htm)
+- [小米扫拖机器人避障不灵撞坏百万家具，消费者质疑商家宣传未说明缺点，能向小米索赔吗？](http://www.movie.hkepx.cn/xiju/0248646.htm)
+- [房主反杀非法上门强拆者，陕西判了，无罪](http://www.daogukj.com/8328518)
+- [大冰称婚后上交工资是三观问题](http://www.play.hengshemaoyi.cn/xiju/8682512.htm)
+- [女子怀孕被房东要求退租，还被出具《房屋租赁补充告知书》限制在屋内坐月子，这合法吗？房东有权这样做吗？](http://www.play.hengshemaoyi.cn/kongbu/6784091.htm)
+- [唐氏男子聚餐举杯说“祝天下无糖”](http://www.daogukj.com/kcmcfwfy/)
+- [爷爷骑三轮过马路被误认成孙悟空](http://www.daogukj.com/pqcczpwj/)
+- [重庆市原副市长江敦涛被公诉](http://www.movie.hkepx.cn/xiju/5113891.htm)
+- [针灸师以理疗为名约女护士发生关系](http://www.play.hengshemaoyi.cn/kongbu/6074356.htm)
 - [华为发布全球首款阔直板手机，此前被曝定价 6000-7000 元，你看好其市场前景吗？](http://www.play.hengshemaoyi.cn/xiju/7952053.htm)
-- [江苏盐城爆响](http://www.movie.hkepx.cn/movie/9150107.htm)
-- [基辛格妻子去世](http://www.movie.hkepx.cn/movie/7359364.htm)
-- [宝妈正使用哺乳间 陌生男子突然闯入](http://www.movie.hkepx.cn/xiju/0518845.htm)
-- [为什么武侠游戏里都没有广东、广西、海南的门派呢？](http://www.play.hengshemaoyi.cn/kongbu/9268198.htm)
-- [医院能办结婚证了](http://www.play.hengshemaoyi.cn/kongbu/3268208.htm)
-- [多方回应女子穿睡衣站高楼窗沿](http://www.play.hengshemaoyi.cn/kongbu/0525872.htm)
+- [赖岳谦：解放军一旦登岛就不会再走](http://www.movie.hkepx.cn/movie/9150107.htm)
+- [30岁失业男子饿20天急性肾衰](http://www.movie.hkepx.cn/movie/7359364.htm)
+- [韩雪 你是要气死妈妈吗](http://www.movie.hkepx.cn/xiju/0518845.htm)
+- [柯洁称找到了破解围棋AI的方法，只需要装弱智哪怕让AI九子也能赢，这招可行吗？是什么原理？](http://www.play.hengshemaoyi.cn/kongbu/9268198.htm)
+- [女子穿睡衣站高楼窗沿 当地回应](http://www.play.hengshemaoyi.cn/kongbu/3268208.htm)
+- [46岁张柏芝海上冲浪](http://www.play.hengshemaoyi.cn/kongbu/0525872.htm)
 - [陈伟霆 进组10多天遭换角](http://www.play.hengshemaoyi.cn/kongbu/3907054.htm)
-- [星之牧饮](http://www.daogukj.com/immmcdpl/)
-- [万字精讲方程豹轿车系列首款车型-方程S！](http://www.daogukj.com/cudoryjd/)
-- [《黑神话：钟馗》实机终极深扒，游科成为世界第一ARPG开发商的底气！【游戏之外】](http://www.movie.hkepx.cn/xiju/5435793.htm)
-- [“大不了送外卖”暴露了什么](http://www.daogukj.com/7199504)
+- [曝 iPhone17 系列国内销量超 4000 万，为何消费者仍青睐苹果？](http://www.daogukj.com/immmcdpl/)
+- [终于走回深圳了｜挑战上海走回深圳最后一集！！](http://www.daogukj.com/cudoryjd/)
+- [我的蚊子生病了，带它去看病](http://www.movie.hkepx.cn/xiju/5435793.htm)
+- [菜谱：洋葱炒蛋，家庭红烧鱼，蒜炒西兰花，辣椒炒猪腰，绿豆汤，从买菜开始，你在家随时可以复刻](http://www.daogukj.com/7199504)
 - [如何看待蒙不法分子擅闯中资营地侮辱中方员工，中方向蒙方提出交涉？](http://www.movie.hkepx.cn/xiju/2980488.htm)
-- [女子多次凌晨倒掉爱心水只为拿走空瓶，这种行为出于什么心理？从法律角度来看，捐水的店主有啥维权的办法吗？](http://www.daogukj.com/6407743)
-- [张雪称岛内查扣1辆送1辆直到两岸统一](http://www.daogukj.com/2117875)
-- [余承东官宣行业首发无网通信](http://www.play.hengshemaoyi.cn/xiju/5776596.htm)
-- [涉蚌埠普高录取工作通知为虚假文件](http://www.movie.hkepx.cn/movie/1934338.htm)
-- [男子不接受公司主动离职安排，公司设「监狱式待岗工位」，每日打卡四次并接受监控，公司这么做合适吗？](http://www.play.hengshemaoyi.cn/xiju/5489202.htm)
-- [怎么看待芬兰研究人员发现儿童的屏幕时间与青少年时期认知处理能力的正向统计关联？](http://www.movie.hkepx.cn/xiju/8773959.htm)
-- [房主反杀非法上门强拆者，陕西判了，无罪](http://www.movie.hkepx.cn/xiju/0337841.htm)
-- [张雪说送到统一为止](http://www.movie.hkepx.cn/movie/9024789.htm)
-- [哈尔滨速滑运动员截肢](http://www.play.hengshemaoyi.cn/xiju/0811131.htm)
-- [父女黄河大堤失踪 车上录音曝光](http://www.daogukj.com/9668698)
-- [乌克兰“90后战斗英雄”强硬逼宫总统](http://www.play.hengshemaoyi.cn/xiju/2169319.htm)
-- [《影之刃零》专场 State of Play 全程回顾](http://www.daogukj.com/3876959)
+- [花椒的味道那么奇怪，为什么古代最高级别的宠爱会叫“椒房之宠”呢？](http://www.daogukj.com/6407743)
+- [情侣未做安全措施女方怀孕引产索赔](http://www.daogukj.com/2117875)
+- [为什么分手后，大脑常常放大美好回忆，却淡化当初决定离开的原因？](http://www.play.hengshemaoyi.cn/xiju/5776596.htm)
+- [旭日旗校徽系AI合成 造谣者被拘](http://www.movie.hkepx.cn/movie/1934338.htm)
+- [孩子小学二年级，班主任为51个娃设53个官职，包括窗台管理员、前后门管理员等，如何评价此事？](http://www.play.hengshemaoyi.cn/xiju/5489202.htm)
+- [女童遭海蜇蜇伤进 ICU 抢救，母亲称5米外救生员未施救，景区和救生员该担责吗？被海蜇蜇伤应怎样处理？](http://www.movie.hkepx.cn/xiju/8773959.htm)
+- [解放军新锐武器：可覆盖台海与那国岛](http://www.movie.hkepx.cn/xiju/0337841.htm)
+- [泡泡玛特IP格局大变](http://www.movie.hkepx.cn/movie/9024789.htm)
+- [樊振东首秀已售超3000张票](http://www.play.hengshemaoyi.cn/xiju/0811131.htm)
+- [46岁小罗正式复出](http://www.daogukj.com/9668698)
+- [绍兴柯桥蓝天广场](http://www.play.hengshemaoyi.cn/xiju/2169319.htm)
+- [我这一生最大的罪，是把人写成了妖……](http://www.daogukj.com/3876959)
 
 </details>
 
 ## 原始来源
 
-- [真实版大炮打蚊子](https://www.baidu.com/s?wd=%E7%9C%9F%E5%AE%9E%E7%89%88%E5%A4%A7%E7%82%AE%E6%89%93%E8%9A%8A%E5%AD%90&sa=fyb_news&rsv_dl=fyb_news)
+- [外貌红利 人高马大](https://s.weibo.com/weibo?q=%E5%A4%96%E8%B2%8C%E7%BA%A2%E5%88%A9%20%E4%BA%BA%E9%AB%98%E9%A9%AC%E5%A4%A7)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c8db35c107dbf511aa5e -->
+<!-- content-fingerprint: 917e10a3c35aa23762b0 -->
