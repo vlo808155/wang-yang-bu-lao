@@ -2,11 +2,11 @@
 
 # 台风沙德尔周日或升级为超强台风
 
-> 来源：百度热搜 · 排名：第 14 位 · 热度：6468854 · 更新：2026-08-22T04:44:31+08:00
+> 来源：百度热搜 · 排名：第 14 位 · 热度：6475921 · 更新：2026-08-22T05:01:52+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“台风沙德尔周日或升级为超强台风”位列第 14 位，公开热度指标为 6468854。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“台风沙德尔周日或升级为超强台风”位列第 14 位，公开热度指标为 6475921。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：目前，今年第18号台风“沙德尔”已增强为强热带风暴级，周日或升级为超强台风级，预计26日前后穿过琉球群岛进入东海。
 
@@ -18,8 +18,8 @@
 
 ## 相关热点
 
-- [购票后未上车视为放弃席位使用权](ji-si-guang-yi.md)
-- [湖南唯一录取女生到空军预警学院报到](qu-chang-bu-duan.md)
+- [开台灯遭邻居投诉影响孩子学习](ji-si-guang-yi.md)
+- [李小冉喜提奔驰大G](qu-chang-bu-duan.md)
 - [媒体称旺旺集团遇「重大经营危机」裁员，裁员目标 1000 人左右，且要求员工剖析自身不足，这合理吗？](jing-yi-qiu-jing.md)
 - [《你咋开的车》](jiao-ta-shi-di.md)
 
@@ -29,7 +29,7 @@
 - [“假鲁迅”“假余华”泛滥 谁来管](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
 - [阿根廷4人因世界杯决赛冲突被禁赛](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
 - [歌手自曝乘网约车在高速上出车祸](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [欢子被批摆烂](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [男子被骗近800万还被骗子嘲讽](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
@@ -37,9 +37,9 @@
 <summary>展开更多相关内容</summary>
 
 - [《黑神话：钟馗》15分钟实机演示](http://www.play.hengshemaoyi.cn/kongbu/4438122.htm)
-- [李光洁：演员哪敢随便改剧本](http://www.play.hengshemaoyi.cn/kongbu/5037461.htm)
+- [遭船撞击溺亡母亲凌晨出海为赶早市](http://www.play.hengshemaoyi.cn/kongbu/5037461.htm)
 - [唐王随手捐闲钱，竟将阿萨拉扶成王！](http://www.daogukj.com/8445070)
-- [扬州钓友钓鱼钓出一袋疑似公章](http://www.play.hengshemaoyi.cn/kongbu/2112117.htm)
+- [让于东来狠心关店的房东是“恶人”吗](http://www.play.hengshemaoyi.cn/kongbu/2112117.htm)
 - [如何看待一位口腔科医生自述未给无活动性出血患者验血，患者两天后脑出血死亡，自己则被起诉漏诊？](http://www.daogukj.com/pngxbzzn/)
 - [我这一生最大的罪，是把人写成了妖……](http://www.daogukj.com/1759325)
 - [柯洁称找到了破解围棋AI的方法，只需要装弱智哪怕让AI九子也能赢，这招可行吗？是什么原理？](http://www.play.hengshemaoyi.cn/kongbu/4861680.htm)
@@ -49,10 +49,10 @@
 - [北京理工大学、南京航空航天大学等多所名校新校区搬到县城，去县城读名校是捡漏还是踩坑？会影响学生发展吗？](http://www.movie.hkepx.cn/xiju/8211914.htm)
 - [媒体称旺旺集团遇「重大经营危机」裁员，裁员目标 1000 人左右，且要求员工剖析自身不足，这合理吗？](http://www.play.hengshemaoyi.cn/kongbu/4388755.htm)
 - [河北老人养老金月领212元](http://www.movie.hkepx.cn/xiju/6367012.htm)
-- [青岛顺风车司机接单后威胁乘客加价](http://www.daogukj.com/6101072)
-- [高市早苗任内首例死刑执行](http://www.movie.hkepx.cn/xiju/0132641.htm)
-- [妻子怀二胎丈夫偷刷300万打赏女主播](http://www.play.hengshemaoyi.cn/xiju/8770689.htm)
-- [张丹丹 灵活就业本身就是一种福利](http://www.daogukj.com/6647670)
+- [沈梦辰喊了曾辉三次曾总](http://www.daogukj.com/6101072)
+- [荣耀“平板手机”会掀起形态复兴吗](http://www.movie.hkepx.cn/xiju/0132641.htm)
+- [46岁张柏芝海上冲浪](http://www.play.hengshemaoyi.cn/xiju/8770689.htm)
+- [张雅琪路人缘](http://www.daogukj.com/6647670)
 - [“快递员被罚100元后结束生命”不实](http://www.movie.hkepx.cn/movie/6171602.htm)
 - [男子被反锁在新能源汽车后备箱5小时](http://www.daogukj.com/koyzhodr/)
 - [小沈阳初舞台摔倒](http://www.movie.hkepx.cn/movie/3994978.htm)
@@ -64,13 +64,13 @@
 - [如何看待千万粉丝网红「桃黑黑」发长文称将离开互联网一段时间？](http://www.movie.hkepx.cn/xiju/7688389.htm)
 - [为什么感觉三角洲越来越没意思了？](http://www.daogukj.com/fxopudre/)
 - [《欢迎来龙餐馆》徐福和马俊生到底谁在土豆上做了手脚？](http://www.movie.hkepx.cn/xiju/1883349.htm)
-- [王者海月朵莉亚造型设计](http://www.movie.hkepx.cn/xiju/5527276.htm)
+- [青岛顺风车司机接单后威胁乘客加价](http://www.movie.hkepx.cn/xiju/5527276.htm)
 - [外卖小哥骑电动车撞持刀男子，王者荣耀全网寻人望颁发「国服孙策」奖状，如何看待这一系列暖心事迹？](http://www.movie.hkepx.cn/movie/4366171.htm)
 - [女子55元捡漏一万四项链被要求退款](http://www.movie.hkepx.cn/xiju/1036763.htm)
 - [未来五年将持续加大科技领域投入力度](http://www.daogukj.com/4716149)
-- [大众插混中型轿车起售价8.99万元](http://www.movie.hkepx.cn/xiju/5514180.htm)
+- [问界儿童车售价15800元](http://www.movie.hkepx.cn/xiju/5514180.htm)
 - [顺直大改造-反畸形审美，棒打高街帝少萝cp！](http://www.movie.hkepx.cn/xiju/1352458.htm)
-- [外交部回应朝鲜发射10余枚弹道导弹](http://www.movie.hkepx.cn/movie/0256910.htm)
+- [官方通报河北涿州代孕事件：抓获6人](http://www.movie.hkepx.cn/movie/0256910.htm)
 - [菲飞机侵入黄岩岛领空 解放军喊话警告](http://www.daogukj.com/sfpejhkp/)
 - [雨天谨防触电 如何科学避险](http://www.movie.hkepx.cn/xiju/9108938.htm)
 - [【万字硬核考据】全方位拆解《黑钟馗》-主角/怪物/战斗/剧情/符箓](http://www.play.hengshemaoyi.cn/kongbu/7173509.htm)
@@ -78,12 +78,12 @@
 - [举手之劳 亦是人间微光](http://www.movie.hkepx.cn/xiju/9671501.htm)
 - [这几个片段大家可能都听过，但你们知道其实来源于同一首歌吗](http://www.daogukj.com/6257299)
 - [什么科学发现起初看似无用，但后来证明非常重要？](http://www.movie.hkepx.cn/movie/3310178.htm)
-- [怎么评价 DeepSeek-V4-Flash-Vision-Exp 发布，多模态能力表现如何？](http://www.movie.hkepx.cn/xiju/0056213.htm)
+- [MMORPG游戏《诡秘之主》开服一小时同时在线破70万，这游戏玩起来怎么样？](http://www.movie.hkepx.cn/xiju/0056213.htm)
 - [多方回应初中生夜间遭两人无故殴打](http://www.daogukj.com/0362639)
-- [徐涛 读研贬值的只是静态价值](http://www.movie.hkepx.cn/movie/3530731.htm)
-- [让于东来狠心关店的房东是“恶人”吗](http://www.play.hengshemaoyi.cn/xiju/9525688.htm)
+- [汪苏泷本人知道这件事情吗](http://www.movie.hkepx.cn/movie/3530731.htm)
+- [郑丽文：历史对于今天的台湾非常重要](http://www.play.hengshemaoyi.cn/xiju/9525688.htm)
 - [第一次当妈妈的真实感受](http://www.daogukj.com/4889223)
-- [华为发布全球首款阔直板手机，此前被曝定价 6000-7000 元，你看好其市场前景吗？](http://www.daogukj.com/kjinzoui/)
+- [《明日方舟：终末地》「雪凇幽梦」版本前瞻预告](http://www.daogukj.com/kjinzoui/)
 - [歌手自曝乘网约车在高速上出车祸](http://www.movie.hkepx.cn/movie/8932980.htm)
 - [鸡蛋售价9天上涨15.5%](http://www.daogukj.com/4200999)
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 743f9bec23b981401614 -->
+<!-- content-fingerprint: b9df2d1b1e9195889006 -->
