@@ -2,11 +2,11 @@
 
 # 华为发布全球首款阔直板手机，此前被曝定价 6000-7000 元，你看好其市场前景吗？
 
-> 来源：知乎热榜 · 排名：第 14 位 · 热度：91 万热度 · 分类：问答 · 更新：2026-08-21T23:41:40+08:00
+> 来源：知乎热榜 · 排名：第 14 位 · 热度：89 万热度 · 分类：问答 · 更新：2026-08-22T00:03:41+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“华为发布全球首款阔直板手机，此前被曝定价 6000-7000 元，你看好其市场前景吗？”位列第 14 位，公开热度指标为 91 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“华为发布全球首款阔直板手机，此前被曝定价 6000-7000 元，你看好其市场前景吗？”位列第 14 位，公开热度指标为 89 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：IT之家消息，据 @微博数码 ，华为 Pura X View 阔直板手机今天（20 日）正式亮相。根据介绍，作为全球首款阔直板手机，新品为内容而生，在直板机身中实现了横向视野的实质性拓展。在影音、阅读、游戏等场景下，观看体验更沉浸，信息呈现更完整。阔屏从折叠走向直板，为直板机形态变革打开了新方向。 截至发稿，华为方面暂未披露这款新机的更多配置信息。 据IT之家此前报道，博主 @数码闲聊站 在本月初发文透露，某厂的阔直板新手机已 Ready，方案属于行业首发。结合该博主此前的爆料来看，新机归属华为品牌。 博主表示，这款手机的产品定义很顶级，定位不低，其它家
 
@@ -20,13 +20,13 @@
 
 - [唐王随手捐闲钱，竟将阿萨拉扶成王！](ju-yi-fan-san.md)
 - [台风沙德尔周日或升级为超强台风](rong-hui-guan-tong.md)
-- [葫芦娃的公司告了时代峰峻](ji-si-guang-yi.md)
-- [薛之谦演唱会现机器人“替身”](qu-chang-bu-duan.md)
+- [徐涛 读研贬值的只是静态价值](ji-si-guang-yi.md)
+- [日本公务人员与情人开房时开线上会议](qu-chang-bu-duan.md)
 
 ## 站内推荐
 
 - [如何看待8月21日市场监管总局公告9家车企（特斯拉，小米，小鹏等）因车门紧急拉手不醒目召回多款汽车？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [北京理工大学、南京航空航天大学等多所名校新校区搬到县城，去县城读名校是捡漏还是踩坑？会影响学生发展吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [什么科学发现起初看似无用，但后来证明非常重要？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
 - [MMORPG游戏《诡秘之主》开服一小时同时在线破70万，这游戏玩起来怎么样？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
 - [曝 iPhone17 系列国内销量超 4000 万，为何消费者仍青睐苹果？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
 - [考了驾照的人不一定会开车，你知道这是为什么吗?](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
@@ -45,46 +45,46 @@
 - ["复活吧！我的（ ）"](http://www.daogukj.com/ddnluzup/)
 - [微信聊天框 难看](http://www.daogukj.com/drzpzlze/)
 - [《明日方舟：终末地》「雪凇幽梦」版本前瞻预告](http://www.daogukj.com/eoyvlftc/)
-- [让于东来狠心关店的房东是“恶人”吗](http://www.movie.hkepx.cn/movie/2817254.htm)
+- [菲飞机侵入黄岩岛领空 解放军喊话警告](http://www.movie.hkepx.cn/movie/2817254.htm)
 - [雨天谨防触电 如何科学避险](http://www.play.hengshemaoyi.cn/xiju/8069943.htm)
 - [如何看待千万粉丝网红「桃黑黑」发长文称将离开互联网一段时间？](http://www.daogukj.com/czfcxwdu/)
 - [相声名家田立禾去世，享年91岁，你对他有哪些记忆？](http://www.movie.hkepx.cn/movie/0850868.htm)
 - [湖北快递员被罚100元结束生命不实](http://www.play.hengshemaoyi.cn/kongbu/9561535.htm)
-- [500万成本狂揽34亿 这片太恐怖了](http://www.daogukj.com/1729617)
-- [警方通报男子KTV厕所殴打女子](http://www.daogukj.com/3324715)
+- [如是书院被查封 被洗脑的家长还没醒](http://www.daogukj.com/1729617)
+- [阿根廷中场禁赛10场](http://www.daogukj.com/3324715)
 - [铁路部门通报「两人买三张票空座放零食事件」，称空座为未检票旅客座位，另两人不能占用，哪些信息值得关注？](http://www.daogukj.com/ikrqrqaw/)
 - [“快递员被罚100元后结束生命”不实](http://www.movie.hkepx.cn/xiju/0635899.htm)
-- [舒淇美成这样还有什么烦恼](http://www.play.hengshemaoyi.cn/kongbu/8841363.htm)
-- [葫芦娃的公司告了时代峰峻](http://www.daogukj.com/7019911)
+- [小沈阳摔了](http://www.play.hengshemaoyi.cn/kongbu/8841363.htm)
+- [徐涛 读研贬值的只是静态价值](http://www.daogukj.com/7019911)
 - [阿根廷4人因世界杯决赛冲突被禁赛](http://www.movie.hkepx.cn/xiju/1596108.htm)
 - [未来五年将持续加大科技领域投入力度](http://www.play.hengshemaoyi.cn/kongbu/5912571.htm)
 - [为什么感觉三角洲越来越没意思了？](http://www.movie.hkepx.cn/xiju/0929704.htm)
 - [《崩坏：星穹铁道》千星纪游PV——「众声之外」](http://www.play.hengshemaoyi.cn/kongbu/0586092.htm)
-- [李小冉喜提奔驰大G](http://www.movie.hkepx.cn/movie/7064741.htm)
+- [问界儿童车售价15800元](http://www.movie.hkepx.cn/movie/7064741.htm)
 - [我收容了100位粉丝到我的一辈子存档里！](http://www.daogukj.com/svpdmhti/)
 - [张雪机车遭查扣 李胜峰质问台当局](http://www.daogukj.com/dzqrudro/)
 - [长江存储IPO审核状态变更](http://www.movie.hkepx.cn/movie/0598553.htm)
 - [影城推出午休服务 睡2.5小时仅1元多](http://www.play.hengshemaoyi.cn/xiju/0980026.htm)
 - [为什么分手后，大脑常常放大美好回忆，却淡化当初决定离开的原因？](http://www.movie.hkepx.cn/movie/5524311.htm)
 - [这几个片段大家可能都听过，但你们知道其实来源于同一首歌吗](http://www.movie.hkepx.cn/movie/8815129.htm)
-- [如是书院被查封 被洗脑的家长还没醒](http://www.movie.hkepx.cn/movie/4122960.htm)
-- [女子55元捡漏万元奢侈品项链遭劝退款](http://www.play.hengshemaoyi.cn/xiju/4897818.htm)
+- [男子在KTV包厢厕所殴打女子被刑拘](http://www.movie.hkepx.cn/movie/4122960.htm)
+- [62岁超高龄孕妇顺利诞下男婴](http://www.play.hengshemaoyi.cn/xiju/4897818.htm)
 - [结个婚看看怎么个事](http://www.movie.hkepx.cn/movie/7903800.htm)
-- [日本公务人员与情人开房时开线上会议](http://www.movie.hkepx.cn/xiju/7617687.htm)
+- [薛之谦演唱会现机器人“替身”](http://www.movie.hkepx.cn/xiju/7617687.htm)
 - [多地为何突然严查社保缴费基数](http://www.movie.hkepx.cn/movie/6382391.htm)
 - [《 黑 神 话 咕 嘎 》终极典藏版](http://www.daogukj.com/4658626)
-- [徐涛 读研贬值的只是静态价值](http://www.play.hengshemaoyi.cn/kongbu/9068031.htm)
-- [阿根廷中场禁赛10场](http://www.movie.hkepx.cn/movie/5184280.htm)
+- [陈柏霖当庭认罪](http://www.play.hengshemaoyi.cn/kongbu/9068031.htm)
+- [F1索赔需举证时代峰峻可抗辩获利](http://www.movie.hkepx.cn/movie/5184280.htm)
 - [停更7年，我又以经典的方式玩MC](http://www.daogukj.com/hvftglso/)
-- [临沂爆炸事故1死2失联](http://www.daogukj.com/tzodbjjw/)
-- [临沂爆炸 捕鱼爆炸物](http://www.daogukj.com/9005314)
+- [世界杯决赛禁赛处罚出炉](http://www.daogukj.com/tzodbjjw/)
+- [欢子 摆烂](http://www.daogukj.com/9005314)
 - [歌手自曝乘网约车在高速上出车祸](http://www.movie.hkepx.cn/movie/6639660.htm)
-- [金龟子婚纱](http://www.play.hengshemaoyi.cn/xiju/5390600.htm)
+- [第一批用上微信按住转文字的人发声](http://www.play.hengshemaoyi.cn/xiju/5390600.htm)
 - [举手之劳 亦是人间微光](http://www.daogukj.com/5710918)
 - [曝 iPhone17 系列国内销量超 4000 万，为何消费者仍青睐苹果？](http://www.play.hengshemaoyi.cn/kongbu/9804131.htm)
-- [薛之谦演唱会现机器人“替身”](http://www.play.hengshemaoyi.cn/kongbu/9936636.htm)
+- [日本公务人员与情人开房时开线上会议](http://www.play.hengshemaoyi.cn/kongbu/9936636.htm)
 - [“假鲁迅”“假余华”泛滥 谁来管](http://www.movie.hkepx.cn/movie/1112201.htm)
-- [宁夏一化工公司爆炸事故致1死详情公布](http://www.daogukj.com/4063728)
+- [大众插混中型轿车起售价8.99万元](http://www.daogukj.com/4063728)
 - [唐王随手捐闲钱，竟将阿萨拉扶成王！](http://www.movie.hkepx.cn/movie/3217282.htm)
 
 </details>
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1084421225959d4a27e7 -->
+<!-- content-fingerprint: d6b06a4cca30fdda4631 -->
