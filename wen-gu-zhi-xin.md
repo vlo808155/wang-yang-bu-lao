@@ -2,11 +2,11 @@
 
 # 《欢迎来龙餐馆》徐福和马俊生到底谁在土豆上做了手脚？
 
-> 来源：知乎热榜 · 排名：第 14 位 · 热度：107 万热度 · 分类：问答 · 更新：2026-08-22T03:16:30+08:00
+> 来源：知乎热榜 · 排名：第 14 位 · 热度：108 万热度 · 分类：问答 · 更新：2026-08-22T03:40:01+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“《欢迎来龙餐馆》徐福和马俊生到底谁在土豆上做了手脚？”位列第 14 位，公开热度指标为 107 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“《欢迎来龙餐馆》徐福和马俊生到底谁在土豆上做了手脚？”位列第 14 位，公开热度指标为 108 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：《欢迎来到龙餐馆》徐福和马俊生到底谁在土豆上做了手脚？
 
@@ -18,16 +18,16 @@
 
 ## 相关热点
 
-- [人族少女混入兽人国，还引发了一场猫猫二当家和黄狗侠客的绝世大战](ju-yi-fan-san.md)
+- [《 黑 神 话 咕 嘎 》终极典藏版](ju-yi-fan-san.md)
 - [台风沙德尔周日或升级为超强台风](rong-hui-guan-tong.md)
-- [徐涛 读研贬值的只是静态价值](ji-si-guang-yi.md)
+- [丈夫拍妻子出轨却因妨害隐私获刑](ji-si-guang-yi.md)
 - [女子游泳馆洗澡遭偷拍 涉事者被行拘](qu-chang-bu-duan.md)
 
 ## 站内推荐
 
 - [问界儿童车开启预售，售价 15800，如何评价其市场竞争力？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
 - [北京理工大学、南京航空航天大学等多所名校新校区搬到县城，去县城读名校是捡漏还是踩坑？会影响学生发展吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [如何看待千万粉丝网红「桃黑黑」发长文称将离开互联网一段时间？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [为什么感觉三角洲越来越没意思了？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
 - [柯洁称找到了破解围棋AI的方法，只需要装弱智哪怕让AI九子也能赢，这招可行吗？是什么原理？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
 - [鼬的十拳剑从哪弄到的？他死后十拳剑消失了吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
@@ -36,56 +36,56 @@
 <details>
 <summary>展开更多相关内容</summary>
 
-- [顺直大改造-反畸形审美，棒打高街帝少萝cp！](http://www.movie.hkepx.cn/movie/2076571.htm)
-- [丈夫拍妻子出轨却因妨害隐私获刑](http://www.play.hengshemaoyi.cn/xiju/0493031.htm)
-- [光纤龙头上半年净利暴涨888.88%](http://www.movie.hkepx.cn/xiju/6447727.htm)
-- [停更7年，我又以经典的方式玩MC](http://www.play.hengshemaoyi.cn/kongbu/0765888.htm)
+- [《你咋开的车》](http://www.movie.hkepx.cn/movie/2076571.htm)
+- [河北老人养老金月领212元](http://www.play.hengshemaoyi.cn/xiju/0493031.htm)
+- [男子被骗近800万还被骗子嘲讽](http://www.movie.hkepx.cn/xiju/6447727.htm)
+- [父母给我8k去内蒙，我看向自行车](http://www.play.hengshemaoyi.cn/kongbu/0765888.htm)
 - [多元消费场景激发经济澎湃活力](http://www.daogukj.com/ujykjkqc/)
-- [《 黑 神 话 咕 嘎 》终极典藏版](http://www.play.hengshemaoyi.cn/xiju/7125638.htm)
+- [顺直大改造-反畸形审美，棒打高街帝少萝cp！](http://www.play.hengshemaoyi.cn/xiju/7125638.htm)
 - [《下一个是谁》第七季（3）](http://www.daogukj.com/ddnluzup/)
-- [张雅琪路人缘](http://www.daogukj.com/drzpzlze/)
-- [唐王随手捐闲钱，竟将阿萨拉扶成王！](http://www.daogukj.com/eoyvlftc/)
-- [高市早苗任内首例死刑执行](http://www.movie.hkepx.cn/movie/2817254.htm)
+- [未检票上车第三方不能处置该席位](http://www.daogukj.com/drzpzlze/)
+- [时隔一年！久违的整合包生存，缆车末日惊变 100 天！绝不烂尾！！！](http://www.daogukj.com/eoyvlftc/)
+- [郑丽文：历史对于今天的台湾非常重要](http://www.movie.hkepx.cn/movie/2817254.htm)
 - [雨天谨防触电 如何科学避险](http://www.play.hengshemaoyi.cn/xiju/8069943.htm)
-- [为什么感觉三角洲越来越没意思了？](http://www.daogukj.com/czfcxwdu/)
+- [如何看待千万粉丝网红「桃黑黑」发长文称将离开互联网一段时间？](http://www.daogukj.com/czfcxwdu/)
 - [媒体称旺旺集团遇「重大经营危机」裁员，裁员目标 1000 人左右，且要求员工剖析自身不足，这合理吗？](http://www.movie.hkepx.cn/movie/0850868.htm)
 - [湖北快递员被罚100元结束生命不实](http://www.play.hengshemaoyi.cn/kongbu/9561535.htm)
 - [欢子被批摆烂](http://www.daogukj.com/1729617)
 - [欢子 摆烂](http://www.daogukj.com/3324715)
 - [怎么评价 DeepSeek-V4-Flash-Vision-Exp 发布，多模态能力表现如何？](http://www.daogukj.com/ikrqrqaw/)
 - [“快递员被罚100元后结束生命”不实](http://www.movie.hkepx.cn/xiju/0635899.htm)
-- [第一次当妈妈的真实感受](http://www.play.hengshemaoyi.cn/kongbu/8841363.htm)
-- [徐涛 读研贬值的只是静态价值](http://www.daogukj.com/7019911)
+- [披荆斩棘一公分数](http://www.play.hengshemaoyi.cn/kongbu/8841363.htm)
+- [丈夫拍妻子出轨却因妨害隐私获刑](http://www.daogukj.com/7019911)
 - [阿根廷4人因世界杯决赛冲突被禁赛](http://www.movie.hkepx.cn/xiju/1596108.htm)
 - [未来五年将持续加大科技领域投入力度](http://www.play.hengshemaoyi.cn/kongbu/5912571.htm)
 - [创造拼音时，为什么ü不采用v？](http://www.movie.hkepx.cn/xiju/0929704.htm)
 - [每说一个方字，铜人阵难度提升10%](http://www.play.hengshemaoyi.cn/kongbu/0586092.htm)
-- [46岁张柏芝海上冲浪](http://www.movie.hkepx.cn/movie/7064741.htm)
+- [学者：俄罗斯对西方不再抱有希望](http://www.movie.hkepx.cn/movie/7064741.htm)
 - [《崩坏：星穹铁道》千星纪游PV——「众声之外」](http://www.daogukj.com/svpdmhti/)
 - [日本公务人员与情人开房时开线上会议](http://www.daogukj.com/dzqrudro/)
-- [青岛顺风车司机接单后威胁乘客加价](http://www.movie.hkepx.cn/movie/0598553.htm)
+- [这就是伯牙子期](http://www.movie.hkepx.cn/movie/0598553.htm)
 - [影城推出午休服务 睡2.5小时仅1元多](http://www.play.hengshemaoyi.cn/xiju/0980026.htm)
-- [为什么诺兰要在《奥德赛》中加入原著没有的西农(Sinon)？](http://www.movie.hkepx.cn/movie/5524311.htm)
+- [华为发布全球首款阔直板手机，此前被曝定价 6000-7000 元，你看好其市场前景吗？](http://www.movie.hkepx.cn/movie/5524311.htm)
 - [菜谱：洋葱炒蛋，家庭红烧鱼，蒜炒西兰花，辣椒炒猪腰，绿豆汤，从买菜开始，你在家随时可以复刻](http://www.movie.hkepx.cn/movie/8815129.htm)
-- [男子被骗近800万还被骗子嘲讽](http://www.movie.hkepx.cn/movie/4122960.htm)
-- [问界儿童车售价15800元](http://www.play.hengshemaoyi.cn/xiju/4897818.htm)
-- [时隔一年！久违的整合包生存，缆车末日惊变 100 天！绝不烂尾！！！](http://www.movie.hkepx.cn/movie/7903800.htm)
+- [男子被反锁在新能源汽车后备箱5小时](http://www.movie.hkepx.cn/movie/4122960.htm)
+- [妻子怀二胎丈夫偷刷300万打赏女主播](http://www.play.hengshemaoyi.cn/xiju/4897818.htm)
+- [唐王随手捐闲钱，竟将阿萨拉扶成王！](http://www.movie.hkepx.cn/movie/7903800.htm)
 - [李小冉喜提奔驰大G](http://www.movie.hkepx.cn/xiju/7617687.htm)
 - [多地为何突然严查社保缴费基数](http://www.movie.hkepx.cn/movie/6382391.htm)
-- [父母给我8k去内蒙，我看向自行车](http://www.daogukj.com/4658626)
-- [河北老人养老金月领212元](http://www.play.hengshemaoyi.cn/kongbu/9068031.htm)
-- [针灸师借身体检测占女护士便宜](http://www.movie.hkepx.cn/movie/5184280.htm)
-- [我的蚊子生病了，带它去看病](http://www.daogukj.com/hvftglso/)
+- [《明日方舟：终末地》「雪凇幽梦」版本前瞻预告](http://www.daogukj.com/4658626)
+- [梵克雅宝回应女子55元捡漏项链](http://www.play.hengshemaoyi.cn/kongbu/9068031.htm)
+- [汪苏泷本人知道这件事情吗](http://www.movie.hkepx.cn/movie/5184280.htm)
+- [这几个片段大家可能都听过，但你们知道其实来源于同一首歌吗](http://www.daogukj.com/hvftglso/)
 - [官方通报旅客买票占座放零食事件](http://www.daogukj.com/tzodbjjw/)
-- [警方通报男子KTV厕所殴打女子](http://www.daogukj.com/9005314)
+- [张雅琪路人缘](http://www.daogukj.com/9005314)
 - [歌手自曝乘网约车在高速上出车祸](http://www.movie.hkepx.cn/movie/6639660.htm)
-- [GAI说艾热去歌手吧](http://www.play.hengshemaoyi.cn/xiju/5390600.htm)
+- [第一次当妈妈的真实感受](http://www.play.hengshemaoyi.cn/xiju/5390600.htm)
 - [我收容了100位粉丝到我的一辈子存档里！](http://www.daogukj.com/5710918)
 - [柯洁称找到了破解围棋AI的方法，只需要装弱智哪怕让AI九子也能赢，这招可行吗？是什么原理？](http://www.play.hengshemaoyi.cn/kongbu/9804131.htm)
 - [女子游泳馆洗澡遭偷拍 涉事者被行拘](http://www.play.hengshemaoyi.cn/kongbu/9936636.htm)
 - [“假鲁迅”“假余华”泛滥 谁来管](http://www.movie.hkepx.cn/movie/1112201.htm)
-- [医院能办结婚证了](http://www.daogukj.com/4063728)
-- [人族少女混入兽人国，还引发了一场猫猫二当家和黄狗侠客的绝世大战](http://www.movie.hkepx.cn/movie/3217282.htm)
+- [官方通报河北涿州代孕事件：抓获6人](http://www.daogukj.com/4063728)
+- [《 黑 神 话 咕 嘎 》终极典藏版](http://www.movie.hkepx.cn/movie/3217282.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2fde04d3f4ba32007f9b -->
+<!-- content-fingerprint: eeffef9d942c71a3479e -->
