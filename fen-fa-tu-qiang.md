@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 直击苏超：苏州vs南京
+# 唐九洲 不能再有人退赛了
 
-> 来源：百度热搜 · 排名：第 16 位 · 热度：6270917 · 更新：2026-08-22T20:10:33+08:00
+> 来源：微博热搜 · 排名：第 17 位 · 热度：347414 · 分类：综艺 · 更新：2026-08-22T20:59:25+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“直击苏超：苏州vs南京”位列第 16 位，公开热度指标为 6270917。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“唐九洲 不能再有人退赛了”位列第 17 位，公开热度指标为 347414，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：苏超第十八周烽火再燃，苏州队主场迎战南京队。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `综艺`
 
 ## 相关热点
 
-- [王菲字体](wang-yang-bu-lao.md)
-- [女兵放弃本科从军8年后军士专升本](xuan-liang-ci-gu.md)
-- [怎么看 OpenCode 找了很多供应商，都找不到 DeepSeek 涨价前原厂的价格？](zao-bi-tou-guang.md)
-- [上学都被没收过哪些东西？](nang-ying-ying-xue.md)
+- [台湾网红馆长敬张雪是条汉子](wang-yang-bu-lao.md)
+- [陈柏霖等台湾艺人因逃避兵役首度被传唤出庭，当庭认罪，哪些信息值得关注？为什么这么多台艺人要冒这个风险？](xuan-liang-ci-gu.md)
+- [吃蜘蛛眼就可以飞去末地外岛？！这个bug简直是艺术品！](zao-bi-tou-guang.md)
+- [已有约1000家兰州拉面变为青海拉面](nang-ying-ying-xue.md)
 
 ## 站内推荐
 
 - [严肃观看儿子的历史记录](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [9秒39！中国机器人打破博尔特百米成绩](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [湖南祁东3人迷晕孩童系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [老人40多年的劳力士丢了 是老伴遗物](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [闽超：厦门vs莆田](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [老人40多年的劳力士丢了 是老伴遗物](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [王菲去看了那英演唱会](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [Angelababy像是来和我结婚的](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [赫尔城VS曼联](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [台湾节目嘉宾说北京没有冰箱引群嘲](http://www.movie.hkepx.cn/xiju/4248389.htm)
-- [世界人形机器人运动会赛程](http://www.daogukj.com/8479586)
-- [《原神》过场动画-「『复活』之时将至」](http://www.movie.hkepx.cn/xiju/6912788.htm)
-- [ACC辅助驾驶追撞致3人死亡](http://www.movie.hkepx.cn/movie/7872338.htm)
+- [网友把蔡徐坤当路人p掉了](http://www.daogukj.com/8479586)
+- [人族少女混入兽人国，还引发了一场猫猫二当家和黄狗侠客的绝世大战](http://www.movie.hkepx.cn/xiju/6912788.htm)
+- [美军机过航台海有何意图](http://www.movie.hkepx.cn/movie/7872338.htm)
 - [我这一生最大的罪，是把人写成了妖……](http://www.play.hengshemaoyi.cn/xiju/9839884.htm)
 - [亚朵卖枕头被子收入快赶上酒店主业](http://www.play.hengshemaoyi.cn/xiju/1600527.htm)
-- [您好 没有为您拼命的义务 #乐意效劳](http://www.movie.hkepx.cn/movie/5531579.htm)
-- [“听劝版”低糖旺仔牛奶](http://www.daogukj.com/3390513)
+- [世界人形机器人运动会赛程](http://www.movie.hkepx.cn/movie/5531579.htm)
+- [必须彻查多少甲醛白菜已流入市场](http://www.daogukj.com/3390513)
 - [严肃观看儿子的历史记录](http://www.daogukj.com/6886049)
 - [《GTA6》遭大规模泄露：两段实机视频、一张完整地图，R星紧急发起DMCA投诉，你怎么看？](http://www.movie.hkepx.cn/xiju/1482774.htm)
-- [⚡️很恐怖游戏，使我大叫⚡️](http://www.daogukj.com/9420831)
-- [这些“小毛病”别不当回事](http://www.play.hengshemaoyi.cn/kongbu/5724095.htm)
-- [特朗普：如果需要将出动美军干预债市](http://www.play.hengshemaoyi.cn/kongbu/1788236.htm)
-- [女孩求职被拒发现自己竟是“精神病”](http://www.daogukj.com/5545756)
-- [李灿荣全中文主持](http://www.movie.hkepx.cn/movie/5270539.htm)
-- [如何看待高校录取通知书回归「一页纸」后，清华大学推出立体二校门版「入学纪念证书」？](http://www.daogukj.com/3116329)
-- [男子调包未婚妻五金后典当骗208万获刑](http://www.play.hengshemaoyi.cn/xiju/9707342.htm)
+- [2026村超总决赛](http://www.daogukj.com/9420831)
+- [女孩求职被拒发现自己竟是“精神病”](http://www.play.hengshemaoyi.cn/kongbu/5724095.htm)
+- [晋江作者大会](http://www.play.hengshemaoyi.cn/kongbu/1788236.htm)
+- [三张银行卡，初始金额人民币1亿，1万，1元，日利息分别是0.01%，1%，10%，怎么选择呢？](http://www.daogukj.com/5545756)
+- [多方回应23楼开灯被对面20楼投诉](http://www.movie.hkepx.cn/movie/5270539.htm)
+- [【纪录片】守护解放西·探案季 第十集 难以“置信”](http://www.daogukj.com/3116329)
+- [白菜蘸甲醛溶液装车运往外地，涉事人员面临哪些处罚？为何此类事件屡禁不止？](http://www.play.hengshemaoyi.cn/xiju/9707342.htm)
 - ["复活吧！我的（ ）"](http://www.movie.hkepx.cn/xiju/0541259.htm)
-- [李昀锐和“闪电”赛跑被瞬间反超](http://www.movie.hkepx.cn/xiju/2275697.htm)
-- [湖南祁东3人迷晕孩童系谣言](http://www.play.hengshemaoyi.cn/xiju/6577034.htm)
-- [老人40多年的劳力士丢了 是老伴遗物](http://www.movie.hkepx.cn/xiju/4577281.htm)
-- [曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？](http://www.movie.hkepx.cn/xiju/2665258.htm)
-- [退休后，把全国的县城都逛一遍这主意怎么样？](http://www.daogukj.com/5555418)
-- [什么操作会对电脑造成永久性伤害？](http://www.play.hengshemaoyi.cn/xiju/3747188.htm)
-- [西安一影城推出午休服务，每月 39.9 元还有免费充电、咖啡，这一服务怎么样？你愿意花钱去影院午休吗？](http://www.daogukj.com/6942144)
-- [英雄联盟的"连招"概念为什么消失了？](http://www.movie.hkepx.cn/movie/5277782.htm)
-- [歼-16首赴中东是否可能迎来出口机会](http://www.movie.hkepx.cn/movie/8593003.htm)
-- [被控致婴儿严重疾病 雅培赔超45亿](http://www.daogukj.com/8549389)
-- [逐玉长月烬明版权费上千万](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
-- [本关最优解：放70个窝瓜僵尸 【bilibilionly同人扶持计划】](http://www.movie.hkepx.cn/movie/3709798.htm)
-- [《下一个是谁》第七季（3）](http://www.daogukj.com/bybxufrl/)
-- [龙餐馆](http://www.play.hengshemaoyi.cn/kongbu/3402530.htm)
-- [台湾网红馆长敬张雪是条汉子](http://www.play.hengshemaoyi.cn/kongbu/9522548.htm)
-- [与已婚男开房180次保险员称谈业务](http://www.daogukj.com/8485976)
-- [55元捡漏1.41万项链 平台补偿5元](http://www.movie.hkepx.cn/movie/7956729.htm)
-- [四川：一条路这样穿越大凉山](http://www.daogukj.com/ipvwmaiv/)
-- [罗永浩公关称曾劝西贝拦住贾国龙，现在复盘的话哪些细节值得一聊？若当时真拦住了，会有怎样的不同？](http://www.play.hengshemaoyi.cn/kongbu/7538769.htm)
-- [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](http://www.movie.hkepx.cn/xiju/3982276.htm)
+- [墨香铜臭 亿级版权](http://www.movie.hkepx.cn/xiju/2275697.htm)
+- [王菲去看了那英演唱会](http://www.play.hengshemaoyi.cn/xiju/6577034.htm)
+- [Angelababy像是来和我结婚的](http://www.movie.hkepx.cn/xiju/4577281.htm)
+- [《黑神话：钟馗》15分钟实机演示](http://www.movie.hkepx.cn/xiju/2665258.htm)
+- [罗永浩公关称曾劝西贝拦住贾国龙，现在复盘的话哪些细节值得一聊？若当时真拦住了，会有怎样的不同？](http://www.daogukj.com/5555418)
+- [黑乌龟历险记vol.1](http://www.play.hengshemaoyi.cn/xiju/3747188.htm)
+- [您好 没有为您拼命的义务 #乐意效劳](http://www.daogukj.com/6942144)
+- [举手之劳 亦是人间微光](http://www.movie.hkepx.cn/movie/5277782.htm)
+- [下赛季东契奇肯定拥有无限开火权，他拿到常规赛MVP的概率有多大？](http://www.movie.hkepx.cn/movie/8593003.htm)
+- [中国E-bike在国外爆火](http://www.daogukj.com/8549389)
+- [李昀锐和机器人“闪电”百米赛跑](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
+- [《下一个是谁》第七季（3）](http://www.movie.hkepx.cn/movie/3709798.htm)
+- [男子患癌在车间自缢 公司赔20余万](http://www.daogukj.com/bybxufrl/)
+- [披荆斩棘直播](http://www.play.hengshemaoyi.cn/kongbu/3402530.htm)
+- [怎么看 OpenCode 找了很多供应商，都找不到 DeepSeek 涨价前原厂的价格？](http://www.play.hengshemaoyi.cn/kongbu/9522548.htm)
+- [王菲给那英送花篮了](http://www.daogukj.com/8485976)
+- [9秒39！中国机器人打破博尔特百米成绩](http://www.movie.hkepx.cn/movie/7956729.htm)
+- [凡人修仙传动漫188集观众满意吗？](http://www.daogukj.com/ipvwmaiv/)
+- [年轻人开始流行「养砖头」，这种看似无意义的爱好为什么会戳中年轻人的心？「养砖头」要注意什么？](http://www.play.hengshemaoyi.cn/kongbu/7538769.htm)
+- [当1000倍计量的毒品进入身体，会发生什么？](http://www.movie.hkepx.cn/xiju/3982276.htm)
 - [广东一车主把海鲜忘在车里4天，海鲜腐烂生了很多蛆，车是密封的，虫卵是从哪来的啊？](http://www.movie.hkepx.cn/xiju/0351825.htm)
 - [怎么看彭博社发布的「美国 AI 优势正在被中国迅速缩小」？](http://www.movie.hkepx.cn/movie/9051024.htm)
-- [财政金融协同发力促内需](http://www.movie.hkepx.cn/movie/1479042.htm)
-- [晋江作者大会](http://www.movie.hkepx.cn/xiju/7703550.htm)
-- [华润置地香港新盘创纪录](http://www.play.hengshemaoyi.cn/xiju/4193543.htm)
-- [三张银行卡，初始金额人民币1亿，1万，1元，日利息分别是0.01%，1%，10%，怎么选择呢？](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
-- [世界机器人大会“新本领”拉满](http://www.daogukj.com/jzemyffu/)
-- [女兵放弃本科从军8年后军士专升本](http://www.movie.hkepx.cn/movie/7933914.htm)
-- [蘸甲醛的大白菜正运往江苏安徽等地](http://www.play.hengshemaoyi.cn/xiju/3481756.htm)
-- [辟谣周榜｜温州一建筑被吹塌系谣言](http://www.daogukj.com/0746616)
-- [怎么看 OpenCode 找了很多供应商，都找不到 DeepSeek 涨价前原厂的价格？](http://www.play.hengshemaoyi.cn/kongbu/7714631.htm)
-- [年轻人开始流行「养砖头」，这种看似无意义的爱好为什么会戳中年轻人的心？「养砖头」要注意什么？](http://www.movie.hkepx.cn/movie/4117269.htm)
+- [暑期旅游市场迸发新活力](http://www.movie.hkepx.cn/movie/1479042.htm)
+- [龙餐馆](http://www.movie.hkepx.cn/xiju/7703550.htm)
+- [女孩652分考入军校 太爷爷是红军烈士](http://www.play.hengshemaoyi.cn/xiju/4193543.htm)
+- [如何评价电影《爸爸咪呀》？](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
+- [具身智能机器人正加速迈向应用](http://www.daogukj.com/jzemyffu/)
+- [陈柏霖等台湾艺人因逃避兵役首度被传唤出庭，当庭认罪，哪些信息值得关注？为什么这么多台艺人要冒这个风险？](http://www.movie.hkepx.cn/movie/7933914.htm)
+- [华润置地香港新盘创纪录](http://www.play.hengshemaoyi.cn/xiju/3481756.htm)
+- [退休后，把全国的县城都逛一遍这主意怎么样？](http://www.daogukj.com/0746616)
+- [吃蜘蛛眼就可以飞去末地外岛？！这个bug简直是艺术品！](http://www.play.hengshemaoyi.cn/kongbu/7714631.htm)
+- [《牛莱》](http://www.movie.hkepx.cn/movie/4117269.htm)
 
 </details>
 
 ## 原始来源
 
-- [直击苏超：苏州vs南京](https://www.baidu.com/s?wd=%E7%9B%B4%E5%87%BB%E8%8B%8F%E8%B6%85%EF%BC%9A%E8%8B%8F%E5%B7%9Evs%E5%8D%97%E4%BA%AC&sa=fyb_news&rsv_dl=fyb_news)
+- [唐九洲 不能再有人退赛了](https://s.weibo.com/weibo?q=%E5%94%90%E4%B9%9D%E6%B4%B2%20%E4%B8%8D%E8%83%BD%E5%86%8D%E6%9C%89%E4%BA%BA%E9%80%80%E8%B5%9B%E4%BA%86)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 47b9e12d6490d50486d1 -->
+<!-- content-fingerprint: d121e0f3c6797ae44383 -->
