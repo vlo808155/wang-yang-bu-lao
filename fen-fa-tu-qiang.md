@@ -2,11 +2,11 @@
 
 # 韩国明年2月开始禁止吃狗肉
 
-> 来源：百度热搜 · 排名：第 16 位 · 热度：6275102 · 更新：2026-08-23T01:53:07+08:00
+> 来源：百度热搜 · 排名：第 16 位 · 热度：6274263 · 更新：2026-08-23T02:09:26+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“韩国明年2月开始禁止吃狗肉”位列第 16 位，公开热度指标为 6275102。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“韩国明年2月开始禁止吃狗肉”位列第 16 位，公开热度指标为 6274263。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 来源公开摘要显示：2027年2月，韩国禁食狗肉法案将全面生效，距今仅剩数月。按传统习俗，韩国人三伏天喝狗肉汤滋补，这是狗肉馆消费旺季。受宠物饲养普及和动物福利意识提升影响，韩国社会舆论明显转向，此前民调显示超八成民众支持禁令。
 
@@ -49,9 +49,9 @@
 - [如何看待中国传媒大学拟新增「游戏科学与技术」和「电子竞技」两个游戏类专业？对考生报考有何建议？](http://www.daogukj.com/9420831)
 - [亚朵卖枕头被子收入快赶上酒店主业](http://www.play.hengshemaoyi.cn/kongbu/5724095.htm)
 - [上学都被没收过哪些东西？](http://www.play.hengshemaoyi.cn/kongbu/1788236.htm)
-- [男子自驾3500公里送儿子去新疆上学](http://www.daogukj.com/5545756)
+- [司机不满后车喇叭催促恶意别车被罚款](http://www.daogukj.com/5545756)
 - [女兵放弃本科从军8年后军士专升本](http://www.movie.hkepx.cn/movie/5270539.htm)
-- [两部门对福建启动防汛防台风应急响应](http://www.daogukj.com/3116329)
+- [男子错过服务区找了个“野生”充电桩](http://www.daogukj.com/3116329)
 - [郭晓东张睿 越看越心酸](http://www.play.hengshemaoyi.cn/xiju/9707342.htm)
 - ["复活吧！我的（ ）"](http://www.movie.hkepx.cn/xiju/0541259.htm)
 - [机器人跳拉丁有多惊艳](http://www.movie.hkepx.cn/xiju/2275697.htm)
@@ -60,32 +60,32 @@
 - [新赛季第一战，曼联 0-2 赫尔城，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/2665258.htm)
 - [林肯号危机「吹哨人」遭清算，因曝光林肯号糟糕处境，美国军报总编辑、发行人、记者均被解雇，如何看待此事？](http://www.daogukj.com/5555418)
 - [西安一影城推出午休服务，每月 39.9 元还有免费充电、咖啡，这一服务怎么样？你愿意花钱去影院午休吗？](http://www.play.hengshemaoyi.cn/xiju/3747188.htm)
-- [宣萱现身古天乐演唱会上演世纪拥抱](http://www.daogukj.com/6942144)
+- [女孩求职被拒发现自己竟是“精神病”](http://www.daogukj.com/6942144)
 - [曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？](http://www.movie.hkepx.cn/movie/5277782.htm)
-- [“速成车”的危害有多大](http://www.movie.hkepx.cn/movie/8593003.htm)
+- [中国大模型把美国AI逼到墙角](http://www.movie.hkepx.cn/movie/8593003.htm)
 - [住破房穿20块衣服男子20年攒789万](http://www.daogukj.com/8549389)
-- [披荆斩棘排名](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
+- [9秒39！中国机器人打破博尔特百米成绩](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
 - [如何看待现在好多小学初中生身高一米八？](http://www.movie.hkepx.cn/movie/3709798.htm)
 - [到底是「女主播隐瞒已婚诱导粉丝打赏2500万」，还是「榜一大哥敲诈式维权」？此事关键在哪？](http://www.daogukj.com/bybxufrl/)
 - [宇树机器人100米预赛小组垫底](http://www.play.hengshemaoyi.cn/kongbu/3402530.htm)
 - [人民日报谈火车零食占座](http://www.play.hengshemaoyi.cn/kongbu/9522548.htm)
 - [小沈阳投诉《披荆斩棘》导演组](http://www.daogukj.com/8485976)
 - [《下一个是谁》第七季（3）](http://www.movie.hkepx.cn/movie/7956729.htm)
-- [机器人和丁宁切磋球技](http://www.daogukj.com/ipvwmaiv/)
+- [美伊进入经济战 中东局势何去何从](http://www.daogukj.com/ipvwmaiv/)
 - [如何看待高校录取通知书回归「一页纸」后，清华大学推出立体二校门版「入学纪念证书」？](http://www.play.hengshemaoyi.cn/kongbu/7538769.htm)
 - [上海一餐厅订餐须用国外软件？不实](http://www.movie.hkepx.cn/xiju/3982276.htm)
 - [三张银行卡，初始金额人民币1亿，1万，1元，日利息分别是0.01%，1%，10%，怎么选择呢？](http://www.movie.hkepx.cn/xiju/0351825.htm)
-- [白血病不再是不治之症](http://www.movie.hkepx.cn/movie/9051024.htm)
+- [亚朵“枕头被子”收入逼近主业](http://www.movie.hkepx.cn/movie/9051024.htm)
 - [暑期旅游市场迸发新活力](http://www.movie.hkepx.cn/movie/1479042.htm)
 - [胖东来生活广场顾客更多了：7点就排队](http://www.movie.hkepx.cn/xiju/7703550.htm)
 - [约1000家兰州拉面店完成门头更换](http://www.play.hengshemaoyi.cn/xiju/4193543.htm)
-- [美伊进入经济战 中东局势何去何从](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
+- [白血病不再是不治之症](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
 - [具身智能机器人正加速迈向应用](http://www.daogukj.com/jzemyffu/)
 - [曾被狼群抚养12年狼孩去世](http://www.movie.hkepx.cn/movie/7933914.htm)
 - [那英边唱边哭](http://www.play.hengshemaoyi.cn/xiju/3481756.htm)
 - [王传君说的是乔任梁吗](http://www.daogukj.com/0746616)
 - [零食占座当事人母亲发声](http://www.play.hengshemaoyi.cn/kongbu/7714631.htm)
-- [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](http://www.movie.hkepx.cn/movie/4117269.htm)
+- [怎么看 DeepSeek 8 月22 日再调整定价，周末全天统一按低谷价收费？](http://www.movie.hkepx.cn/movie/4117269.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 767cd4239cc77a449302 -->
+<!-- content-fingerprint: 3c02045a4f0718e19dd7 -->
