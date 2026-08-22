@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？
+# 你和孩子都爱吃的东西，你会自己不吃留给孩子，还是自己吃？
 
-> 来源：知乎热榜 · 排名：第 15 位 · 热度：78 万热度 · 分类：问答 · 更新：2026-08-23T00:55:16+08:00
+> 来源：知乎热榜 · 排名：第 15 位 · 热度：79 万热度 · 分类：问答 · 更新：2026-08-23T01:13:05+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？”位列第 15 位，公开热度指标为 78 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“你和孩子都爱吃的东西，你会自己不吃留给孩子，还是自己吃？”位列第 15 位，公开热度指标为 79 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：曹云金巡演砸挂郭德纲：十六年师徒恩怨再掀波澜
+来源公开摘要显示：比如家里只剩下一份的甜品，或者你很喜欢的零食，你会怎么选？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -20,16 +20,16 @@
 
 - [挑战让精神小妹一天花1500，看她怎么花](jing-yi-qiu-jing.md)
 - [9秒39！中国机器人打破博尔特百米成绩](jiao-ta-shi-di.md)
-- [偶遇朱志鑫游泳](shi-shi-qiu-shi.md)
-- [你会花20多万买vala pro吗](chi-zhi-yi-heng.md)
+- [郭晓东张睿 越看越心酸](shi-shi-qiu-shi.md)
+- [专家：座位是给人坐的不是来放零食的](chi-zhi-yi-heng.md)
 
 ## 站内推荐
 
 - [宇树预赛小组垫底 回应缩减参赛项目](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
 - [80岁西班牙“狼孩”去世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [美伊进入经济战 中东局势何去何从](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [你会花20多万买vala pro吗](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
 - [零食占座当事人母亲发声](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [你和孩子都爱吃的东西，你会自己不吃留给孩子，还是自己吃？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
@@ -37,53 +37,53 @@
 <summary>展开更多相关内容</summary>
 
 - [【战双帕弥什】「于频率中相汇」全球线上音乐会回顾](http://www.daogukj.com/baxpihzh/)
-- [华晨宇回应发型](http://www.play.hengshemaoyi.cn/kongbu/2062726.htm)
+- [SuperJunior出场太帅了](http://www.play.hengshemaoyi.cn/kongbu/2062726.htm)
 - [怎么看彭博社发布的「美国 AI 优势正在被中国迅速缩小」？](http://www.daogukj.com/1315659)
 - [《黑神话：钟馗》15分钟实机演示](http://www.play.hengshemaoyi.cn/xiju/2704335.htm)
 - [9秒39！中国机器人打破博尔特百米成绩](http://www.daogukj.com/lumregqz/)
 - [年轻人开始流行「养砖头」，这种看似无意义的爱好为什么会戳中年轻人的心？「养砖头」要注意什么？](http://www.daogukj.com/kwbyfzbo/)
-- [机器人跑出9秒32打破人类百米纪录](http://www.movie.hkepx.cn/movie/4575020.htm)
+- [55元捡漏1.41万项链女子获5元补偿](http://www.movie.hkepx.cn/movie/4575020.htm)
 - [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](http://www.daogukj.com/1670070)
 - [总犯困、代谢慢？可能不是上班累的](http://www.play.hengshemaoyi.cn/xiju/3416396.htm)
 - [住破房穿20块衣服男子20年攒789万](http://www.daogukj.com/1634277)
 - [人民日报谈火车零食占座](http://www.daogukj.com/5380912)
 - [零食占座当事人母亲发声](http://www.movie.hkepx.cn/xiju/8054512.htm)
-- [网友把蔡徐坤当路人p掉了](http://www.daogukj.com/7644617)
-- [《走马》夯爆了](http://www.daogukj.com/5432364)
-- [在《新警察故事》突击劫匪巢穴行动中，成龙犯下了哪些战术错误？](http://www.play.hengshemaoyi.cn/xiju/0868894.htm)
-- [郭敬明剧组减肥方法](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
+- [机器人和丁宁切磋球技](http://www.daogukj.com/7644617)
+- [4步手机自查身份证是否被别人绑定](http://www.daogukj.com/5432364)
+- [您好 没有为您拼命的义务 #乐意效劳](http://www.play.hengshemaoyi.cn/xiju/0868894.htm)
+- [曾被狼群抚养12年狼孩去世](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
 - [实探追觅造车办公地：工位大片闲置](http://www.play.hengshemaoyi.cn/xiju/2616443.htm)
-- [住破房穿20块衣服男子20年攒下789万](http://www.daogukj.com/0678164)
+- [台湾节目嘉宾说北京没有冰箱引群嘲](http://www.daogukj.com/0678164)
 - [人族少女混入兽人国，还引发了一场猫猫二当家和黄狗侠客的绝世大战](http://www.daogukj.com/4244457)
-- [一家10口齐上阵送女娃上军校](http://www.movie.hkepx.cn/movie/9295074.htm)
+- [在《新警察故事》突击劫匪巢穴行动中，成龙犯下了哪些战术错误？](http://www.movie.hkepx.cn/movie/9295074.htm)
 - [如何看待高校录取通知书回归「一页纸」后，清华大学推出立体二校门版「入学纪念证书」？](http://www.play.hengshemaoyi.cn/xiju/0913157.htm)
 - [人民日报：处置甲醛白菜必须从速从严](http://www.movie.hkepx.cn/movie/2532435.htm)
-- [成都车展“百分百坡”被国产汽车拿下](http://www.play.hengshemaoyi.cn/kongbu/9083706.htm)
-- [亚朵卖枕头被子收入快赶上酒店主业](http://www.movie.hkepx.cn/xiju/0437055.htm)
+- [马克龙宣布进一步加强对乌军事支持](http://www.play.hengshemaoyi.cn/kongbu/9083706.htm)
+- [住破房穿20块衣服男子20年攒下789万](http://www.movie.hkepx.cn/xiju/0437055.htm)
 - [80岁西班牙“狼孩”去世](http://www.play.hengshemaoyi.cn/xiju/0405943.htm)
-- [女孩试衣时被人掀开门帘 警方介入](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
+- [《走马》夯爆了](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
 - [商家绝不会告诉你的真相！历经394天，我们终于揭开了防晒喷雾行业的漏洞！](http://www.daogukj.com/8118057)
 - [【独家】《凡人修仙传之慕兰之战》第12集【总第188集】](http://www.play.hengshemaoyi.cn/xiju/3197658.htm)
 - [宇树机器人100米预赛小组垫底](http://www.play.hengshemaoyi.cn/kongbu/3085425.htm)
-- [专家：座位是给人坐的不是来放零食的](http://www.movie.hkepx.cn/movie/4468433.htm)
-- [您好 没有为您拼命的义务 #乐意效劳](http://www.movie.hkepx.cn/xiju/0951693.htm)
+- [驻日美军士兵被发现在医院停车场死亡](http://www.movie.hkepx.cn/movie/4468433.htm)
+- [男子调包订婚五金典当套现208万](http://www.movie.hkepx.cn/xiju/0951693.htm)
 - [零食占座当事人母亲否认故意占座，称儿童票捆绑成人票销售，退成人票后儿童会被要求下车，哪些问题值得关注？](http://www.movie.hkepx.cn/movie/5267051.htm)
 - [我收容了100位粉丝到我的一辈子存档里！](http://www.daogukj.com/3228319)
-- [白血病不再是不治之症](http://www.movie.hkepx.cn/xiju/0255674.htm)
-- [女孩求职被拒发现自己竟是“精神病”](http://www.play.hengshemaoyi.cn/kongbu/6482335.htm)
+- [女孩求职被拒发现自己竟是“精神病”](http://www.movie.hkepx.cn/xiju/0255674.htm)
+- [美伊进入经济战 中东局势何去何从](http://www.play.hengshemaoyi.cn/kongbu/6482335.htm)
 - [菜谱：洋葱炒蛋，家庭红烧鱼，蒜炒西兰花，辣椒炒猪腰，绿豆汤，从买菜开始，你在家随时可以复刻](http://www.daogukj.com/cmwhbpsa/)
-- [中超联赛](http://www.daogukj.com/6408302)
+- [国家队最新持股名单出炉](http://www.daogukj.com/6408302)
 - [挑战让精神小妹一天花1500，看她怎么花](http://www.play.hengshemaoyi.cn/kongbu/6504187.htm)
 - [宇树预赛小组垫底 回应缩减参赛项目](http://www.movie.hkepx.cn/xiju/8353840.htm)
 - [如何看待中国传媒大学拟新增「游戏科学与技术」和「电子竞技」两个游戏类专业？对考生报考有何建议？](http://www.daogukj.com/jhhicgnj/)
 - [暑期旅游市场迸发新活力](http://www.play.hengshemaoyi.cn/xiju/2201754.htm)
 - [约1000家兰州拉面店完成门头更换](http://www.movie.hkepx.cn/xiju/9904424.htm)
-- [桃酥是没有一滴水的](http://www.play.hengshemaoyi.cn/xiju/7993084.htm)
-- [男子调包订婚五金典当套现208万](http://www.movie.hkepx.cn/xiju/2553336.htm)
-- [那英边唱边哭](http://www.play.hengshemaoyi.cn/kongbu/6028567.htm)
+- [那英边唱边哭](http://www.play.hengshemaoyi.cn/xiju/7993084.htm)
+- [披荆斩棘排名](http://www.movie.hkepx.cn/xiju/2553336.htm)
+- [王源一句话让几万人低头看手机](http://www.play.hengshemaoyi.cn/kongbu/6028567.htm)
 - [三张银行卡，初始金额人民币1亿，1万，1元，日利息分别是0.01%，1%，10%，怎么选择呢？](http://www.play.hengshemaoyi.cn/xiju/6306862.htm)
 - [没打HPV疫苗不能入学系谣言](http://www.movie.hkepx.cn/xiju/2775713.htm)
-- [马克龙宣布进一步加强对乌军事支持](http://www.movie.hkepx.cn/movie/5485785.htm)
+- [男子不满他人变道恶意别车致车祸被拘](http://www.movie.hkepx.cn/movie/5485785.htm)
 - [上学都被没收过哪些东西？](http://www.play.hengshemaoyi.cn/xiju/5094963.htm)
 - [【纪录片】守护解放西·探案季 第十集 难以“置信”](http://www.play.hengshemaoyi.cn/kongbu/1178935.htm)
 
@@ -91,8 +91,8 @@
 
 ## 原始来源
 
-- [曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？](https://www.zhihu.com/question/2073016995126175490)
+- [你和孩子都爱吃的东西，你会自己不吃留给孩子，还是自己吃？](https://www.zhihu.com/question/2070175804668040223)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 10f7e397d1db9a3cdcb6 -->
+<!-- content-fingerprint: 34535c21594d4f182377 -->
