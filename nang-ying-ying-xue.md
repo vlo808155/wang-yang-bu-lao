@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？
+# 曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？
 
-> 来源：知乎热榜 · 排名：第 13 位 · 热度：76 万热度 · 分类：问答 · 更新：2026-08-23T06:32:28+08:00
+> 来源：知乎热榜 · 排名：第 13 位 · 热度：77 万热度 · 分类：问答 · 更新：2026-08-23T06:51:47+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？”位列第 13 位，公开热度指标为 76 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？”位列第 13 位，公开热度指标为 77 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：文 | 《贵圈》闫妍 近期，LV在中国掀起了商标维权风暴，同时，其在中国西南地区加速了撤退步伐。 LV贵阳荔星中心门店对外宣布将于2026年8月31日起停止运营。据《贵圈》栏目统计，LV已经在中国西南地区接连关闭三处关键点位，西南五省的门店网络数量已腰斩过半，仅剩3家门店正常运营。 事实上，近一年以来，LV在华的门店网络正经历一次残酷的“修剪”，包括北京首都机场店等门店都已宣布关闭。关于本轮门店调整的真实考量，《贵圈》栏目向LVMH集团发起问询，截至发稿暂无回应。 与门店退潮几乎同步，LV在中国掀起的商标维权风暴，亦将品牌推上了舆论的风口浪尖。 关闭唯一
+来源公开摘要显示：曹云金巡演砸挂郭德纲：十六年师徒恩怨再掀波澜
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -19,9 +19,9 @@
 ## 相关热点
 
 - [商家绝不会告诉你的真相！历经394天，我们终于揭开了防晒喷雾行业的漏洞！](cheng-men-li-xue.md)
-- [郭晓东开口笑崩全场 咬字太有嚼劲儿](shou-bu-shi-juan.md)
-- [邵永灵：联合国秘书长争夺战杀出黑马](xue-fu-wu-che.md)
-- [西安一影城推出午休服务，每月 39.9 元还有免费充电、咖啡，这一服务怎么样？你愿意花钱去影院午休吗？](bo-wen-qiang-ji.md)
+- [孙楠跳舞像老实人豁出去了](shou-bu-shi-juan.md)
+- [机器人跑出9秒32打破人类百米纪录](xue-fu-wu-che.md)
+- [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](bo-wen-qiang-ji.md)
 
 ## 站内推荐
 
@@ -39,60 +39,60 @@
 - [《 黑 神 话 咕 嘎 》终极典藏版](http://www.daogukj.com/0791900)
 - [起猛了，在7月新番看到短剧了...... 【泛式】](http://www.movie.hkepx.cn/movie/6187756.htm)
 - [男子错过服务区找了个“野生”充电桩](http://www.play.hengshemaoyi.cn/xiju/2843741.htm)
-- [那英演唱会 肖战](http://www.daogukj.com/zealysjt/)
+- [37岁失业建筑师转行养老护理员](http://www.daogukj.com/zealysjt/)
 - [王传君说的是乔任梁吗](http://www.movie.hkepx.cn/movie/0178031.htm)
 - [世界人形机器人运动会亮点](http://www.daogukj.com/6215529)
-- [37岁失业建筑师转行养老护理员](http://www.movie.hkepx.cn/xiju/4801450.htm)
+- [那英边唱边哭](http://www.movie.hkepx.cn/xiju/4801450.htm)
 - [住破房穿20块衣服男子20年攒789万](http://www.daogukj.com/8108433)
 - [⚡️很恐怖游戏，使我大叫⚡️](http://www.daogukj.com/3643825)
-- [手机出现这行字存款正被转走](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
+- [披荆斩棘排名](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
 - [专家：座位是给人坐的不是来放零食的](http://www.daogukj.com/1108835)
-- [孙楠跳舞像老实人豁出去了](http://www.movie.hkepx.cn/xiju/9153610.htm)
+- [王传君的雷霆野人妆是自己设计的](http://www.movie.hkepx.cn/xiju/9153610.htm)
 - [9秒39！中国机器人打破博尔特百米成绩](http://www.play.hengshemaoyi.cn/xiju/5315061.htm)
 - [小沈阳投诉《披荆斩棘》导演组](http://www.play.hengshemaoyi.cn/xiju/5421312.htm)
-- [必须从速从严处置甲醛白菜](http://www.daogukj.com/veafcjhm/)
+- [欢子淘汰 压根没来](http://www.daogukj.com/veafcjhm/)
 - [《下一个是谁》第七季（3）](http://www.play.hengshemaoyi.cn/xiju/5677870.htm)
 - [机器人秀释小龙旋风踢 给自己干趴下](http://www.movie.hkepx.cn/movie/8965818.htm)
 - [如何看待高校录取通知书回归「一页纸」后，清华大学推出立体二校门版「入学纪念证书」？](http://www.daogukj.com/6666143)
-- [桃酥是没有一滴水的](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
-- [机器人和丁宁切磋球技](http://www.movie.hkepx.cn/xiju/8931005.htm)
-- [男子自驾3500公里送儿子去新疆上学](http://www.movie.hkepx.cn/xiju/6420011.htm)
+- [王源一句话让几万人低头看手机](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
+- [你会花20多万买vala pro吗](http://www.movie.hkepx.cn/xiju/8931005.htm)
+- [白血病不再是不治之症](http://www.movie.hkepx.cn/xiju/6420011.htm)
 - [总犯困、代谢慢？可能不是上班累的](http://www.play.hengshemaoyi.cn/kongbu/7380475.htm)
 - [26-27赛季德甲乒乓球联赛，樊振东 3:1 贝塔斯迈尔，豪取杜塞尔多夫首秀胜利，如何评价本场比赛?](http://www.daogukj.com/5699059)
-- [亚朵“枕头被子”收入逼近主业](http://www.movie.hkepx.cn/xiju/0644202.htm)
+- [男子患癌在车间自缢 公司赔20余万](http://www.movie.hkepx.cn/xiju/0644202.htm)
 - [人族少女混入兽人国，还引发了一场猫猫二当家和黄狗侠客的绝世大战](http://www.movie.hkepx.cn/xiju/8056511.htm)
 - [曝欢子进的医院是美容院](http://www.daogukj.com/nexzmtzr/)
-- [有什么比较好玩的小游戏呢？](http://www.daogukj.com/1229862)
+- [退休后，把全国的县城都逛一遍这主意怎么样？](http://www.daogukj.com/1229862)
 - [中国男篮时隔12年再进U18亚洲杯决赛](http://www.daogukj.com/bnuggeog/)
 - [【纪录片】守护解放西·探案季 第十集 难以“置信”](http://www.movie.hkepx.cn/xiju/0869258.htm)
-- [年轻人开始流行「养砖头」，这种看似无意义的爱好为什么会戳中年轻人的心？「养砖头」要注意什么？](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
+- [2026羽毛球世锦赛，中国男单选手全部止步 16 强‌，创历史最差成绩。对此你怎么看呢？](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
 - [怎么看 DeepSeek 8 月22 日再调整定价，周末全天统一按低谷价收费？](http://www.play.hengshemaoyi.cn/xiju/8712972.htm)
 - [宇树机器人100米预赛小组垫底](http://www.daogukj.com/1535718)
 - [具身智能机器人正加速迈向应用](http://www.play.hengshemaoyi.cn/kongbu/2527657.htm)
-- [退休后，把全国的县城都逛一遍这主意怎么样？](http://www.daogukj.com/fwgnvbgz/)
+- [英雄联盟的"连招"概念为什么消失了？](http://www.daogukj.com/fwgnvbgz/)
 - ["复活吧！我的（ ）"](http://www.daogukj.com/liomovvw/)
 - [吃蜘蛛眼就可以飞去末地外岛？！这个bug简直是艺术品！](http://www.play.hengshemaoyi.cn/xiju/3352880.htm)
-- [铁路暂无无成人陪伴儿童托管](http://www.daogukj.com/5981356)
+- [世界机器人大会](http://www.daogukj.com/5981356)
 - [严肃观看儿子的历史记录](http://www.play.hengshemaoyi.cn/kongbu/9556053.htm)
 - [《黑神话：钟馗》15分钟实机演示](http://www.movie.hkepx.cn/movie/6187870.htm)
 - [我收容了100位粉丝到我的一辈子存档里！](http://www.movie.hkepx.cn/xiju/9816980.htm)
 - [曾被狼群抚养12年狼孩去世](http://www.daogukj.com/djgtqgkc/)
 - [上海一餐厅订餐须用国外软件？不实](http://www.movie.hkepx.cn/movie/4871450.htm)
-- [英雄联盟的"连招"概念为什么消失了？](http://www.movie.hkepx.cn/xiju/4251876.htm)
-- [以色列土耳其会爆发冲突吗](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
-- [男子调包订婚五金典当套现208万](http://www.movie.hkepx.cn/movie/9171667.htm)
+- [三张银行卡，初始金额人民币1亿，1万，1元，日利息分别是0.01%，1%，10%，怎么选择呢？](http://www.movie.hkepx.cn/xiju/4251876.htm)
+- [亚朵“枕头被子”收入逼近主业](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
+- [女孩试衣时被人掀开门帘 警方介入](http://www.movie.hkepx.cn/movie/9171667.htm)
 - [追觅造车梦遇挫 员工被裁工位闲置](http://www.daogukj.com/oeibgnih/)
 - [如何看待中国传媒大学拟新增「游戏科学与技术」和「电子竞技」两个游戏类专业？对考生报考有何建议？](http://www.play.hengshemaoyi.cn/xiju/5921224.htm)
-- [王传君的雷霆野人妆是自己设计的](http://www.daogukj.com/jqsnmzfn/)
-- [男孩被民警掌掴近1个月未能正常上学](http://www.daogukj.com/fprzebnn/)
+- [郭晓东开口笑崩全场 咬字太有嚼劲儿](http://www.daogukj.com/jqsnmzfn/)
+- [那英演唱会 肖战](http://www.daogukj.com/fprzebnn/)
 - [林肯号危机「吹哨人」遭清算，因曝光林肯号糟糕处境，美国军报总编辑、发行人、记者均被解雇，如何看待此事？](http://www.daogukj.com/2176297)
 
 </details>
 
 ## 原始来源
 
-- [奢侈品牌 LV 全国多地门店关闭，西南门店腰斩过半，为何收缩线下渠道？对中国奢侈品市场意味着什么？](https://www.zhihu.com/question/2074164491798028674)
+- [曹云金在演出中用郭德纲「砸现挂」，此举对相声界传统和师徒关系有何影响？](https://www.zhihu.com/question/2073016995126175490)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 56caa135c28004a09584 -->
+<!-- content-fingerprint: ab0fe866204f82a209a7 -->
