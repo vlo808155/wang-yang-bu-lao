@@ -2,11 +2,11 @@
 
 # 那个被当成毛泽东的人，日本人认错了他，但我们应该认识他！
 
-> 来源：哔哩哔哩热门 · 排名：第 15 位 · 热度：2618391 · 分类：人文历史 · 更新：2026-08-26T04:38:09+08:00
+> 来源：哔哩哔哩热门 · 排名：第 15 位 · 热度：2621057 · 分类：人文历史 · 更新：2026-08-26T05:02:25+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“那个被当成毛泽东的人，日本人认错了他，但我们应该认识他！”位列第 15 位，公开热度指标为 2618391，榜单分类为“人文历史”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“那个被当成毛泽东的人，日本人认错了他，但我们应该认识他！”位列第 15 位，公开热度指标为 2621057，榜单分类为“人文历史”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -18,15 +18,15 @@
 
 ## 相关热点
 
-- [郑钦文美网资格赛首战告捷](jiao-ta-shi-di.md)
-- [在韩失联中国女生死因或涉暴力犯罪](shi-shi-qiu-shi.md)
+- [内蒙古乌兰察布突发山洪 已致4人遇难](jiao-ta-shi-di.md)
+- [爱情公寓](shi-shi-qiu-shi.md)
 - [央媒评扶老人被索赔：法律不能和稀泥](chi-zhi-yi-heng.md)
 - [美国宣布对伊朗实施「经济孤立」新措施，涉航空、黄金、航运等五大领域，这会切断伊朗「所有经济命脉」吗？](jian-ren-bu-ba.md)
 
 ## 站内推荐
 
 - [德芙七夕营销「趁男朋友不在跟暧昧对象分享」翻车，为何此类翻车频繁发生，哪里出了问题？对德芙会有影响吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [教育部通知「幼儿园不能提前教授小学知识」「一年级不能布置书面作业、不进行纸笔考试」，会带来哪些影响？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [大批 AI 博主集中停更，背后真实原因是什么，AI 内容赛道接下来会如何发展？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
 - [GPT为什么会单独给Plus订阅增加5小时限额？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
 - [严肃观看儿子的历史记录](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
 - [放弃一切，只为等你](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
@@ -43,25 +43,25 @@
 - [全国首测！头文字D主角车，谁最快？](http://www.movie.hkepx.cn/xiju/2801529.htm)
 - [武汉轮椅老人上高架蓄意碰瓷不实](http://www.movie.hkepx.cn/xiju/0380313.htm)
 - [评论区摄影作品锐评，同样是随手拍，差距到底在哪？每张照片都藏着不一样的故事，普通人也能拍出参赛级大片！欢迎投稿你的大作！](http://www.movie.hkepx.cn/xiju/7224535.htm)
-- [早春晴朗](http://www.daogukj.com/xzonyqff/)
-- [大批 AI 博主集中停更，背后真实原因是什么，AI 内容赛道接下来会如何发展？](http://www.daogukj.com/orjovtkz/)
-- [“羞辱式”劝退应届生的上市公司致歉](http://www.daogukj.com/ehivavka/)
+- [邻居否认牌馆去世老人与店主不熟](http://www.daogukj.com/xzonyqff/)
+- [教育部通知「幼儿园不能提前教授小学知识」「一年级不能布置书面作业、不进行纸笔考试」，会带来哪些影响？](http://www.daogukj.com/orjovtkz/)
+- [在韩遇害女生原计划23日回国入职](http://www.daogukj.com/ehivavka/)
 - [中国公民尽快撤离斯威士兰](http://www.play.hengshemaoyi.cn/kongbu/7217009.htm)
 - [“禁止殴打顾客 除非忍不住”](http://www.movie.hkepx.cn/xiju/8835780.htm)
-- [越南为何为对接中国铁路追加30亿美元](http://www.movie.hkepx.cn/xiju/9038119.htm)
-- [赴韩失联女生父母至今仍不知情](http://www.daogukj.com/oiypmejy/)
-- [金鹰奖提名名单](http://www.daogukj.com/8015684)
-- [市民问在家吃狗肉违法吗？深圳回复](http://www.movie.hkepx.cn/movie/3984102.htm)
-- [教育部通知「幼儿园不能提前教授小学知识」「一年级不能布置书面作业、不进行纸笔考试」，会带来哪些影响？](http://www.daogukj.com/6250249)
-- [A股连续迎来“大肉签”](http://www.daogukj.com/2025214)
+- [女子腰上冒水疱确诊带状疱疹](http://www.movie.hkepx.cn/xiju/9038119.htm)
+- [医生谈1米67女孩101斤被认定偏重](http://www.daogukj.com/oiypmejy/)
+- [在韩失联中国女生死因或涉暴力犯罪](http://www.daogukj.com/8015684)
+- [10名干部变身外卖骑手 14天跑1148单](http://www.movie.hkepx.cn/movie/3984102.htm)
+- [大批 AI 博主集中停更，背后真实原因是什么，AI 内容赛道接下来会如何发展？](http://www.daogukj.com/6250249)
+- [瓶装饮料为什么不好卖了](http://www.daogukj.com/2025214)
 - [法国团队利用离体死后人脑组织控制机械手弹钢琴，该实验有何科学原理和伦理意义？](http://www.daogukj.com/5970893)
-- [郑钦文美网资格赛首战告捷](http://www.play.hengshemaoyi.cn/xiju/3897460.htm)
+- [内蒙古乌兰察布突发山洪 已致4人遇难](http://www.play.hengshemaoyi.cn/xiju/3897460.htm)
 - [对于见证过勇士王朝的人来说，再看现在的勇士队，有什么感想？](http://www.daogukj.com/fmnczhof/)
 - [在嫌疑人住处发现在韩遇害女生遗体](http://www.play.hengshemaoyi.cn/xiju/4734100.htm)
-- [扶不扶 不能再成为社会阴影](http://www.daogukj.com/kqpwtmnb/)
-- [30多国准备派兵乌克兰](http://www.daogukj.com/vnlihxyn/)
-- [杭州警方通报女子称在电梯遭骚扰](http://www.play.hengshemaoyi.cn/kongbu/4489916.htm)
-- [爱情公寓](http://www.movie.hkepx.cn/xiju/4834258.htm)
+- [市民问在家吃狗肉违法吗？深圳回复](http://www.daogukj.com/kqpwtmnb/)
+- [杭州警方通报女子称在电梯遭骚扰](http://www.daogukj.com/vnlihxyn/)
+- [赴韩失联女生父母至今仍不知情](http://www.play.hengshemaoyi.cn/kongbu/4489916.htm)
+- [早春晴朗](http://www.movie.hkepx.cn/xiju/4834258.htm)
 - [贱谍过家家（8）](http://www.movie.hkepx.cn/movie/4108451.htm)
 - [舍友们提议轮流请客吃饭，不想参加也不想请，如何礼貌拒绝不被孤立？](http://www.play.hengshemaoyi.cn/kongbu/9792272.htm)
 - [过得好的人最明显的标志](http://www.daogukj.com/gzwgwxon/)
@@ -70,22 +70,22 @@
 - [美国宣布对伊朗实施「经济孤立」新措施，涉航空、黄金、航运等五大领域，这会切断伊朗「所有经济命脉」吗？](http://www.daogukj.com/yrmlvnvb/)
 - [歼-16与“阵风”罕见同框](http://www.movie.hkepx.cn/movie/2452830.htm)
 - [王中王夺冠自战解说](http://www.movie.hkepx.cn/movie/6358459.htm)
-- [一碗好面，是面条更重要，还是面汤更重要，还是里面配菜更重要？](http://www.play.hengshemaoyi.cn/kongbu/9664292.htm)
+- [希尔顿花园等贴牌外资酒店遇冷，消费者吐槽「还不如全季亚朵」，外资酒店贴牌大法不灵了吗？为什么会这样？](http://www.play.hengshemaoyi.cn/kongbu/9664292.htm)
 - [严肃观看儿子的历史记录](http://www.play.hengshemaoyi.cn/kongbu/8762273.htm)
 - [如何看待诺兰《奥德赛》全球吸金超13.52亿，力压《死侍与金刚狼》登顶影史票房最高 R 级电影？](http://www.movie.hkepx.cn/movie/0811470.htm)
-- [医生谈1米67女孩101斤被认定偏重](http://www.daogukj.com/7601488)
-- [外国游客对台警察说“你是中国人”](http://www.daogukj.com/lmhgfutz/)
-- [希尔顿花园等贴牌外资酒店遇冷，消费者吐槽「还不如全季亚朵」，外资酒店贴牌大法不灵了吗？为什么会这样？](http://www.play.hengshemaoyi.cn/kongbu/6263764.htm)
-- [我驻釜山总领事馆要求严惩凶手](http://www.daogukj.com/4937221)
+- [30多国准备派兵乌克兰](http://www.daogukj.com/7601488)
+- [扶不扶 不能再成为社会阴影](http://www.daogukj.com/lmhgfutz/)
+- [为什么英国在布尔战争中打的如此艰难？](http://www.play.hengshemaoyi.cn/kongbu/6263764.htm)
+- [金鹰奖提名名单](http://www.daogukj.com/4937221)
 - [《英雄联盟》怀旧服高调上线却迅速「塌房」，为何「情怀牌」不灵了？](http://www.play.hengshemaoyi.cn/kongbu/3765846.htm)
 - [在韩失联25岁中国女生已遇害](http://www.play.hengshemaoyi.cn/kongbu/8405143.htm)
-- [湖中惊现多条“神秘大鱼”](http://www.movie.hkepx.cn/movie/8789536.htm)
+- [二婚夫妇意外去世 4个子女争遗产](http://www.movie.hkepx.cn/movie/8789536.htm)
 - [如何评价《冰与火之歌》中的雷加.坦格利安？](http://www.play.hengshemaoyi.cn/kongbu/5405888.htm)
 - [新生购票和携带物品指南来了](http://www.daogukj.com/6912318)
 - [公司批量劝退应届生 江苏常州通报](http://www.movie.hkepx.cn/xiju/4818547.htm)
 - [在凤凰古城碰到一位无臂骑手，白天跑外卖，晚上写字谋生，给经历磨难却依旧坚毅的向阳点个赞](http://www.movie.hkepx.cn/xiju/2301829.htm)
 - [《海阔天空》一个人的乐队](http://www.play.hengshemaoyi.cn/xiju/0829282.htm)
-- [高校允许学生带宠物上学引争议](http://www.movie.hkepx.cn/xiju/2953119.htm)
+- [未开封水现蚂蚱 商家销毁问题水](http://www.movie.hkepx.cn/xiju/2953119.htm)
 
 </details>
 
@@ -95,4 +95,4 @@
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c142233a9900c37007f8 -->
+<!-- content-fingerprint: 6aa11a1c9dd4fbd68af0 -->
