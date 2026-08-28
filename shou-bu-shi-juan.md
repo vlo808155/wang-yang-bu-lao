@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 现在就出发欢迎您来龙餐馆
+# 为什么平均每2年换一个首相的日本政治上反而比平均每5年换一个总统的韩国更稳定？
 
-> 来源：微博热搜 · 排名：第 14 位 · 热度：1089894 · 分类：综艺 · 更新：2026-08-28T12:31:37+08:00
+> 来源：知乎热榜 · 排名：第 14 位 · 热度：98 万热度 · 分类：问答 · 更新：2026-08-29T00:52:53+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“现在就出发欢迎您来龙餐馆”位列第 14 位，公开热度指标为 1089894，榜单分类为“综艺”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“为什么平均每2年换一个首相的日本政治上反而比平均每5年换一个总统的韩国更稳定？”位列第 14 位，公开热度指标为 98 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `综艺`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [华为Pura X View深度体验](xue-fu-wu-che.md)
-- [台风「沙德尔」在浙江省台州玉环市登陆，中心附近最大风力 12 级，目前具体情况如何？你那里天气怎样？](bo-wen-qiang-ji.md)
-- [大 周 礼 时 代(26)](wen-gu-zhi-xin.md)
-- [昔日“彩电一哥”将主动退市](ju-yi-fan-san.md)
+- [Grand Theft Auto VI：分量十足的一瞥](xue-fu-wu-che.md)
+- [30岁双985硕士重新高考](bo-wen-qiang-ji.md)
+- [李思潼金鹿奖影后](wen-gu-zhi-xin.md)
+- [中国第五座超一线城市会是谁](ju-yi-fan-san.md)
 
 ## 站内推荐
 
-- [大人在3车厢8岁孩子被分到7车厢](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [容易焦虑的人需要知道的生存法则](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [多部门回应低分班教师耻辱合影](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [哥哥被垃圾车碾轧妹妹打电话求救](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [微信折叠发图可以搭配衣服](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [动画演示西藏吉隆泥石流灾害全程](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [低分班教师被安排耻辱合影官方致歉](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [出生率回落 中国新生男孩仍比女孩多](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [连云港集中销毁烟花时发生爆炸，致邻市570多户房屋受损，为何会有这么大威力？此次事故暴露出哪些问题？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [现在大家对月饼都不怎么感兴趣了，为什么？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [数到三 东亚家庭的爱](http://www.daogukj.com/8478676)
-- [“奶茶姐姐”当选香飘飘副董事长](http://www.daogukj.com/3239411)
-- [超声波菜刀？长脖子的手机？开箱市面上最科幻的离谱产品](http://www.play.hengshemaoyi.cn/kongbu/6693593.htm)
-- [“国民彩电大王”康佳拟主动退市](http://www.play.hengshemaoyi.cn/kongbu/3393647.htm)
-- [谁干掉了旅行社](http://www.daogukj.com/5177434)
-- [研究显示医保报销的获益更偏向高收入人群，这种「越有钱越受益」的现象是如何产生的？](http://www.daogukj.com/9757981)
-- [消防救援力量向受灾核心区挺进](http://www.play.hengshemaoyi.cn/kongbu/5254314.htm)
-- [大人在3车厢8岁孩子被分到7车厢](http://www.play.hengshemaoyi.cn/kongbu/6062543.htm)
-- [网友质疑浙江省博物馆将「勾践」错写为「句践」，博物馆回应为尊重文物本名，到底哪种写法才是正确的？](http://www.daogukj.com/vvhxfmlz/)
-- [“中华第一舰”退出现役](http://www.play.hengshemaoyi.cn/kongbu/6868011.htm)
-- [姜辉已任中宣部副部长](http://www.play.hengshemaoyi.cn/xiju/0581687.htm)
-- [雷波县教师被羞辱](http://www.play.hengshemaoyi.cn/xiju/3249372.htm)
-- [如何评价《英雄无敌3》重制版官宣，由育碧成都和上海工作室主导研发？](http://www.movie.hkepx.cn/xiju/6239174.htm)
-- [媒体：演唱会上的“衣不遮体”该治了](http://www.movie.hkepx.cn/xiju/9361968.htm)
-- [手机卖不动 价格却涨了](http://www.play.hengshemaoyi.cn/xiju/0141985.htm)
-- [台风「沙德尔」在浙江省台州玉环市登陆，中心附近最大风力 12 级，目前具体情况如何？你那里天气怎样？](http://www.daogukj.com/3639582)
-- [微信折叠发图可以搭配衣服](http://www.daogukj.com/olcgjzxy/)
-- [多部门回应低分班教师耻辱合影](http://www.play.hengshemaoyi.cn/xiju/4459303.htm)
-- [我被100名警察追捕，抓到我赢50万美金！](http://www.daogukj.com/ogctigmk/)
-- [国产公安剧 终于对准这帮人](http://www.play.hengshemaoyi.cn/kongbu/4101569.htm)
-- [怪兽中 出了一个...不对！是一群奥特曼的卧底！【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/1623587.htm)
-- [《死神》中，是五大特记战力的，为什么是“浦原喜助”而不是“涅茧利”？](http://www.movie.hkepx.cn/xiju/2974024.htm)
-- [土木终于迎来第二春！我下跪道歉！！！](http://www.daogukj.com/qduaipey/)
-- [男子徒手捞水饺致右手80%皮肤剥脱](http://www.play.hengshemaoyi.cn/xiju/8227935.htm)
-- [华为Pura X View深度体验](http://www.play.hengshemaoyi.cn/kongbu/4160027.htm)
-- [小时候开智之前](http://www.play.hengshemaoyi.cn/kongbu/9952478.htm)
-- [李阳疯狂英语为什么没落了？](http://www.movie.hkepx.cn/xiju/1449526.htm)
-- [演唱会上的“衣不遮体”该治了](http://www.play.hengshemaoyi.cn/kongbu/5233867.htm)
-- [哥哥被垃圾车碾轧妹妹打电话求救](http://www.daogukj.com/foorujpq/)
-- [四川泸州近期发生山火？不实](http://www.movie.hkepx.cn/xiju/1941094.htm)
-- [十个勤天护肤成肌肉记忆了](http://www.movie.hkepx.cn/movie/4257941.htm)
-- [“河南一地彩礼限额8万元”不实](http://www.play.hengshemaoyi.cn/kongbu/5339935.htm)
-- [杭州电梯猥亵案反转：法律给了男邻居清白，但网络舆论的私刑已经执行完了，别让真相的迟到 成为常态](http://www.daogukj.com/ailrualr/)
-- [难过](http://www.play.hengshemaoyi.cn/xiju/5385609.htm)
-- [《动物朋克》最新预告&实机演示 | 国产动作新游登陆科隆展](http://www.movie.hkepx.cn/movie/0789293.htm)
-- [小天才电话手表近年多次曝出负面舆情](http://www.movie.hkepx.cn/xiju/4446039.htm)
-- [寿星来切蛋糕啦！！「谁是杀手」？？！](http://www.play.hengshemaoyi.cn/kongbu/7816841.htm)
-- [沙德尔在浙江登陆 将波及9省区](http://www.play.hengshemaoyi.cn/kongbu/9613360.htm)
-- [汕头一酒店房间平时售价280元，国庆期间标价5850元，门店称并非最终价格，这样的涨价幅度合理吗？](http://www.daogukj.com/cdrpkogq/)
-- [我国机械工业出口成外贸“压舱石”](http://www.movie.hkepx.cn/movie/2665746.htm)
-- [币圈富豪孙宇晨手撕景甜，索赔3千万彩礼，娱乐圈+金融圈惊天巨瓜！](http://www.daogukj.com/zobrwsba/)
-- [尼泊尔北部山洪遇难人数升至469人](http://www.daogukj.com/0656524)
-- [吉隆口岸执勤人员灾中逆行疏散](http://www.movie.hkepx.cn/movie/2963324.htm)
-- [5G商用七年了，除了手机右上角多5G标识，网速体验和4G没差别，信号甚至更差，我该如何反驳这种观点？](http://www.daogukj.com/oapvfaci/)
-- [江西省省长叶建春被查](http://www.daogukj.com/1720245)
-- [尼泊尔山洪死亡人数升至 469 人，有 910 人失联，目前当地情况怎么样？](http://www.play.hengshemaoyi.cn/xiju/2000340.htm)
-- [办婚礼后男子离世 女子被赶出婚房](http://www.play.hengshemaoyi.cn/kongbu/4181508.htm)
-- [中方：尼泊尔一侧失联中国公民近百人](http://www.play.hengshemaoyi.cn/kongbu/7488097.htm)
-- [打卡！打工！打钱！《异克斯小队》首曝PV](http://www.play.hengshemaoyi.cn/xiju/5445185.htm)
-- [广西柳州深夜发生3.8级地震](http://www.movie.hkepx.cn/movie/7058284.htm)
+- [胡连馨 京洛再无佳人](http://www.daogukj.com/8478676)
+- [AI演员方桃子将登《时尚COSMO》封面](http://www.daogukj.com/3239411)
+- [“这世间千疮百孔，但总有人用爱对这个世界缝缝补补”【红色高跟鞋DJ-变速】【完美结局の小曲】](http://www.play.hengshemaoyi.cn/kongbu/6693593.htm)
+- [河北省委原书记倪岳峰履新职](http://www.play.hengshemaoyi.cn/kongbu/3393647.htm)
+- [现房销售时代来了](http://www.daogukj.com/5177434)
+- [21岁大三学生3年考了100个证](http://www.daogukj.com/9757981)
+- [消防救援队已抵达受灾核心区](http://www.play.hengshemaoyi.cn/kongbu/5254314.htm)
+- [动画演示西藏吉隆泥石流灾害全程](http://www.play.hengshemaoyi.cn/kongbu/6062543.htm)
+- [西藏吉隆泥石流致 5 人遇难 558 人失联，上游堰塞湖出现溢流，目前救援进展如何？](http://www.daogukj.com/vvhxfmlz/)
+- [专家：吉隆救援人员需警惕冰湖溃决](http://www.play.hengshemaoyi.cn/kongbu/6868011.htm)
+- [博主：宇树科技的IPO闹剧反思录](http://www.play.hengshemaoyi.cn/xiju/0581687.htm)
+- [青簪行天价版权](http://www.play.hengshemaoyi.cn/xiju/3249372.htm)
+- [中国女排晋级亚锦赛半决赛](http://www.movie.hkepx.cn/xiju/6239174.htm)
+- [41岁爸爸送女儿出嫁走红](http://www.movie.hkepx.cn/xiju/9361968.htm)
+- [李常官任民政部部长](http://www.play.hengshemaoyi.cn/xiju/0141985.htm)
+- [30岁双985硕士重新高考](http://www.daogukj.com/3639582)
+- [现在大家对月饼都不怎么感兴趣了，为什么？](http://www.daogukj.com/olcgjzxy/)
+- [出生率回落 中国新生男孩仍比女孩多](http://www.play.hengshemaoyi.cn/xiju/4459303.htm)
+- [《绝区零》3.2版本PV | 她与她的隐秘往事](http://www.daogukj.com/ogctigmk/)
+- [不插管不抢救 最后一刻自己说了算](http://www.play.hengshemaoyi.cn/kongbu/4101569.htm)
+- [韩国新生儿数创纪录 发生了什么](http://www.play.hengshemaoyi.cn/kongbu/1623587.htm)
+- [男子面试被拒收到1000元茶水费](http://www.movie.hkepx.cn/xiju/2974024.htm)
+- [美术展里的假人模型，为何变成了真人尸体...？](http://www.daogukj.com/qduaipey/)
+- [蒋超良贪7.46亿被判死缓](http://www.play.hengshemaoyi.cn/xiju/8227935.htm)
+- [Grand Theft Auto VI：分量十足的一瞥](http://www.play.hengshemaoyi.cn/kongbu/4160027.htm)
+- [黄金](http://www.play.hengshemaoyi.cn/kongbu/9952478.htm)
+- [撞脸周杰伦走红的粥饼伦因房租暴涨 5 成关店，从胖东来到粥饼伦，实体店面对大幅涨租有破局的办法吗？](http://www.movie.hkepx.cn/xiju/1449526.htm)
+- [脑梗来临前的警报 很多人当成没睡好](http://www.play.hengshemaoyi.cn/kongbu/5233867.htm)
+- [连云港集中销毁烟花时发生爆炸，致邻市570多户房屋受损，为何会有这么大威力？此次事故暴露出哪些问题？](http://www.daogukj.com/foorujpq/)
+- [小米被曝更新售后政策，二手设备直接失去官方保修，怎么看待这件事？](http://www.movie.hkepx.cn/xiju/1941094.htm)
+- [LPL2026赛季第三赛段骑士之路TT 0:3 iG，如何评价这场比赛？](http://www.movie.hkepx.cn/movie/4257941.htm)
+- [“青铜峡拦河大坝泄洪”不实](http://www.play.hengshemaoyi.cn/kongbu/5339935.htm)
+- [《洛克王国：世界》S4赛季「月涌狂想」PV首曝，新的冒险即将开启！](http://www.daogukj.com/ailrualr/)
+- [蒙眼挑战之泥坑剪绳子恐惧版！](http://www.play.hengshemaoyi.cn/xiju/5385609.htm)
+- [王一博 壁纸](http://www.movie.hkepx.cn/movie/0789293.htm)
+- [吉隆堰塞湖附近树林被气浪吹光](http://www.movie.hkepx.cn/xiju/4446039.htm)
+- [美联储](http://www.play.hengshemaoyi.cn/kongbu/7816841.htm)
+- [钟楚曦 工作留痕的重要性](http://www.play.hengshemaoyi.cn/kongbu/9613360.htm)
+- [用了5年的合法固定车位，被邻楼老太强行霸占，放完杂物直接砌水泥墩，物业管不了我该怎么办？](http://www.daogukj.com/cdrpkogq/)
+- [全国社会物流总额同比增长5.0%](http://www.movie.hkepx.cn/movie/2665746.htm)
+- [白敬亭没放过井柏然](http://www.daogukj.com/zobrwsba/)
+- [亲戚来家里做客全国统一反应](http://www.daogukj.com/0656524)
+- [剧组夫妻](http://www.movie.hkepx.cn/movie/2963324.htm)
+- [吉隆泥石流曾逆流而上又回流](http://www.daogukj.com/oapvfaci/)
+- [怪兽中 出了一个...不对！是一群奥特曼的卧底！【AI全民制作人】](http://www.daogukj.com/1720245)
+- [搬空系列迎来了它最大一票](http://www.play.hengshemaoyi.cn/xiju/2000340.htm)
+- [连杀3人肉店老板已被判处死刑](http://www.play.hengshemaoyi.cn/kongbu/4181508.htm)
+- [【招笑版】新植物2:朝阳葵](http://www.play.hengshemaoyi.cn/kongbu/7488097.htm)
+- [吃瓜必看！一个视频带你全面复盘景甜、孙宇晨炸裂大瓜！娱乐圈还是太乱了](http://www.play.hengshemaoyi.cn/xiju/5445185.htm)
+- [《绝区零》3.2 版本「她与她的隐秘往事」前瞻特别节目](http://www.movie.hkepx.cn/movie/7058284.htm)
 
 </details>
 
 ## 原始来源
 
-- [现在就出发欢迎您来龙餐馆](https://s.weibo.com/weibo?q=%E7%8E%B0%E5%9C%A8%E5%B0%B1%E5%87%BA%E5%8F%91%E6%AC%A2%E8%BF%8E%E6%82%A8%E6%9D%A5%E9%BE%99%E9%A4%90%E9%A6%86)
+- [为什么平均每2年换一个首相的日本政治上反而比平均每5年换一个总统的韩国更稳定？](https://www.zhihu.com/question/2069200932634629825)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ab853193bd22ac2d1912 -->
+<!-- content-fingerprint: 709eace2123794b188d5 -->
