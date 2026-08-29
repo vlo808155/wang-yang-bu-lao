@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 谷爱凌线下活动路透
+# 如何看待 LPL 解说管泽元发布对着垃圾桶附文「48」的视频，被指玩选手黑梗？
 
-> 来源：微博热搜 · 排名：第 13 位 · 热度：259036 · 分类：体育 · 更新：2026-08-29T15:26:16+08:00
+> 来源：知乎热榜 · 排名：第 13 位 · 热度：128 万热度 · 分类：问答 · 更新：2026-08-29T21:16:42+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“谷爱凌线下活动路透”位列第 13 位，公开热度指标为 259036，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待 LPL 解说管泽元发布对着垃圾桶附文「48」的视频，被指玩选手黑梗？”位列第 13 位，公开热度指标为 128 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：昨日管泽元抖音发布商单视频，但是其中出现对着垃圾桶附文48的画面。虽然被冲后删除改画面重发，但是仍有评论区网友不满。官方解说直接下场吃黑流量哦？管泽元发布视频 对着垃圾桶附文48
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `体育`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [华为全新三折叠手机外观曝光](xuan-liang-ci-gu.md)
-- [多家背调公司被曝随意调取个人隐私，仅需 30 元就能查社保记录，该类公司如何获取数据？是否涉嫌违法？](zao-bi-tou-guang.md)
-- [《洛克王国：世界》S4赛季「月涌狂想」PV首曝，新的冒险即将开启！](nang-ying-ying-xue.md)
-- [商家把鲜花插蛋糕 引出35.97亿罚单](cheng-men-li-xue.md)
+- [《我们的家2》](xuan-liang-ci-gu.md)
+- [罗家英称自己仅剩8年寿命](zao-bi-tou-guang.md)
+- [央视曝光保温杯造假套路](nang-ying-ying-xue.md)
+- [宋亚东KO击败乌马尔](cheng-men-li-xue.md)
 
 ## 站内推荐
 
-- [西藏吉隆口岸搜救加紧进行](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [上海男生考上北大研究生欲迁户口被卡](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [新生儿792万 性别比改善](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [彭小苒是我无能](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [西藏吉隆泥石流](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [中国成功研制近200项AI关键标准](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [上海一面包店货架全是照片没有面包](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [尼泊尔山洪遇难人数升至 626 人、2426 人失联，目前当地情况如何？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [六岁男童旅游被烟花炸伤右眼几近失明，半年找不到放烟花的人，妈妈称「连告谁都不清楚」，到底谁该对此负责？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [郑州北龙湖疑现多条巨型鱼类，网友推测为「水老虎」 ，这可能是什么鱼？出现在城市内湖会有哪些潜在影响？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [搬空系列迎来了它最大一票](http://www.daogukj.com/aqvilqcv/)
-- [如何评价凡人修仙传189集，是否达到预期？](http://www.daogukj.com/6414183)
-- [美术展里的假人模型，为何变成了真人尸体...？](http://www.daogukj.com/9692400)
-- [惠英红为救张宥浩撞裂六根肋骨](http://www.movie.hkepx.cn/movie/6535752.htm)
-- [【明日方舟×女神异闻录３ Reload】SideStory「月行水上」活动宣传PV](http://www.movie.hkepx.cn/xiju/0970719.htm)
-- [小奇获《脱友3》年度总冠军](http://www.play.hengshemaoyi.cn/kongbu/3252379.htm)
-- [救援队在吉隆拉网排查直喊有没有人](http://www.play.hengshemaoyi.cn/xiju/7767996.htm)
-- [父亲实地考察物价后给女儿涨生活费](http://www.movie.hkepx.cn/xiju/4933959.htm)
-- [网友建议取消ETC 官方回应](http://www.movie.hkepx.cn/movie/6277466.htm)
-- [CPA税法](http://www.movie.hkepx.cn/movie/4847983.htm)
-- [这盘棋已经赢不了，只能把对面打死了！](http://www.movie.hkepx.cn/movie/2816035.htm)
-- [不同战备给蜂医平事](http://www.movie.hkepx.cn/xiju/1480868.htm)
-- [乒协公示亚锦赛选拔办法，王楚钦、孙颖莎等 5 人放弃参赛，背后有哪些原因？国乒亚锦赛前景如何？](http://www.play.hengshemaoyi.cn/kongbu/9076765.htm)
-- [尼泊尔山洪已致626人遇难2426人失联](http://www.movie.hkepx.cn/xiju/5940142.htm)
-- [“无法善终的王。”](http://www.movie.hkepx.cn/movie/4965485.htm)
-- [长鑫LPDDR6内存正式量产](http://www.movie.hkepx.cn/xiju/9603692.htm)
-- [《古神: 风里希》科隆游戏展最新预告片 | 世界观前瞻](http://www.daogukj.com/dgoqdmey/)
-- [彭小苒是我无能](http://www.daogukj.com/jbixuceg/)
-- [《洛克王国：世界》S4赛季「月涌狂想」PV首曝，新的冒险即将开启！](http://www.movie.hkepx.cn/movie/3470730.htm)
-- [这下玩到真的捂嘴二游了！无限大明年真的还能上吗？](http://www.play.hengshemaoyi.cn/xiju/4606749.htm)
-- [女孩考入国防科大20多名家人自驾送学](http://www.play.hengshemaoyi.cn/xiju/1809500.htm)
-- [乒协同意王楚钦等放弃亚锦赛选拔资格](http://www.play.hengshemaoyi.cn/xiju/2357926.htm)
-- [西藏吉隆口岸搜救最新情况](http://www.daogukj.com/mubcstjz/)
-- [乐清辟谣镇水兽被挖致台风频登陆](http://www.play.hengshemaoyi.cn/kongbu/1803166.htm)
-- [上海男生考上北大研究生欲迁户口被卡](http://www.play.hengshemaoyi.cn/xiju/6178111.htm)
-- [第六届中国新电商大会](http://www.play.hengshemaoyi.cn/kongbu/1944948.htm)
-- [高校林荫道上五米一条迎新横幅](http://www.daogukj.com/6071545)
-- [商家把鲜花插蛋糕 引出35.97亿罚单](http://www.play.hengshemaoyi.cn/xiju/4544487.htm)
-- [官方回应建议取消ETC设备使用](http://www.movie.hkepx.cn/movie/6450034.htm)
-- [媒体人曝姚明NBA收入也曾面临分成，姚明经过抗争和舆论施压后最终只缴税后 3%-5%，这意味着什么？](http://www.play.hengshemaoyi.cn/xiju/9133321.htm)
-- [【独家】《凡人修仙传之慕兰之战》第13集【总第189集】](http://www.movie.hkepx.cn/movie/2700475.htm)
-- [马路中间多出一座坟 10年未迁](http://www.daogukj.com/1077827)
-- [俄乌战争打到现在，俄罗斯为何不慌？](http://www.play.hengshemaoyi.cn/kongbu/0870154.htm)
-- [吉隆口岸地貌发生明显改变，已看不出任何建筑物轮廓，救援队进行拉网式排查搜救，目前救援面临哪些难点？](http://www.movie.hkepx.cn/movie/5323758.htm)
-- [西藏吉隆泥石流](http://www.play.hengshemaoyi.cn/xiju/4973102.htm)
-- [如何看待 LPL 解说管泽元发布对着垃圾桶附文「48」的视频，被指玩选手黑梗？](http://www.movie.hkepx.cn/xiju/8685260.htm)
-- [肾脏不好的人身体会有哪些变化](http://www.play.hengshemaoyi.cn/kongbu/1304214.htm)
-- [你好星期六8月29日推迟播出](http://www.play.hengshemaoyi.cn/xiju/0363166.htm)
-- [根号15和根号17谁更接近4？](http://www.movie.hkepx.cn/xiju/5928968.htm)
-- [京东、阿里、拼多多发布最新季度财报，「赚钱的和增长的不再是同一家公司」，如何看待这一分化现象？](http://www.daogukj.com/2348227)
-- [常州为星宇离职学生办专场招聘会](http://www.movie.hkepx.cn/xiju/7664029.htm)
-- [葫芦娃救爷爷为什么要一个一个上？](http://www.movie.hkepx.cn/xiju/6562531.htm)
-- [赵心童vs常冰玉](http://www.play.hengshemaoyi.cn/kongbu/1978626.htm)
-- [41岁爸爸长相太年轻与女儿像兄妹](http://www.movie.hkepx.cn/movie/8501679.htm)
-- [这不是幻想](http://www.daogukj.com/olljhjfc/)
-- [我在PVZ中添加了大果？？ 【bilibilionly同人扶持计划】](http://www.movie.hkepx.cn/xiju/8131882.htm)
-- [《崩坏星穹铁道》中归寂明明是姬子的杀父仇人，为什么众多二创中归寂比隆介更多担任父亲的角色？](http://www.movie.hkepx.cn/xiju/6634802.htm)
-- [所有感情好的情侣都有一个共同点](http://www.play.hengshemaoyi.cn/kongbu/0490106.htm)
-- [耗时一年，救赎相信光的小女孩，完整后续来了！](http://www.play.hengshemaoyi.cn/xiju/3496955.htm)
-- [新加坡人几乎都是在外面吃饭，他们有没有预制菜？](http://www.movie.hkepx.cn/movie/9511541.htm)
+- [王一博ins素颜自拍](http://www.daogukj.com/aqvilqcv/)
+- [奥沙利文“病了”](http://www.daogukj.com/6414183)
+- [尼泊尔洪水来袭绿色小楼屹立不倒](http://www.daogukj.com/9692400)
+- [中方紧急调派专家赴尼泊尔实施救援](http://www.movie.hkepx.cn/movie/6535752.htm)
+- [现在买入....一定爆赚！2026年10月新番导视！【泛式】](http://www.movie.hkepx.cn/xiju/0970719.htm)
+- [酒店：280元房国庆5850元系平台生成](http://www.play.hengshemaoyi.cn/kongbu/3252379.htm)
+- [耗时一年，救赎相信光的小女孩，完整后续来了！](http://www.play.hengshemaoyi.cn/xiju/7767996.htm)
+- [王菲李嫣看窦靖童音乐节](http://www.movie.hkepx.cn/xiju/4933959.htm)
+- [吉隆口岸大楼只剩钢筋骨架](http://www.movie.hkepx.cn/movie/6277466.htm)
+- [从沈腾的新作《欢迎来龙餐馆》来说，美国是不是导致中东战乱不断的罪魁祸首？](http://www.movie.hkepx.cn/movie/4847983.htm)
+- [20岁女孩白手起家把小众爱好做火了](http://www.movie.hkepx.cn/movie/2816035.htm)
+- [乒乓球德国杯](http://www.movie.hkepx.cn/xiju/1480868.htm)
+- [赵心童vs常冰玉](http://www.play.hengshemaoyi.cn/kongbu/9076765.htm)
+- [探测淤泥下20米的生命迹象](http://www.movie.hkepx.cn/xiju/5940142.htm)
+- [樊振东无缘德国杯8强](http://www.movie.hkepx.cn/movie/4965485.htm)
+- [乒协公示亚锦赛选拔办法，王楚钦、孙颖莎等 5 人放弃参赛，背后有哪些原因？国乒亚锦赛前景如何？](http://www.movie.hkepx.cn/xiju/9603692.htm)
+- [“甲醛白菜”事件3人被刑拘](http://www.daogukj.com/dgoqdmey/)
+- [六岁男童旅游被烟花炸伤右眼几近失明，半年找不到放烟花的人，妈妈称「连告谁都不清楚」，到底谁该对此负责？](http://www.daogukj.com/jbixuceg/)
+- [央视曝光保温杯造假套路](http://www.movie.hkepx.cn/movie/3470730.htm)
+- [尼泊尔泥石流2426人失联](http://www.play.hengshemaoyi.cn/xiju/4606749.htm)
+- [开学补作业现状](http://www.play.hengshemaoyi.cn/xiju/1809500.htm)
+- [朱忠明任上海市政府党组书记](http://www.play.hengshemaoyi.cn/xiju/2357926.htm)
+- [直击西藏吉隆口岸救援情况](http://www.daogukj.com/mubcstjz/)
+- [不与安东尼奥续约？中国足协辟谣](http://www.play.hengshemaoyi.cn/kongbu/1803166.htm)
+- [上海一面包店货架全是照片没有面包](http://www.play.hengshemaoyi.cn/xiju/6178111.htm)
+- [一批高新装备投入西藏吉隆受灾核心区](http://www.play.hengshemaoyi.cn/kongbu/1944948.htm)
+- [献祭元婴！宗主降临！《凡人修仙传》189逐帧解析](http://www.daogukj.com/6071545)
+- [宋亚东KO击败乌马尔](http://www.play.hengshemaoyi.cn/xiju/4544487.htm)
+- [樊振东2比3户上隼辅](http://www.movie.hkepx.cn/movie/6450034.htm)
+- [《古神: 风里希》科隆游戏展最新预告片 | 世界观前瞻](http://www.play.hengshemaoyi.cn/xiju/9133321.htm)
+- [用这种微信头像或被封号](http://www.movie.hkepx.cn/movie/2700475.htm)
+- [为什么我国这么多高层住宅，真的缺土地吗？](http://www.daogukj.com/1077827)
+- [一张CT背后的“5元钱变革”](http://www.play.hengshemaoyi.cn/kongbu/0870154.htm)
+- [【明日方舟×女神异闻录３ Reload】SideStory「月行水上」活动宣传PV](http://www.movie.hkepx.cn/movie/5323758.htm)
+- [郑州北龙湖疑现多条巨型鱼类，网友推测为「水老虎」 ，这可能是什么鱼？出现在城市内湖会有哪些潜在影响？](http://www.play.hengshemaoyi.cn/xiju/4973102.htm)
+- [云南一水库存在溃坝风险](http://www.movie.hkepx.cn/xiju/8685260.htm)
+- [《洛克王国：世界》S4赛季「月涌狂想」PV首曝，新的冒险即将开启！](http://www.play.hengshemaoyi.cn/kongbu/1304214.htm)
+- [成都一男生高考超过本科线 157 分却报考高职，本人回应「想进铁路局当火车司机」，如何看待这一选择？](http://www.play.hengshemaoyi.cn/xiju/0363166.htm)
+- [【独家】《凡人修仙传之慕兰之战》第13集【总第189集】](http://www.movie.hkepx.cn/xiju/5928968.htm)
+- [直击苏超：常州vs无锡](http://www.daogukj.com/2348227)
+- [凡人修仙传动漫189集观众满意吗？](http://www.movie.hkepx.cn/xiju/7664029.htm)
+- [吃水果成了情绪社交](http://www.movie.hkepx.cn/xiju/6562531.htm)
+- [美加贸易战开打 特朗普想要什么](http://www.play.hengshemaoyi.cn/kongbu/1978626.htm)
+- [余承东上手华为全新三折叠](http://www.movie.hkepx.cn/movie/8501679.htm)
+- [樊振东vs户上隼辅](http://www.daogukj.com/olljhjfc/)
+- [UFC上海站](http://www.movie.hkepx.cn/xiju/8131882.htm)
+- [小学初中新教材替换将全面完成](http://www.movie.hkepx.cn/xiju/6634802.htm)
+- [小伙从200斤减到120斤考上国防科大](http://www.play.hengshemaoyi.cn/kongbu/0490106.htm)
+- [一场房地产行业大变局正在发生](http://www.play.hengshemaoyi.cn/xiju/3496955.htm)
+- [《下一个是谁》恐怖特辑——无限循环的寺庙](http://www.movie.hkepx.cn/movie/9511541.htm)
 
 </details>
 
 ## 原始来源
 
-- [谷爱凌线下活动路透](https://s.weibo.com/weibo?q=%E8%B0%B7%E7%88%B1%E5%87%8C%E7%BA%BF%E4%B8%8B%E6%B4%BB%E5%8A%A8%E8%B7%AF%E9%80%8F)
+- [如何看待 LPL 解说管泽元发布对着垃圾桶附文「48」的视频，被指玩选手黑梗？](https://www.zhihu.com/question/2076659692068257906)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bfc7cee16c271d4ad509 -->
+<!-- content-fingerprint: 674a59dfdc0135168d9f -->
