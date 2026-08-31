@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 尼泊尔冰崩是因为全球变暖吗
+# 国家动物博物馆两个小孩手抓脚踢致莽山原矛头蝮标本受损，父亲一起玩闹，这一标本有多珍贵？谁该担责？
 
-> 来源：今日头条热榜 · 排名：第 14 位 · 热度：7012565 · 分类：解读 · 更新：2026-08-31T07:31:49+08:00
+> 来源：知乎热榜 · 排名：第 14 位 · 热度：111 万热度 · 分类：问答 · 更新：2026-08-31T09:32:44+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“尼泊尔冰崩是因为全球变暖吗”位列第 14 位，公开热度指标为 7012565，榜单分类为“解读”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“国家动物博物馆两个小孩手抓脚踢致莽山原矛头蝮标本受损，父亲一起玩闹，这一标本有多珍贵？谁该担责？”位列第 14 位，公开热度指标为 111 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：据国家动物博物馆官方公众号消息，8月28日，该馆馆内监控拍下这样一幕： 一层濒危动物展厅里，两个孩子在舟山眼镜蛇标本和莽山原矛头蝮标本前玩闹，不断用手抓、用脚踢标本。 随行的父亲非但没有制止，反而把两件标本拿起来，递给孩子，跟着一起玩闹。其间，莽山原矛头蝮标本受损。 对于此类行为，国家动物博物馆指出，这是典型的、性质恶劣的不文明参观行为——成年人非但不引导孩子爱护展品，反而带头参与、放任破坏。国家动物博物馆表示强烈谴责，并已完整保存事发全程不间断的监控视频，将保留依法追究当事人法律责任的权利。 据悉，监控画面中被损坏的标本，学名为莽山原矛头蝮（Proto
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `解读`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [诺基亚疑加快收缩中国业务，发言人称正调整在中国的运营布局，这是要退出中国市场了吗？其面临怎样的处境？](bo-wen-qiang-ji.md)
-- [【景甜】的卵子，值5000万美元吗？](wen-gu-zhi-xin.md)
-- [杨洋花少下沉口碑](ju-yi-fan-san.md)
-- [2026香港小姐三甲出炉](rong-hui-guan-tong.md)
+- [第1集丨《八仙在现代》“神仙若不懂人间，如何度化世人？”](bo-wen-qiang-ji.md)
+- [王晶直言内娱顶流都不会演戏](wen-gu-zhi-xin.md)
+- [许晴的情商](ju-yi-fan-san.md)
+- [吉隆救援人员淤泥中手脚并用成泥人](rong-hui-guan-tong.md)
 
 ## 站内推荐
 
-- [许晴花少2表现被理解](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [“开学三件套”齐涨价家长们该咋办](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [梅艳芳遗产争夺案23年后大结局](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [如何看待工信部通报一致性检测典型案例，比亚迪一款插混车型因油耗过高上榜？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [牙齿：演化留给人类的烂摊子](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [大学新生报到带两板车加两箱子行李](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [如何看待WinUI开源了？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [商鞅变法成功却身败名裂的原因是什么？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [樊振东在德甲打高排名选手容易输球，缺乏高水平对抗的问题该怎么破解？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [760元一粒的片仔癀卖不动了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [综艺节目遗留道具2年成海滩垃圾](http://www.play.hengshemaoyi.cn/xiju/7605701.htm)
-- [官方通报「博主街头除钉因扬尘影响环保被叫停」，称工作人员沟通方式造成误解，有更好的处理方式吗？](http://www.daogukj.com/7763134)
-- [老师补课费用太贵了，不好意思拒绝，怎么办?](http://www.movie.hkepx.cn/movie/9676418.htm)
-- [2026香港小姐三甲出炉](http://www.daogukj.com/glgoceuy/)
-- [女孩游泳减肥身上冒出20多个疣](http://www.daogukj.com/orzdfsse/)
-- [如何评价清华大学宣布废除GPA排名，实施推免综合评价？](http://www.play.hengshemaoyi.cn/xiju/8405399.htm)
-- [如何看待工信部通报一致性检测典型案例，比亚迪一款插混车型因油耗过高上榜？](http://www.daogukj.com/eymflmzk/)
-- [大伟哥试玩无限大?合理猜测这俩的企划是不是拿反了!](http://www.play.hengshemaoyi.cn/kongbu/7715467.htm)
-- [王菲朝窦靖童喊老母亲在这呢](http://www.movie.hkepx.cn/movie/6971182.htm)
-- [梅艳芳母亲3个子女均因患癌去世](http://www.movie.hkepx.cn/movie/4395855.htm)
-- [梅艳芳遗产争夺案23年后大结局](http://www.daogukj.com/qotrqcnx/)
-- [半月工资55元 被踢出845个工作群](http://www.movie.hkepx.cn/movie/3034740.htm)
-- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](http://www.play.hengshemaoyi.cn/xiju/2234210.htm)
-- [为什么亲子之间总是容易爆发冲突？](http://www.play.hengshemaoyi.cn/xiju/4074352.htm)
-- [塞浦路斯一载约270名乘客渡轮倾覆](http://www.daogukj.com/6535873)
-- [女孩被踢出845个工作群无奈离职](http://www.play.hengshemaoyi.cn/kongbu/0771677.htm)
-- [【大学生就业指导】麦当当薯条N重奏！200块买两斤土豆？不能够了！](http://www.play.hengshemaoyi.cn/xiju/3926740.htm)
-- [桂圆“打针增甜”不可能](http://www.play.hengshemaoyi.cn/kongbu/0629663.htm)
-- [南航一客机在上海虹桥机场误放滑梯](http://www.movie.hkepx.cn/xiju/4618462.htm)
-- [如果让专业厨师推荐私藏小店他们会怎么推荐？](http://www.play.hengshemaoyi.cn/kongbu/4226628.htm)
-- [世界破破烂烂，总有人缝缝补补](http://www.play.hengshemaoyi.cn/xiju/1687476.htm)
-- [王菲被大屏切到立刻躲镜头](http://www.daogukj.com/7225995)
-- [【景甜】的卵子，值5000万美元吗？](http://www.movie.hkepx.cn/xiju/2047156.htm)
-- [许晴花少2表现被理解](http://www.daogukj.com/9963303)
-- [杨洋花少下沉口碑](http://www.play.hengshemaoyi.cn/kongbu/1215997.htm)
-- [花少2爆料文](http://www.daogukj.com/ybrclrlt/)
-- [当你的资产缩水到A0层级，挑选优质桥洞的六大方案！](http://www.play.hengshemaoyi.cn/xiju/1146323.htm)
-- [吴尊找刘畊宏联系曾辉](http://www.daogukj.com/0361450)
-- [干中学](http://www.daogukj.com/2827507)
-- [760元一粒的片仔癀卖不动了](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
-- [花少2心眼子排名](http://www.movie.hkepx.cn/xiju/4072931.htm)
-- [9月新规来了：涉及公积金、AI客服](http://www.movie.hkepx.cn/movie/5903663.htm)
-- [张靓颖演唱会掏出手机看歌词](http://www.daogukj.com/vhjggfrk/)
-- [【独家/完结】《记忆管理局》第7集 记忆这样脆弱的东西【8月国创】](http://www.play.hengshemaoyi.cn/kongbu/3924344.htm)
-- [轻薄本疯狂砍掉A口、HDMI，全靠Type‑C，为轻薄牺牲接口，到底是进步还是对普通用户不负责任？](http://www.movie.hkepx.cn/movie/9473120.htm)
-- [中国男人正在抛弃皮鞋](http://www.play.hengshemaoyi.cn/kongbu/1478965.htm)
-- [李斌去年曾对话星宇股份董事长](http://www.daogukj.com/tfijfvel/)
-- [爷爷去世前怕孙女饿提前包好饺子](http://www.daogukj.com/dazlebgh/)
-- [《不能歪曲事实 我当什么媒体》](http://www.play.hengshemaoyi.cn/kongbu/6412162.htm)
-- [猫叼着松鼠带着蛇直冲女子而来](http://www.play.hengshemaoyi.cn/kongbu/1040618.htm)
-- [如何看待《燕云十六声》拿下2026科隆游戏展最佳移动游戏？](http://www.movie.hkepx.cn/xiju/5518395.htm)
-- [韩剧《鼠惑》整容桥段引热议](http://www.play.hengshemaoyi.cn/kongbu/5070757.htm)
-- [郎平曾说朱婷有时候半个月不回消息](http://www.movie.hkepx.cn/movie/5067570.htm)
-- [医疗防疫分队前往救援一线](http://www.movie.hkepx.cn/xiju/7472860.htm)
-- [尼泊尔重大灾害是冰圈松动预警](http://www.daogukj.com/wzbnsgim/)
-- [吉隆泥石流搜救现场发现警用马甲](http://www.movie.hkepx.cn/movie/6034324.htm)
-- [又一地宣布生物地理不计入中考总分](http://www.daogukj.com/skozyuih/)
-- [网传 PL-17 导弹 J-20 弹仓无法容纳，是真的吗？若属实，这是设计局限还是战略考量？](http://www.play.hengshemaoyi.cn/kongbu/7371955.htm)
+- [许晴花少2表现被理解](http://www.play.hengshemaoyi.cn/xiju/7605701.htm)
+- [跟着阿兴在广东扛楼背板，一天能赚500多](http://www.daogukj.com/7763134)
+- [怎么看待 LG 为显示器配备弹窗广告？](http://www.movie.hkepx.cn/movie/9676418.htm)
+- [吉隆救援人员淤泥中手脚并用成泥人](http://www.daogukj.com/glgoceuy/)
+- [梅艳芳遗产争夺案23年后大结局](http://www.daogukj.com/orzdfsse/)
+- [很多医学生熬不住选择退出规培，反映了当前医疗教育和规培制度的哪些问题？](http://www.play.hengshemaoyi.cn/xiju/8405399.htm)
+- [樊振东在德甲打高排名选手容易输球，缺乏高水平对抗的问题该怎么破解？](http://www.daogukj.com/eymflmzk/)
+- [军工企业骨干遭2国间谍围猎 细节披露](http://www.play.hengshemaoyi.cn/kongbu/7715467.htm)
+- [花少2心眼子排名](http://www.movie.hkepx.cn/movie/6971182.htm)
+- [消息人士称伊朗袭击驻约旦美军](http://www.movie.hkepx.cn/movie/4395855.htm)
+- [商鞅变法成功却身败名裂的原因是什么？](http://www.daogukj.com/qotrqcnx/)
+- [留学生频繁回国索要58万 父母报警](http://www.movie.hkepx.cn/movie/3034740.htm)
+- [医疗防疫分队前往救援一线](http://www.play.hengshemaoyi.cn/xiju/2234210.htm)
+- [【招笑版】新植物4:滚木坚果](http://www.play.hengshemaoyi.cn/xiju/4074352.htm)
+- [中国男人正在抛弃皮鞋](http://www.daogukj.com/6535873)
+- [冯坤为中国女排颁奖](http://www.play.hengshemaoyi.cn/kongbu/0771677.htm)
+- [《B 界 修 仙 传：长 篇 电 影》](http://www.play.hengshemaoyi.cn/xiju/3926740.htm)
+- [Ryan 性骚扰](http://www.play.hengshemaoyi.cn/kongbu/0629663.htm)
+- [官方通报「博主街头除钉因扬尘影响环保被叫停」，称工作人员沟通方式造成误解，有更好的处理方式吗？](http://www.movie.hkepx.cn/xiju/4618462.htm)
+- [给它加上屏幕后，我好像玩大了…](http://www.play.hengshemaoyi.cn/kongbu/4226628.htm)
+- [我捡到一个奇怪的硬盘](http://www.play.hengshemaoyi.cn/xiju/1687476.htm)
+- [2026国家自然科学基金变容易了还是更难了？](http://www.daogukj.com/7225995)
+- [王晶直言内娱顶流都不会演戏](http://www.movie.hkepx.cn/xiju/2047156.htm)
+- [大学新生报到带两板车加两箱子行李](http://www.daogukj.com/9963303)
+- [许晴的情商](http://www.play.hengshemaoyi.cn/kongbu/1215997.htm)
+- [为什么很多大学生更喜欢买标准版 iPhone，而不是 Pro？](http://www.daogukj.com/ybrclrlt/)
+- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](http://www.play.hengshemaoyi.cn/xiju/1146323.htm)
+- [房贷最长40年购房者称压力下降](http://www.daogukj.com/0361450)
+- [牙齿：演化留给人类的烂摊子](http://www.daogukj.com/2827507)
+- [西藏吉隆有挖掘机意外坠河](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
+- [杨洋花少下沉口碑](http://www.movie.hkepx.cn/xiju/4072931.htm)
+- [郑某造谣外卖员向饮料加百草枯被罚](http://www.movie.hkepx.cn/movie/5903663.htm)
+- [被吉隆口岸淤泥里的物品戳到了](http://www.daogukj.com/vhjggfrk/)
+- [半月工资55元 被踢出845个工作群](http://www.play.hengshemaoyi.cn/kongbu/3924344.htm)
+- [一个人，耗时18个月，2万元成本，手搓94分钟以刘慈欣小说《山》为故事原型的AI仿真人科幻电影](http://www.movie.hkepx.cn/movie/9473120.htm)
+- [小鹏汽车六年半亏370亿](http://www.play.hengshemaoyi.cn/kongbu/1478965.htm)
+- [中国男人为什么突然不爱皮鞋了](http://www.daogukj.com/tfijfvel/)
+- [郎平曾说朱婷有时候半个月不回消息](http://www.daogukj.com/dazlebgh/)
+- [赵勇考砸了](http://www.play.hengshemaoyi.cn/kongbu/6412162.htm)
+- [100年被翻拍3次，这就是经典的魅力！战争给世界带来了什么？](http://www.play.hengshemaoyi.cn/kongbu/1040618.htm)
+- [马达加斯加没有企鹅，但有中国外交官！非洲大使馆第一探](http://www.movie.hkepx.cn/xiju/5518395.htm)
+- [9月金价展望](http://www.play.hengshemaoyi.cn/kongbu/5070757.htm)
+- [官方回应“取消ETC”读懂车主真诉求](http://www.movie.hkepx.cn/movie/5067570.htm)
+- [西藏吉隆泥石流灾害新闻发布会实录](http://www.movie.hkepx.cn/xiju/7472860.htm)
+- [特斯拉推出平价版Model3](http://www.daogukj.com/wzbnsgim/)
+- [两个领导斗法都拉拢我该保持中立还是选一边 ？](http://www.movie.hkepx.cn/movie/6034324.htm)
+- [西藏吉隆泥石流](http://www.daogukj.com/skozyuih/)
+- [网传有研究警告南极水银释放量激增 550%，是真的吗？会带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/7371955.htm)
 - [泰国女排主帅称中国队100%晋级奥运会](http://www.play.hengshemaoyi.cn/kongbu/2749128.htm)
-- [国家动物博物馆两个小孩手抓脚踢致莽山原矛头蝮标本受损，父亲一起玩闹，这一标本有多珍贵？谁该担责？](http://www.play.hengshemaoyi.cn/xiju/7990952.htm)
+- [如何评价蒋炎岩在课件中提出“ 没有Token的CS学生应该立刻退学”？](http://www.play.hengshemaoyi.cn/xiju/7990952.htm)
 
 </details>
 
 ## 原始来源
 
-- [尼泊尔冰崩是因为全球变暖吗](https://www.toutiao.com/trending/7679218383044333119/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227679218383044333119%22%2C%22hot_board_impr_id%22%3A%22202608310731483539FDCBC3F1C33A53DF%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [国家动物博物馆两个小孩手抓脚踢致莽山原矛头蝮标本受损，父亲一起玩闹，这一标本有多珍贵？谁该担责？](https://www.zhihu.com/question/2077196582349546349)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f9fd089b3339b6b34fbd -->
+<!-- content-fingerprint: 7acf709ff9d28bb76988 -->
