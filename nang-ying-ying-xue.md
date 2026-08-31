@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 马杜罗社媒发布狱中照片
+# 华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】
 
-> 来源：百度热搜 · 排名：第 13 位 · 热度：6560029 · 更新：2026-08-31T09:32:44+08:00
+> 来源：哔哩哔哩热门 · 排名：第 13 位 · 热度：2183054 · 分类：鬼畜剧场 · 更新：2026-08-31T15:32:51+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“马杜罗社媒发布狱中照片”位列第 13 位，公开热度指标为 6560029。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】”位列第 13 位，公开热度指标为 2183054，榜单分类为“鬼畜剧场”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：8月30日，马杜罗的官方社交媒体账号发布了一组他在美国羁押期间拍摄的照片。照片拍摄于6月25日，其中马杜罗神情轻松，还做出了胜利手势。
+来源公开摘要显示：忙了许久，华强再次回归。 研究了许久的Minimax H3这次是主力。全片没有使用闭源视频平台。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `鬼畜剧场`
 
 ## 相关热点
 
-- [被吉隆口岸淤泥里的物品戳到了](cheng-men-li-xue.md)
-- [官方回应“取消ETC”读懂车主真诉求](shou-bu-shi-juan.md)
-- [国家动物博物馆两个小孩手抓脚踢致莽山原矛头蝮标本受损，父亲一起玩闹，这一标本有多珍贵？谁该担责？](xue-fu-wu-che.md)
-- [第1集丨《八仙在现代》“神仙若不懂人间，如何度化世人？”](bo-wen-qiang-ji.md)
+- [尼泊尔泥石流灾害已致907人遇难](cheng-men-li-xue.md)
+- [当一位三甲医院中层医生遭遇降薪](shou-bu-shi-juan.md)
+- [班主任何时变成了“烫手山芋”](xue-fu-wu-che.md)
+- [网传有研究警告南极水银释放量激增 550%，是真的吗？会带来哪些影响？](bo-wen-qiang-ji.md)
 
 ## 站内推荐
 
-- [跟着阿兴在广东扛楼背板，一天能赚500多](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [我的世界，但所有人共享背包！？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [综艺节目遗留道具2年成海滩垃圾](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [尼泊尔冰崩是因为全球变暖吗](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [陈粒疑似被性骚扰](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [我有不能输的理由](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [全程高能！队友接连失踪？活着并逃离这里！！！「逃离疯人院」](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [凝空破蹋千光寂，凌虚纵步万籁息](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [去了一趟西班牙2.0（日全食篇）](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [欲买桂花同载酒，终不似，少年游。](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [陈粒疑似被性骚扰](http://www.daogukj.com/0791900)
-- [中国男人正在抛弃皮鞋](http://www.movie.hkepx.cn/movie/6187756.htm)
-- [英伟达 CEO 黄仁勋称在很多任务上已实现 AGI，并认为该里程碑已无意义，如何看待？](http://www.play.hengshemaoyi.cn/xiju/2843741.htm)
-- [郑丽文：台湾局势危险必须反“台独”](http://www.daogukj.com/zealysjt/)
-- [如何看待《燕云十六声》拿下2026科隆游戏展最佳移动游戏？](http://www.movie.hkepx.cn/movie/0178031.htm)
-- [抢险救援现场 照明无人机点亮夜空](http://www.daogukj.com/6215529)
-- [奥黛塔也可以在冰上起舞](http://www.movie.hkepx.cn/xiju/4801450.htm)
-- [吉隆口岸大楼现状](http://www.daogukj.com/8108433)
-- [女孩被踢出845个工作群无奈离职](http://www.daogukj.com/3643825)
-- [梅艳芳遗产争夺案23年后大结局](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
-- [官方通报「博主街头除钉因扬尘影响环保被叫停」，称工作人员沟通方式造成误解，有更好的处理方式吗？](http://www.daogukj.com/1108835)
-- [郎平曾说朱婷有时候半个月不回消息](http://www.movie.hkepx.cn/xiju/9153610.htm)
-- [房贷最长40年购房者称压力下降](http://www.play.hengshemaoyi.cn/xiju/5315061.htm)
-- [吉隆泥石流搜救现场发现警用马甲](http://www.play.hengshemaoyi.cn/xiju/5421312.htm)
+- [欲买桂花同载酒，终不似，少年游。](http://www.daogukj.com/0791900)
+- [对面牢玩家外出一趟，他队友就被我们牢玩家杀光了](http://www.movie.hkepx.cn/movie/6187756.htm)
+- [长鑫存储起诉美国国防部，要求将其从黑名单中移除，被列入黑名单一年半，对其海外业务造成了哪些影响？](http://www.play.hengshemaoyi.cn/xiju/2843741.htm)
+- [吉林一虎园幼虎疑被饲养员踢至昏迷](http://www.daogukj.com/zealysjt/)
+- [8月“科学”流言榜发布](http://www.movie.hkepx.cn/movie/0178031.htm)
+- [9图读懂上合组织峰会](http://www.daogukj.com/6215529)
+- [网友意外拍到泥石流暴发瞬间](http://www.movie.hkepx.cn/xiju/4801450.htm)
+- [“子涵梓萱”的时代已经过去](http://www.daogukj.com/8108433)
+- [第一批买网红小家电的人已经后悔了](http://www.daogukj.com/3643825)
+- [蒋欣经纪人说蒋欣吃凉拌黄瓜都会胖](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
+- [马杜罗狱中近照曝光：双手比耶](http://www.daogukj.com/1108835)
+- [10公里要30元 景区摆渡车非坐不可吗](http://www.movie.hkepx.cn/xiju/9153610.htm)
+- [时隔30年 东南亚将迎来第二艘航母](http://www.play.hengshemaoyi.cn/xiju/5315061.htm)
+- [尼泊尔泥石流已致903遇难4247失联](http://www.play.hengshemaoyi.cn/xiju/5421312.htm)
 - [净网：造谣外卖员向饮料加百草枯者被罚](http://www.daogukj.com/veafcjhm/)
-- [许晴花少2表现被理解](http://www.play.hengshemaoyi.cn/xiju/5677870.htm)
-- [特斯拉推出平价版Model3](http://www.movie.hkepx.cn/movie/8965818.htm)
-- [【独家】牧神记 第98集 杀新皇](http://www.daogukj.com/6666143)
-- [大学新生报到带两板车加两箱子行李](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
-- [一个人，耗时18个月，2万元成本，手搓94分钟以刘慈欣小说《山》为故事原型的AI仿真人科幻电影](http://www.movie.hkepx.cn/xiju/8931005.htm)
-- [【独家/完结】《记忆管理局》第7集 记忆这样脆弱的东西【8月国创】](http://www.movie.hkepx.cn/xiju/6420011.htm)
-- [熬夜之后如何正确恢复身体](http://www.play.hengshemaoyi.cn/kongbu/7380475.htm)
-- [跟着阿兴在广东扛楼背板，一天能赚500多](http://www.daogukj.com/5699059)
-- [网传有研究警告南极水银释放量激增 550%，是真的吗？会带来哪些影响？](http://www.movie.hkepx.cn/xiju/0644202.htm)
-- [留学生频繁回国索要58万 父母报警](http://www.movie.hkepx.cn/xiju/8056511.htm)
-- [100年被翻拍3次，这就是经典的魅力！战争给世界带来了什么？](http://www.daogukj.com/nexzmtzr/)
-- [小区选择不要物业 居民自己管自己](http://www.daogukj.com/1229862)
-- [2026香港小姐三甲出炉](http://www.daogukj.com/bnuggeog/)
-- [Ryan 性骚扰](http://www.movie.hkepx.cn/xiju/0869258.htm)
-- [半月工资55元 被踢出845个工作群](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
-- [当你的资产缩水到A0层级，挑选优质桥洞的六大方案！](http://www.play.hengshemaoyi.cn/xiju/8712972.htm)
-- [开学](http://www.daogukj.com/1535718)
-- [西藏吉隆泥石流灾害新闻发布会实录](http://www.play.hengshemaoyi.cn/kongbu/2527657.htm)
-- [我捡到一个奇怪的硬盘](http://www.daogukj.com/fwgnvbgz/)
-- [【景甜】的卵子，值5000万美元吗？](http://www.daogukj.com/liomovvw/)
-- [为什么很多大学生更喜欢买标准版 iPhone，而不是 Pro？](http://www.play.hengshemaoyi.cn/xiju/3352880.htm)
-- [9月金价展望](http://www.daogukj.com/5981356)
-- [追觅起诉小红书](http://www.play.hengshemaoyi.cn/kongbu/9556053.htm)
-- [王晶直言内娱顶流都不会演戏](http://www.movie.hkepx.cn/movie/6187870.htm)
+- [排队2年 年轻人为什么还在等一条烤鱼](http://www.play.hengshemaoyi.cn/xiju/5677870.htm)
+- [早春晴朗](http://www.movie.hkepx.cn/movie/8965818.htm)
+- [恐怖版新植物：寒冰上尉](http://www.daogukj.com/6666143)
+- [网警公布10起涉吉隆泥石流谣言案例](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
+- [陈粒回应疑似被性骚扰](http://www.movie.hkepx.cn/xiju/8931005.htm)
+- [景区 NPC 为什么火了？你眼中的景区 NPC 是一种怎样的工作？见过哪些令你印象深刻的 NPC？](http://www.movie.hkepx.cn/xiju/6420011.htm)
+- [芭莎之夜 阵容](http://www.play.hengshemaoyi.cn/kongbu/7380475.htm)
+- [我有不能输的理由](http://www.daogukj.com/5699059)
+- [全球1型糖尿病患者将大幅增长](http://www.movie.hkepx.cn/xiju/0644202.htm)
+- [AI电视剧登陆湖南卫视黄金档](http://www.movie.hkepx.cn/xiju/8056511.htm)
+- [三甲医院 解聘](http://www.daogukj.com/nexzmtzr/)
+- [为什么在OpenAI之后，美国的创业公司只有Anthropic拿出了一线的大模型？](http://www.daogukj.com/1229862)
+- [芭莎之夜阵容预告](http://www.daogukj.com/bnuggeog/)
+- [夜跑女子被路过小朋友夸美](http://www.movie.hkepx.cn/xiju/0869258.htm)
+- [《洛克王国：世界》 S4赛季「月涌棱镜球」实机效果展示](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
+- [「如果国家限制租金，房东就会宁愿房子空置到烂掉也不租给有需要的人」，如何看待这种观点？](http://www.play.hengshemaoyi.cn/xiju/8712972.htm)
+- [年轻人不爱当班主任了](http://www.daogukj.com/1535718)
+- [2.7万公里 “黄金大外环”如何赋能](http://www.play.hengshemaoyi.cn/kongbu/2527657.htm)
+- [有什么史料可以证明“曹雪芹”是曹霑？](http://www.daogukj.com/fwgnvbgz/)
+- [【我在现代当幽差】EP02 神仙？妖怪？谢谢【UP动画】](http://www.daogukj.com/liomovvw/)
+- [一捆伍角纸币面值500元竟卖5800](http://www.play.hengshemaoyi.cn/xiju/3352880.htm)
+- [尼泊尔900名学生泥石流10秒前撤离](http://www.daogukj.com/5981356)
+- [网警公布10起涉吉隆泥石流谣言案](http://www.play.hengshemaoyi.cn/kongbu/9556053.htm)
+- [锻刀大赛：威力加强版](http://www.movie.hkepx.cn/movie/6187870.htm)
 - [郑某造谣外卖员向饮料加百草枯被罚](http://www.movie.hkepx.cn/xiju/9816980.htm)
-- [2026国家自然科学基金变容易了还是更难了？](http://www.daogukj.com/djgtqgkc/)
-- [【招笑版】新植物4:滚木坚果](http://www.movie.hkepx.cn/movie/4871450.htm)
-- [给它加上屏幕后，我好像玩大了…](http://www.movie.hkepx.cn/xiju/4251876.htm)
-- [760元一粒的片仔癀卖不动了](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
-- [花少2心眼子排名](http://www.movie.hkepx.cn/movie/9171667.htm)
-- [以你现在的情况，突然给你120万，请问你是先买房还是先买车？](http://www.daogukj.com/oeibgnih/)
-- [花少2爆料文](http://www.play.hengshemaoyi.cn/xiju/5921224.htm)
-- [许晴的情商](http://www.daogukj.com/jqsnmzfn/)
-- [吉隆救援人员淤泥中手脚并用成泥人](http://www.daogukj.com/fprzebnn/)
-- [如何评价蒋炎岩在课件中提出“ 没有Token的CS学生应该立刻退学”？](http://www.daogukj.com/2176297)
+- [中国男人为什么突然不爱皮鞋了](http://www.daogukj.com/djgtqgkc/)
+- [美军袭击伊朗拉腊克岛，这是美军一个月来首次对伊采取军事行动，伊方誓言报复，本次冲突会升级吗？](http://www.movie.hkepx.cn/movie/4871450.htm)
+- [国家动物博物馆考虑将标本封入玻璃罩，这种「防御性保护」是不是一种被迫的倒退？除了封起来，还有什么办法？](http://www.movie.hkepx.cn/xiju/4251876.htm)
+- [如何评价鹰角高调租下万科9万m²独栋大平层用于办公？](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
+- [梅艳芳母亲3个子女均因患癌去世](http://www.movie.hkepx.cn/movie/9171667.htm)
+- [A股收官之战](http://www.daogukj.com/oeibgnih/)
+- [大伟哥试玩无限大？！国内游戏大厂只会抄案例，不敢去赌创新？](http://www.play.hengshemaoyi.cn/xiju/5921224.htm)
+- [7000亿足疗市场跑不出一家上市龙头](http://www.daogukj.com/jqsnmzfn/)
+- [杨幂双马尾女高](http://www.daogukj.com/fprzebnn/)
+- [新版《国防动员法》2026 年 10 月 1 日实施，哪些信息值得关注？会带来什么影响？](http://www.daogukj.com/2176297)
 
 </details>
 
 ## 原始来源
 
-- [马杜罗社媒发布狱中照片](https://www.baidu.com/s?wd=%E9%A9%AC%E6%9D%9C%E7%BD%97%E7%A4%BE%E5%AA%92%E5%8F%91%E5%B8%83%E7%8B%B1%E4%B8%AD%E7%85%A7%E7%89%87&sa=fyb_news&rsv_dl=fyb_news)
+- [华强见宋老虎 但是唱跳RAP 【多梦综合征】【AI音乐宇宙】](https://b23.tv/BV1Hy4k64Erk)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f746188f83527b3ad919 -->
+<!-- content-fingerprint: df6fb8bf6cc9e80ef50a -->
