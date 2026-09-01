@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待研究根据中美两国数据发现工时和消费的相关性，这是「多休息才能多消费」吗？
+# 印度16岁少女被骗上大巴遭轮奸
 
-> 来源：知乎热榜 · 排名：第 13 位 · 热度：184 万热度 · 分类：问答 · 更新：2026-09-01T18:00:05+08:00
+> 来源：今日头条热榜 · 排名：第 13 位 · 热度：6271525 · 更新：2026-09-01T22:44:04+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待研究根据中美两国数据发现工时和消费的相关性，这是「多休息才能多消费」吗？”位列第 13 位，公开热度指标为 184 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“印度16岁少女被骗上大巴遭轮奸”位列第 13 位，公开热度指标为 6271525。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：1970年以来中美两国的数据表明，年均工时与消费占GDP比重呈明显的负相关。 与上世纪90年代相比，中国工时增加约4%，居民消费占比却下降约8个百分点。 相关性不能证明减少工时必然刺激消费，但中国劳动者年均工时较七国集团高约45%，休闲时间不足会直接压缩餐饮、旅游和文娱等服务消费，因此落实休假和限制超时劳动可与增收及社会保障改革形成互补。 来源：伯恩斯坦（《亚洲消费速评：如何重振中国经济？亨利·福特的启示》
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [1.6万人同唱，龚琳娜现场全开麦！《剑网3》十七周年庆典全程回顾上线](nang-ying-ying-xue.md)
-- [失踪几十年遗体在冰川出现 麻烦大了](cheng-men-li-xue.md)
-- [星宇解约补偿方案](shou-bu-shi-juan.md)
-- [于东来痛批明星扎堆直播带货](xue-fu-wu-che.md)
+- [R星确认GTA6每个房间都手工打造，连NPC喝什么、桌上留什么痕迹都精心设计，你看好这种细节投入吗？](nang-ying-ying-xue.md)
+- [【铁豆钢蛋】你好 斌斌！](cheng-men-li-xue.md)
+- [小区不要物业自己管自己 1天1户1块钱](shou-bu-shi-juan.md)
+- [曝赵樱子得抑郁症了](xue-fu-wu-che.md)
 
 ## 站内推荐
 
-- [为什么一斤粮食还没有一瓶瓶装水贵？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [河南 5 人聚餐吃生鱼片确诊肝吸血虫病，如何避免该病？是否有扩散的风险？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [三大航上半年全部亏损，国航净亏22.86亿，东航净亏21.79亿，南航净亏36.96亿，为什么会这样？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [2026暑期档票房 124.98 亿，创影史最高场次纪录，《功夫女足》夺冠，如何评价这一成绩？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [从最期待变最难绷，一个城市还没做完就做第二个，没任何公开测试就宣布上线日期，无限大能好好把游戏做完吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [透视暑期消费新变化](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [有银行称办40年房贷需35岁以下](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [英国疯狂挑衅俄罗斯在赌什么](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [藏族为啥爱去成都，而不是西宁？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [《脱口秀和Ta的朋友们》第三季，小奇夺冠算是意外吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [开学首日家长扛着床垫送孩子报到](http://www.movie.hkepx.cn/movie/7696059.htm)
-- [吉隆救援为何不直接炸出泄流通道](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
-- [亚运会](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
-- [对话黄眉大王：《时空朋友圈》第二季 EP01](http://www.daogukj.com/xbqcnyun/)
-- [《明日方舟：终末地》干员叙事 [提弗洛斯：萨米维格的孩子]](http://www.daogukj.com/3076909)
-- [还是穿不了“大人”的衣服](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
-- [济宁一地辟谣虚假人才引进信息](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
-- [2026暑期档票房 124.98 亿，创影史最高场次纪录，《功夫女足》夺冠，如何评价这一成绩？](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
-- [漂亮的恶意01|误入充满恶意的顶级财阀校园，川渝转学生表示，她真的只想好好学习！](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
-- [第1天送宝宝去幼儿园 爸爸哭成泪人](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
-- [如何看待《英雄联盟》内容创作者「上单老祖」和「柔风亚索」的纠纷？](http://www.daogukj.com/7832374)
-- [可可里小姐闭店](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
-- [百元报销须王兴兴亲自审批？宇树回应](http://www.movie.hkepx.cn/movie/5380543.htm)
-- [月经期间最好别做这10件事](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
-- [从最期待变最难绷，一个城市还没做完就做第二个，没任何公开测试就宣布上线日期，无限大能好好把游戏做完吗？](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
-- [于东来痛批明星扎堆直播带货](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
-- [9 月 1 日大量用户吐槽抖音崩了，推荐页秒变「中老年频道」，具体什么情况？可能是什么原因导致的？](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
-- [尼泊尔泥石流1010人遇难](http://www.daogukj.com/whdogfom/)
-- [全校第一个生娃的00后清华女大](http://www.daogukj.com/owjemlxs/)
-- [平台拿流量明星拿钱 大自然背负垃圾](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
-- [1.6万人同唱，龚琳娜现场全开麦！《剑网3》十七周年庆典全程回顾上线](http://www.movie.hkepx.cn/xiju/8272307.htm)
-- [为了测试这台7座车，我们找来了最难伺候的6种人！](http://www.movie.hkepx.cn/xiju/5503803.htm)
-- [《安心安全 | 安心安全》MV ：日本制造最重视的就是企业形象](http://www.movie.hkepx.cn/movie/5517829.htm)
-- [三大航上半年全部亏损，国航净亏22.86亿，东航净亏21.79亿，南航净亏36.96亿，为什么会这样？](http://www.daogukj.com/kfcenimf/)
-- [深圳全市中小学生校服款式统一，学生家长可自行去商超购买，怎样看待这种模式？你支持全国推广吗？](http://www.movie.hkepx.cn/xiju/1284306.htm)
-- [三年之期已到，恭迎世一上归位！【第6集】](http://www.movie.hkepx.cn/movie/9628674.htm)
-- [宇树员工称超100元报销需王兴兴审批](http://www.daogukj.com/1857926)
-- [网红曹奶奶安详离世 享年94岁](http://www.daogukj.com/dauszqqt/)
-- [曾辉没跑调](http://www.movie.hkepx.cn/movie/0907691.htm)
-- [网红曹奶奶离世](http://www.daogukj.com/5817227)
-- [这也能装？给车内塞一套工作站！小米澎程N90 Max用车体验！](http://www.daogukj.com/wotljoso/)
-- [第二届北京范儿大赛即将启动](http://www.daogukj.com/8049323)
-- [可可里小姐客服回应闭店](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
-- [官方通报女子被踢出 845 个群被迫离职，用人单位已履行判决，事件中暴露的问题该如何有效解决？](http://www.movie.hkepx.cn/xiju/0261792.htm)
-- [哥哥说找到了流量的密码！！](http://www.movie.hkepx.cn/movie/6726833.htm)
-- [花一个下午，我做出了会"锁电脑"的手表App](http://www.movie.hkepx.cn/xiju/1828380.htm)
-- [一般开车几年后会由很猛变得胆小？](http://www.movie.hkepx.cn/xiju/1222939.htm)
-- [淄博首富干出2000亿港元IPO](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
-- [多地初中现超大校额1个年级超90个班](http://www.daogukj.com/2594309)
-- [井柏然栾念被后背吻的表情](http://www.daogukj.com/qdasdjom/)
-- [河南 5 人聚餐吃生鱼片确诊肝吸血虫病，如何避免该病？是否有扩散的风险？](http://www.daogukj.com/3136388)
-- [黄磊回应不再参加《向往的生活》](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
-- [为什么一斤粮食还没有一瓶瓶装水贵？](http://www.daogukj.com/4275576)
-- [妹妹被扔土崖致死姐姐靠吃药入睡](http://www.daogukj.com/lpknevub/)
-- [国内手机用户平均换机周期破42个月](http://www.daogukj.com/3012939)
-- [和龙龙录一次猜英雄。太好玩了](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
-- [第一期（上）：败走华容道 关羽义释曹操【时差五小时3】](http://www.movie.hkepx.cn/xiju/9870181.htm)
-- [顾客催促快出餐 老板对包子喊加油](http://www.movie.hkepx.cn/movie/2656535.htm)
-- [孩子开学没哭没闹 爸爸又哭又闹](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
-- [【铁豆钢蛋】你好 斌斌！](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
+- [吉隆救援为何不直接炸出泄流通道](http://www.movie.hkepx.cn/movie/7696059.htm)
+- [皇马将西藏与尼泊尔并列拒绝改正](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
+- [于东来痛批明星扎堆直播带货](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
+- [如何看待研究根据中美两国数据发现工时和消费的相关性，这是「多休息才能多消费」吗？](http://www.daogukj.com/xbqcnyun/)
+- [【魔女养成计划6】当“中国制造”出现在幻想世界里，嘿嘿 【up动画】](http://www.daogukj.com/3076909)
+- [河南 5 人聚餐吃生鱼片确诊肝吸血虫病，如何避免该病？是否有扩散的风险？](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
+- [皇马 中国西藏](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
+- [藏族为啥爱去成都，而不是西宁？](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
+- [你希望最亲近的人坐在哪里？｜理想L9 Livis 15天实测](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
+- [从零开始，黑龙江发现废弃石头屋改造寒冬避难所，首场暴风雪来之前要做好准备，提前存储物资](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
+- [世界会迎来大的金融危机吗](http://www.daogukj.com/7832374)
+- [皇马 请使用“中国西藏”](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
+- [苏州一学校初一超90个班](http://www.movie.hkepx.cn/movie/5380543.htm)
+- [亚运会男篮12人名单公布](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
+- [《脱口秀和Ta的朋友们》第三季，小奇夺冠算是意外吗？](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
+- [曝赵樱子得抑郁症了](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
+- [退役女兵用三种身份守护同一份忠诚](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
+- [唐国强朗诵《出师表》 演绎临表涕零](http://www.daogukj.com/whdogfom/)
+- [手握3.8万亿的“国家队”赚了3900亿](http://www.daogukj.com/owjemlxs/)
+- [沈阳高端海鲜自助，53°飞天茅台，澳洲龙虾，帝王蟹，澳洲黑金鲍不限量！还有两个皇帝蟹？！](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
+- [R星确认GTA6每个房间都手工打造，连NPC喝什么、桌上留什么痕迹都精心设计，你看好这种细节投入吗？](http://www.movie.hkepx.cn/xiju/8272307.htm)
+- [越南批量设立直辖市，这对其经济发展和承接中国产业转移意味着什么？](http://www.movie.hkepx.cn/xiju/5503803.htm)
+- [如何看待宇树回应「重处罚少奖励」、100 元报销须王兴兴审批，称很多内容不实？公司该如何设计奖惩机制？](http://www.movie.hkepx.cn/movie/5517829.htm)
+- [英国疯狂挑衅俄罗斯在赌什么](http://www.daogukj.com/kfcenimf/)
+- [女子肚子大如孕20周查出多发性肌瘤](http://www.movie.hkepx.cn/xiju/1284306.htm)
+- [如何评价张一山、李沐宸主演的刑侦剧《重案六组：消失的警号》？](http://www.movie.hkepx.cn/movie/9628674.htm)
+- [手机涨价 卖不动](http://www.daogukj.com/1857926)
+- [李杰灵870万买了个离海只有30米的房子](http://www.daogukj.com/dauszqqt/)
+- [土崖杀妻案](http://www.movie.hkepx.cn/movie/0907691.htm)
+- [1.6万人同唱，龚琳娜现场全开麦！《剑网3》十七周年庆典全程回顾上线](http://www.daogukj.com/5817227)
+- [当你进入金融行业时有什么惊人的发现？](http://www.daogukj.com/wotljoso/)
+- [救援救援！再难也要继续](http://www.daogukj.com/8049323)
+- [人民日报：综艺节目不能“拍完就走”](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
+- [深圳全市中小学生校服款式统一，学生家长可自行去商超购买，怎样看待这种模式？你支持全国推广吗？](http://www.movie.hkepx.cn/xiju/0261792.htm)
+- [9.1 开学了，送孩子返校的家长和复工的老师们是什么心情？](http://www.movie.hkepx.cn/movie/6726833.htm)
+- [为什么一斤粮食还没有一瓶瓶装水贵？](http://www.movie.hkepx.cn/xiju/1828380.htm)
+- [如何看待星际圈“九朵退会”引爆的“黄旭东朋友等级论”事件？](http://www.movie.hkepx.cn/xiju/1222939.htm)
+- [可可里小姐低价走量撑不住了](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
+- [开学第一课](http://www.daogukj.com/2594309)
+- [网传花少2许晴是来救场的](http://www.daogukj.com/qdasdjom/)
+- [有银行称办40年房贷需35岁以下](http://www.daogukj.com/3136388)
+- [《洛克王国：世界》S4赛季「月涌狂想」新家具实机展示](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
+- [透视暑期消费新变化](http://www.daogukj.com/4275576)
+- [云南文山12级台风致人伤亡系谣言](http://www.daogukj.com/lpknevub/)
+- [年轻人断亲潮](http://www.daogukj.com/3012939)
+- [高铁二等座变无座，12306 称临时调整无赔偿，此规定合理吗？](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
+- [9月1日起外籍个人从外商投资企业取得股息红利不再免征个税，如何解读？会带来多大规模的税收增量？](http://www.movie.hkepx.cn/xiju/9870181.htm)
+- [陈丽君主演首部电视剧要来了](http://www.movie.hkepx.cn/movie/2656535.htm)
+- [【蕾米埃尔】：入木三分，原来是字面意思？](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
+- [如何看待曝科大讯飞公关副总裁韩煜尘被解除职务？有什么隐情吗？](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待研究根据中美两国数据发现工时和消费的相关性，这是「多休息才能多消费」吗？](https://www.zhihu.com/question/2078053778146551414)
+- [印度16岁少女被骗上大巴遭轮奸](https://www.toutiao.com/trending/7680433820001075254/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%224%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227680433820001075254%22%2C%22hot_board_impr_id%22%3A%2220260901224402D344EB37E8088B8628CE%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9733071f565c75a743ee -->
+<!-- content-fingerprint: f31b5ac13be0586702ea -->
