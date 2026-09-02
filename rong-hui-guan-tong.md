@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 黄磊回应做饭不好吃
+# 尼泊尔泥石流遇难人数升至1127人
 
-> 来源：百度热搜 · 排名：第 14 位 · 热度：6462947 · 更新：2026-09-02T08:58:25+08:00
+> 来源：今日头条热榜 · 排名：第 15 位 · 热度：1783824 · 更新：2026-09-02T13:39:13+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“黄磊回应做饭不好吃”位列第 14 位，公开热度指标为 6462947。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“尼泊尔泥石流遇难人数升至1127人”位列第 15 位，公开热度指标为 1783824。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：黄磊回应“做饭不好吃”争议，坦言自己并非职业厨师，做饭做砸的时候一定有，但能让大家因为自己笑一笑挺好有意思，综艺本就是为开心欢笑，没做好也非常接受。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [毛阿敏 许晴](ji-si-guang-yi.md)
-- [丁俊晖4-0横扫肖恩·奥沙利文](qu-chang-bu-duan.md)
-- [陕西咸阳「男子将妻子推下土崖致死」一案将择期宣判，被告人称女方有错在先，如何从法律角度解读？](jing-yi-qiu-jing.md)
-- [这制作水平，当C忍是不是太屈才了](jiao-ta-shi-di.md)
+- [GPT-6 灰测 demo 刷屏，预计在周四发布，你对这款 AI 模型有哪些期待？](ji-si-guang-yi.md)
+- [08年美国讽刺金曲《朋友的酒》（英语填词cover）“空城计の小曲”](qu-chang-bu-duan.md)
+- [普京硬核回应俄日关系恶化](jing-yi-qiu-jing.md)
+- [花少2被爆料大量未播细节](jiao-ta-shi-di.md)
 
 ## 站内推荐
 
-- [美国银行副总裁在时报广场被刺身亡](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [伊朗多地传出爆炸声](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [找了29年的人已离世24年男子崩溃大哭](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [科威特多个美军基地发生爆炸](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [曝千元酒店用刷马桶刷子清洁坐垫](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [温州多地紧急通知：停课一天](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [学校回应宿舍两张架子床拼成双人床](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [五角大楼人事地震](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [多地社保缴费基数结束连年快涨](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [怀孕妻子迎参军12年小伙退伍回家](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [从零开始，黑龙江发现废弃石头屋改造寒冬避难所，首场暴风雪来之前要做好准备，提前存储物资](http://www.play.hengshemaoyi.cn/kongbu/4438122.htm)
-- [对话黄眉大王：《时空朋友圈》第二季 EP01](http://www.play.hengshemaoyi.cn/kongbu/5037461.htm)
-- [每说一个“瓜”字，华强血液酒精含量增加20mg/100ml](http://www.daogukj.com/8445070)
-- [男子12年光荣退伍感谢父母妻子支持](http://www.play.hengshemaoyi.cn/kongbu/2112117.htm)
-- [库克 9 月 1 日卸任苹果 CEO，由苹果硬件工程负责人特努斯接棒，苹果接下来将发生哪些变化？](http://www.daogukj.com/pngxbzzn/)
-- [来这吃牛肉，格局和肚子都大了…](http://www.daogukj.com/1759325)
-- [有网友表示很多医院门诊一号难求，但仍有三甲医院出现裁员现象，医院爆满只是假象吗？为啥医院会有经营困难？](http://www.play.hengshemaoyi.cn/kongbu/4861680.htm)
-- [第二集。](http://www.play.hengshemaoyi.cn/xiju/7366172.htm)
-- [兰州大学连续四年为新生家长免费提供住宿，你对这种暖心举措有何评价？](http://www.play.hengshemaoyi.cn/xiju/4331754.htm)
-- [搜救犬在吉隆口岸搜救累到趴地](http://www.play.hengshemaoyi.cn/kongbu/6113894.htm)
-- [9月1日起外籍个人从外商投资企业取得股息红利不再免征个税，如何解读？会带来多大规模的税收增量？](http://www.movie.hkepx.cn/xiju/8211914.htm)
-- [陕西咸阳「男子将妻子推下土崖致死」一案将择期宣判，被告人称女方有错在先，如何从法律角度解读？](http://www.play.hengshemaoyi.cn/kongbu/4388755.htm)
-- [女子当街被殴打扒裤警方已介入](http://www.movie.hkepx.cn/xiju/6367012.htm)
-- [手机涨价 卖不动](http://www.daogukj.com/6101072)
-- [皇马 中国西藏](http://www.movie.hkepx.cn/xiju/0132641.htm)
-- [台风](http://www.play.hengshemaoyi.cn/xiju/8770689.htm)
-- [多去接近你根本配不上的人](http://www.daogukj.com/6647670)
-- [高圆圆：最好我先走赵又廷收拾后续](http://www.movie.hkepx.cn/movie/6171602.htm)
-- [中国制造的“机器鸭”卖断货](http://www.daogukj.com/koyzhodr/)
-- [女子流产4次找不到病因 结果崩溃](http://www.movie.hkepx.cn/movie/3994978.htm)
-- [日语版《朋友的酒》citypop remix（空城计の小曲）](http://www.movie.hkepx.cn/xiju/8047737.htm)
-- [如何看待宇树回应「重处罚少奖励」、100 元报销须王兴兴审批，称很多内容不实？公司该如何设计奖惩机制？](http://www.play.hengshemaoyi.cn/kongbu/9284201.htm)
-- [纯手搓的视频，初音会喜欢吗？【bilibilionly同人扶持计划】](http://www.movie.hkepx.cn/xiju/8457698.htm)
-- [81年前的今天 日本签署投降书](http://www.daogukj.com/7501118)
-- [“云南文山12级台风致人伤亡”不实](http://www.movie.hkepx.cn/movie/8920406.htm)
-- [绝味鸭脖半年报营业收入下降10.82%，平均每天关掉7家门店，哪些数据值得关注？线下卤味卖不动了吗？](http://www.movie.hkepx.cn/xiju/7688389.htm)
-- [有人说「江浙沪小县城工资崩塌了」，是真的么？如果是，为什么会出现这种情况？](http://www.daogukj.com/fxopudre/)
-- [有个人定制了几万只右脚的鞋，这是不是什么圈套？](http://www.movie.hkepx.cn/xiju/1883349.htm)
-- [宁静回应花少2分析](http://www.movie.hkepx.cn/xiju/5527276.htm)
-- [交通运输部回应网友建议「取消 ETC 设备使用，采用车牌感应支付」，车牌感应是否可行？](http://www.movie.hkepx.cn/movie/4366171.htm)
-- [网红村支书因女儿重度抑郁决定辞职](http://www.movie.hkepx.cn/xiju/1036763.htm)
-- [透视暑期消费新变化](http://www.daogukj.com/4716149)
-- [12年老兵退伍妻子带定制海报迎接](http://www.movie.hkepx.cn/xiju/5514180.htm)
-- [这也能装？给车内塞一套工作站！小米澎程N90 Max用车体验！](http://www.movie.hkepx.cn/xiju/1352458.htm)
-- [怀孕妻子迎参军12年小伙退伍回家](http://www.movie.hkepx.cn/movie/0256910.htm)
-- [有银行称办40年房贷需35岁以下](http://www.daogukj.com/sfpejhkp/)
-- [救援救援！再难也要继续](http://www.movie.hkepx.cn/xiju/9108938.htm)
-- [ai解答数学题已经达到博士水平？对于还在坚持手搓数学题的普通人数学爱好者来说，学数学的意义在哪里？](http://www.play.hengshemaoyi.cn/kongbu/7173509.htm)
-- [吉隆受灾核心区遭泥石流两次过境](http://www.daogukj.com/6511273)
-- [【蕾米埃尔】：入木三分，原来是字面意思？](http://www.movie.hkepx.cn/xiju/9671501.htm)
-- [如何评价《星穹铁道》4.5版本新增贪饕机制后，玩家关于强度膨胀的相关讨论？](http://www.daogukj.com/6257299)
-- [我们到底应该怎么评价《钢铁是怎样炼成的》？](http://www.movie.hkepx.cn/movie/3310178.htm)
-- [上海市教委明确，开学 1 个月内不得组织或变相组织任何形式的考试，如何看待这一规定？值得推广吗？](http://www.movie.hkepx.cn/xiju/0056213.htm)
-- [大叔2600元买空调发现是8年前产品](http://www.daogukj.com/0362639)
-- [智驾强制国标来了](http://www.movie.hkepx.cn/movie/3530731.htm)
-- [20后入学家长年龄相差近30岁](http://www.play.hengshemaoyi.cn/xiju/9525688.htm)
-- [全麦面包 染色](http://www.daogukj.com/4889223)
-- [如何看待马丁内利离开阿森纳，加盟沙特球队利亚德新月？](http://www.daogukj.com/kjinzoui/)
-- [科威特多个美军基地发生爆炸](http://www.movie.hkepx.cn/movie/8932980.htm)
-- [男子摸狮子被咬：听到嘶吼没当回事](http://www.daogukj.com/4200999)
+- [全面战场新地图【摩格旧城区】实录｜9月4日，战至终点！](http://www.play.hengshemaoyi.cn/kongbu/4438122.htm)
+- [网红村支书因女儿重度抑郁辞职](http://www.play.hengshemaoyi.cn/kongbu/5037461.htm)
+- [【蕾米埃尔】：入木三分，原来是字面意思？](http://www.daogukj.com/8445070)
+- [武打巨星陈观泰去世 曾饰演马永贞](http://www.play.hengshemaoyi.cn/kongbu/2112117.htm)
+- [有网友表示很多医院门诊一号难求，但仍有三甲医院出现裁员现象，医院爆满只是假象吗？为啥医院会有经营困难？](http://www.daogukj.com/pngxbzzn/)
+- [《明日方舟：终末地》提弗洛斯EP - Fragmented Dreams](http://www.daogukj.com/1759325)
+- [张一山新剧演技大受好评](http://www.play.hengshemaoyi.cn/kongbu/4861680.htm)
+- [有市无价再创记录！世界最大顶级黄油蟹与巨型松茸的完美邂逅！鱼子酱只配当咸菜？！](http://www.play.hengshemaoyi.cn/xiju/7366172.htm)
+- [为什么211越来越不被人当成名校了？](http://www.play.hengshemaoyi.cn/xiju/4331754.htm)
+- [这届学生的名字都很个性](http://www.play.hengshemaoyi.cn/kongbu/6113894.htm)
+- [交通运输部回应网友建议「取消 ETC 设备使用，采用车牌感应支付」，车牌感应是否可行？](http://www.movie.hkepx.cn/xiju/8211914.htm)
+- [普京硬核回应俄日关系恶化](http://www.play.hengshemaoyi.cn/kongbu/4388755.htm)
+- [加拿大对美发动「精准关税战」，以龙虾和奶酪作武器，这波操作能影响美国中期选举吗？](http://www.movie.hkepx.cn/xiju/6367012.htm)
+- [花儿与少年8八家客户](http://www.daogukj.com/6101072)
+- [现在网上有一种观点，给孩子补课不如把钱留着等孩子长大了给他，你怎么看？](http://www.movie.hkepx.cn/xiju/0132641.htm)
+- [新加坡人均gdp9万美元，怎么基层工作岗位的工资，还没有一些人均gdp4万美元左右的国家高？](http://www.play.hengshemaoyi.cn/xiju/8770689.htm)
+- [跟任何人相处都大大方方的秘诀](http://www.daogukj.com/6647670)
+- [徐州12345涌入4.8万件演唱会诉求](http://www.movie.hkepx.cn/movie/6171602.htm)
+- [上官正义曝残障大叔无薪喂牛还挨打](http://www.daogukj.com/koyzhodr/)
+- [苹果小米华为发布时间撞档](http://www.movie.hkepx.cn/movie/3994978.htm)
+- [西西弗斯推的石头，居然是孙悟空......【AI全民制作人】#SpecialForAAIFF](http://www.movie.hkepx.cn/xiju/8047737.htm)
+- [8 月鸿蒙智行交付 4.2 万余台，小米汽车持续交付超 3 万台，如何评价各家车企 8 月交付表现？](http://www.play.hengshemaoyi.cn/kongbu/9284201.htm)
+- [把公司当成主题乐园](http://www.movie.hkepx.cn/xiju/8457698.htm)
+- [网红村支书因女儿重度抑郁决定辞职](http://www.daogukj.com/7501118)
+- [开学了这些谣言家长要警惕](http://www.movie.hkepx.cn/movie/8920406.htm)
+- [如何看待Anthropic全面开放Claude Fable 5.1和Mythos 5.1？有哪些亮点？](http://www.movie.hkepx.cn/xiju/7688389.htm)
+- [美伊再次开打，特朗普威胁伊朗若报复将遭受「更猛烈」打击，此轮袭击将如何影响中东局势？](http://www.daogukj.com/fxopudre/)
+- [大叔2600元买空调发现是8年前产品](http://www.movie.hkepx.cn/xiju/1883349.htm)
+- [广西一中学78人住一间宿舍，学校称是过渡宿舍，教育局已通报整改，如何看待这种宿舍条件？这样安排合适吗？](http://www.movie.hkepx.cn/xiju/5527276.htm)
+- [有个人定制了几万只右脚的鞋，这是不是什么圈套？](http://www.movie.hkepx.cn/movie/4366171.htm)
+- [深圳校服为何让全网感叹真香](http://www.movie.hkepx.cn/xiju/1036763.htm)
+- [我国电力供给迎来新格局](http://www.daogukj.com/4716149)
+- [曾经最成功的游戏类型，为什么没人做了？](http://www.movie.hkepx.cn/xiju/5514180.htm)
+- [黄金](http://www.movie.hkepx.cn/xiju/1352458.htm)
+- [普京警告西方国家：别想把俄当猎物](http://www.movie.hkepx.cn/movie/0256910.htm)
+- [国台办回应郑丽文向西藏灾区捐款](http://www.daogukj.com/sfpejhkp/)
+- [中国运载火箭为啥叫长征](http://www.movie.hkepx.cn/xiju/9108938.htm)
+- [云南征集涉黑恶线索 含强迫购物等](http://www.play.hengshemaoyi.cn/kongbu/7173509.htm)
+- [从最期待变最难绷，一个城市还没做完就做第二个，没任何公开测试就宣布上线日期，无限大能好好把游戏做完吗？](http://www.daogukj.com/6511273)
+- [《带兄弟火一把》](http://www.movie.hkepx.cn/xiju/9671501.htm)
+- [一个歌手给所有演员上了节表演课](http://www.daogukj.com/6257299)
+- [于东来晒胖东来业绩，本年累计销售额达 195.15 亿元，同比增长 26.98%，如何评价这个成绩？](http://www.movie.hkepx.cn/movie/3310178.htm)
+- [多所高校宣布中秋、国庆连放13天，称「避免学生反复往返耗费路费、体力」，如何看待这一做法？值得普及吗？](http://www.movie.hkepx.cn/xiju/0056213.htm)
+- [菲律宾巨蟒在洪水中挨家挨户“串门”](http://www.daogukj.com/0362639)
+- [美发动打击 伊将升级反击强度](http://www.movie.hkepx.cn/movie/3530731.htm)
+- [吉隆口岸核心区域救援通道已抢通](http://www.play.hengshemaoyi.cn/xiju/9525688.htm)
+- [多去接近你根本配不上的人](http://www.daogukj.com/4889223)
+- [“药中茅台”片仔癀跌落神坛](http://www.daogukj.com/kjinzoui/)
+- [多地社保缴费基数结束连年快涨](http://www.movie.hkepx.cn/movie/8932980.htm)
+- [皇马 不删帖不道歉](http://www.daogukj.com/4200999)
 
 </details>
 
 ## 原始来源
 
-- [黄磊回应做饭不好吃](https://www.baidu.com/s?wd=%E9%BB%84%E7%A3%8A%E5%9B%9E%E5%BA%94%E5%81%9A%E9%A5%AD%E4%B8%8D%E5%A5%BD%E5%90%83&sa=fyb_news&rsv_dl=fyb_news)
+- [尼泊尔泥石流遇难人数升至1127人](https://www.toutiao.com/trending/7680148008368868918/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227680148008368868918%22%2C%22hot_board_impr_id%22%3A%2220260902133912AD3D11EB0E3643BE0D8F%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 79fa5e09d08093966176 -->
+<!-- content-fingerprint: 72143f402b0c810ea540 -->
