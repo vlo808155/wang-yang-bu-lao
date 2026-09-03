@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 早春晴朗 结束肮脏的令人作呕的关系
+# 女子花11万请人收纳屋子称很值得
 
-> 来源：微博热搜 · 排名：第 15 位 · 热度：338107 · 分类：剧集 · 更新：2026-09-03T21:52:31+08:00
+> 来源：百度热搜 · 排名：第 14 位 · 热度：6477155 · 更新：2026-09-04T01:18:47+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“早春晴朗 结束肮脏的令人作呕的关系”位列第 15 位，公开热度指标为 338107，榜单分类为“剧集”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“女子花11万请人收纳屋子称很值得”位列第 14 位，公开热度指标为 6477155。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：上海市区女子张莉花费11万元请收纳师耗时半个月，对住了10年的300多平大平层进行断舍离与全屋规划。起因是家中杂物堆积致使可用空间变小，其无力独立抉择。整理淘汰大量旧物后，张莉认为钱花得值并重新邀请朋友做客。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `剧集`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [媒体：中国房子迎来真正的分水岭](ji-si-guang-yi.md)
-- [四川一医院门诊输液收「20元空调费，96元注射费」，这种收费名目合理吗？医院可以自主设定收费标准吗？](qu-chang-bu-duan.md)
-- [欢迎来到霍格沃茨的新学年](jing-yi-qiu-jing.md)
-- [女子花11万请人收纳屋子称很值得](jiao-ta-shi-di.md)
+- [3岁男童长期吃隔夜菜中毒住进PICU](ji-si-guang-yi.md)
+- [媒体：中国房子迎来真正的分水岭](qu-chang-bu-duan.md)
+- [如何看待李飞飞团队发布的多模态世界模型 Atlas？有哪些值得关注的亮点？](jing-yi-qiu-jing.md)
+- [这首歌改变了我的人生，并带我走进了中国这个美丽的世界。](jiao-ta-shi-di.md)
 
 ## 站内推荐
 
-- [四川绵阳地震](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [梅姨年龄首次曝光](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [TF家族 新音](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [黄渤骨折](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [AI漫剧天宫](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [广州取消校服统一订购](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [流感疫苗市场变天了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [“粥饼伦”门店全部关闭](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [“没有Token的CS学生 应立即退学”](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [一年级学生不知出生年份](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [黄渤家门口骑自行车摔骨折](http://www.play.hengshemaoyi.cn/kongbu/4438122.htm)
-- [酒店集团正集体盯上大学生](http://www.play.hengshemaoyi.cn/kongbu/5037461.htm)
-- [周冬雨上花少 马思纯比本人还紧张](http://www.daogukj.com/8445070)
-- [上海多家银行明确，1991 年以前出生的人不能新办理 40 年期个人房贷，如何看待这一标准？](http://www.play.hengshemaoyi.cn/kongbu/2112117.htm)
-- [男子充值 1000 元账户误到账 26419933 亿，疯狂消费后拒不退还，该男子需要承担法律责任吗？](http://www.daogukj.com/pngxbzzn/)
-- [【IGN独家】《鸣潮》共鸣者「心」、「锁暝」演示](http://www.daogukj.com/1759325)
-- [韩语版《朋友的酒》【韩国大叔Trot版】（空城计の小曲）](http://www.play.hengshemaoyi.cn/kongbu/4861680.htm)
-- [人人影视回归变正版 会员25元1个月](http://www.play.hengshemaoyi.cn/xiju/7366172.htm)
-- [谁能想到钓个鱼能这么好笑？渔力全开！](http://www.play.hengshemaoyi.cn/xiju/4331754.htm)
-- [脱口秀适合当微信签名的句子](http://www.play.hengshemaoyi.cn/kongbu/6113894.htm)
-- [星际超级荒诞动画喜剧！《外星小偷里贝》第07话：吃苦星球【UP动画】](http://www.movie.hkepx.cn/xiju/8211914.htm)
-- [欢迎来到霍格沃茨的新学年](http://www.play.hengshemaoyi.cn/kongbu/4388755.htm)
-- [乌外长：俄乌和平进程有望迎来新进展](http://www.movie.hkepx.cn/xiju/6367012.htm)
-- [黄渤骑车摔骨折调侃像拍戏](http://www.daogukj.com/6101072)
-- [博主：中国男篮或基本确认世界杯席位](http://www.movie.hkepx.cn/xiju/0132641.htm)
-- [A股变盘窗口即将临近了吗](http://www.play.hengshemaoyi.cn/xiju/8770689.htm)
-- [原来洗洁精是这么用来洗碗的](http://www.daogukj.com/6647670)
-- [为什么会有“珠心算部队”？](http://www.movie.hkepx.cn/movie/6171602.htm)
-- [A股 量化机构](http://www.daogukj.com/koyzhodr/)
-- [美国癌症治疗](http://www.movie.hkepx.cn/movie/3994978.htm)
-- [中国房子迎来真正的分水岭](http://www.movie.hkepx.cn/xiju/8047737.htm)
-- [张继科乒乓球班录取率低于 5%，比 985 还难进，还实行集训末位淘汰45%的机制，怎样看待这种方式？](http://www.play.hengshemaoyi.cn/kongbu/9284201.htm)
-- [博主870万买下离海只有30米的房子](http://www.movie.hkepx.cn/xiju/8457698.htm)
-- [尚之桃提出分手](http://www.daogukj.com/7501118)
-- [上海交大内部 PPT 曝光高校AI教育困局，课程迭代远落后技术发展，学生反超老师成常态，该怎样破解？](http://www.movie.hkepx.cn/movie/8920406.htm)
-- [不同年代气血很足的美！这是一条气血很足的视频哦](http://www.movie.hkepx.cn/xiju/7688389.htm)
-- [Pov：那个喜欢雄竞 又要装低调的男生](http://www.daogukj.com/fxopudre/)
-- [黄 毛 抢 钱 记](http://www.movie.hkepx.cn/xiju/1883349.htm)
-- [重庆机场集团反腐风暴8名高管被抓](http://www.movie.hkepx.cn/xiju/5527276.htm)
-- [“用最温柔的方式，体面的告别了这个世界”｜听歌/小曲](http://www.movie.hkepx.cn/movie/4366171.htm)
-- [李登科说孙千不会升咖](http://www.movie.hkepx.cn/xiju/1036763.htm)
+- [直到赛前..我都没想到当教练还得出COS啊???🥹 【bilibilionly同人扶持计划】](http://www.play.hengshemaoyi.cn/kongbu/4438122.htm)
+- [建水紫陶](http://www.play.hengshemaoyi.cn/kongbu/5037461.htm)
+- [Pov：那个喜欢雄竞 又要装低调的男生](http://www.daogukj.com/8445070)
+- [52岁黄渤骑车摔倒骨折住院](http://www.play.hengshemaoyi.cn/kongbu/2112117.htm)
+- [张继科乒乓球班录取率低于 5%，比 985 还难进，还实行集训末位淘汰45%的机制，怎样看待这种方式？](http://www.daogukj.com/pngxbzzn/)
+- [致热爱捉宠的你——《伊莫》幕后制作纪录片](http://www.daogukj.com/1759325)
+- [如何评价剧版《哈利波特》新预告？](http://www.play.hengshemaoyi.cn/kongbu/4861680.htm)
+- [从某一刻开始，游戏的性质已经变了【B站笑点大赛】](http://www.play.hengshemaoyi.cn/xiju/7366172.htm)
+- [香港中文大学（深圳）校长呼吁新生「不要看不起高考成绩不如自己的同学」，如何看待本科生对高考分数的执着？](http://www.play.hengshemaoyi.cn/xiju/4331754.htm)
+- [鸡蛋快跟猪肉一个价了](http://www.play.hengshemaoyi.cn/kongbu/6113894.htm)
+- [爸爸肺癌晚期，老公答应卖房去美国治疗了，但他现在反悔了怎么办？](http://www.movie.hkepx.cn/xiju/8211914.htm)
+- [如何看待李飞飞团队发布的多模态世界模型 Atlas？有哪些值得关注的亮点？](http://www.play.hengshemaoyi.cn/kongbu/4388755.htm)
+- [专家谈胚胎案重婚罪未成立](http://www.movie.hkepx.cn/xiju/6367012.htm)
+- [王者荣耀985高校认证闲鱼卖上千元](http://www.daogukj.com/6101072)
+- [吉隆口岸救援人员吃上热乎饭](http://www.movie.hkepx.cn/xiju/0132641.htm)
+- [希望韩国政府切实践行一个中国原则](http://www.play.hengshemaoyi.cn/xiju/8770689.htm)
+- [普通人没必要追求电子产品顶配](http://www.daogukj.com/6647670)
+- [尼泊尔泥石流遇难人数升至1259人](http://www.movie.hkepx.cn/movie/6171602.htm)
+- [男子在夜市被5名大妈按摩按到发红](http://www.daogukj.com/koyzhodr/)
+- [酒店集团正集体盯上大学生](http://www.movie.hkepx.cn/movie/3994978.htm)
+- [从“敢卖百万”到“值得百万”，尊界S800典藏大观给了我答案](http://www.movie.hkepx.cn/xiju/8047737.htm)
+- [为什么《欢迎来龙餐馆》在上映之前专业机构预测票房能过 50 亿，但现在连 20 亿都困难？](http://www.play.hengshemaoyi.cn/kongbu/9284201.htm)
+- [“用最温柔的方式，体面的告别了这个世界”｜听歌/小曲](http://www.movie.hkepx.cn/xiju/8457698.htm)
+- [1名中国公民在菲被羁押期间离世](http://www.daogukj.com/7501118)
+- [“温州瑞安高速路口强降雨致死”不实](http://www.movie.hkepx.cn/movie/8920406.htm)
+- [9月3日晚ChatGPT、Grok、Claude、Cursor 集体突发故障，怎么回事？带来哪些影响？](http://www.movie.hkepx.cn/xiju/7688389.htm)
+- [上海交大内部 PPT 曝光高校AI教育困局，课程迭代远落后技术发展，学生反超老师成常态，该怎样破解？](http://www.daogukj.com/fxopudre/)
+- [香港演员刘兆铭去世，曾在《倩女幽魂》中饰演树妖姥姥，他在影坛留下了哪些经典作品？你对他有哪些记忆？](http://www.movie.hkepx.cn/xiju/1883349.htm)
+- [四川地震](http://www.movie.hkepx.cn/xiju/5527276.htm)
+- [越南被中国统治上千年为什么语言没有被同化为汉语族？](http://www.movie.hkepx.cn/movie/4366171.htm)
+- [黄渤家门口骑自行车摔骨折](http://www.movie.hkepx.cn/xiju/1036763.htm)
 - [促进中小企业发展“十五五”规划发布](http://www.daogukj.com/4716149)
-- [秘鲁宣布与伊朗断绝外交关系，这背后有哪些深层原因与影响？](http://www.movie.hkepx.cn/xiju/5514180.htm)
-- [倪虹洁喻恩泰在《燃烧吧爸爸》演夫妻](http://www.movie.hkepx.cn/xiju/1352458.htm)
-- [为什么大家造车都去抄保时捷，没有抄兰博基尼的？](http://www.movie.hkepx.cn/movie/0256910.htm)
-- [中方：中委合作不容第三方置喙](http://www.daogukj.com/sfpejhkp/)
+- [伊朗导弹致大量美军死伤](http://www.movie.hkepx.cn/xiju/5514180.htm)
+- [鸣潮×陶陶居丨月满玄方，其乐陶陶。](http://www.movie.hkepx.cn/xiju/1352458.htm)
+- [充值1000误到账26419933亿元](http://www.movie.hkepx.cn/movie/0256910.htm)
+- [媒体：加拿大对美复刻“中国式反击”](http://www.daogukj.com/sfpejhkp/)
 - [新学期建议家长每天抓好这3件小事](http://www.movie.hkepx.cn/xiju/9108938.htm)
-- [这也能装？给车内塞一套工作站！小米澎程N90 Max用车体验！](http://www.play.hengshemaoyi.cn/kongbu/7173509.htm)
-- [你觉得中国女篮李月汝「护照遗失」的理由成立吗，因公护照和个人护照补办的流程差在哪里，真的完全来不及吗？](http://www.daogukj.com/6511273)
-- [“我从小抽核弹长大的”，抽一个可变形核弹发射井模型](http://www.movie.hkepx.cn/xiju/9671501.htm)
-- [难绷：尼泊尔就泥石流灾害对中美印提出赔偿要求](http://www.daogukj.com/6257299)
-- [小米澎程如何保留SUV的全能，又拥有MPV的空间？](http://www.movie.hkepx.cn/movie/3310178.htm)
-- [为什么近两年3D电影消失了？](http://www.movie.hkepx.cn/xiju/0056213.htm)
-- [武大通报女教授被举报：启动调查](http://www.daogukj.com/0362639)
-- [吉隆泥石流灾害核心区通电](http://www.movie.hkepx.cn/movie/3530731.htm)
-- [9 月 3 日淘宝App突发大面积服务器故障，大量用户无法查看订单，可能是什么原因导致的？你遇到了吗？](http://www.play.hengshemaoyi.cn/xiju/9525688.htm)
-- [上海多家银行：办40年房贷需35岁以下](http://www.daogukj.com/4889223)
-- [假如夜神月捡到的是《复活笔记》](http://www.daogukj.com/kjinzoui/)
-- [黄渤骨折](http://www.movie.hkepx.cn/movie/8932980.htm)
-- [存5年3年2年利息不如存1年](http://www.daogukj.com/4200999)
+- [美国「林肯」号航母锈迹斑斑、内部环境差，这反映出美军哪些深层问题？](http://www.play.hengshemaoyi.cn/kongbu/7173509.htm)
+- [郑丽文柯文哲展现蓝白力挺高虹安决心](http://www.daogukj.com/6511273)
+- [【科学修仙】今日不死，儿孙满堂！【up动画】](http://www.movie.hkepx.cn/xiju/9671501.htm)
+- [重庆多位家长在新生群被骗648元「班费」，收款方竟显示为米哈游，为啥会和米哈游有关？怎样识破此类骗局？](http://www.daogukj.com/6257299)
+- [从小沉迷游戏的父亲不给10岁女儿买NS2，被一句「你当年还不是打游戏」怼到沉默，你怎么看？](http://www.movie.hkepx.cn/movie/3310178.htm)
+- [为什么大家造车都去抄保时捷，没有抄兰博基尼的？](http://www.movie.hkepx.cn/xiju/0056213.htm)
+- [上海多家银行：办40年房贷需35岁以下](http://www.daogukj.com/0362639)
+- [折叠屏三国杀](http://www.movie.hkepx.cn/movie/3530731.htm)
+- [全球冰川50年累计损失超9万亿吨冰体](http://www.play.hengshemaoyi.cn/xiju/9525688.htm)
+- [关晓彤生逢其时首播收视率](http://www.daogukj.com/4889223)
+- [四川绵阳北川县附近发生 4.8 级地震，震源深度 10 千米，目前情况如何？你那边有震感吗？](http://www.daogukj.com/kjinzoui/)
+- [“没有Token的CS学生 应立即退学”](http://www.movie.hkepx.cn/movie/8932980.htm)
+- [中国房子迎来真正的分水岭](http://www.daogukj.com/4200999)
 
 </details>
 
 ## 原始来源
 
-- [早春晴朗 结束肮脏的令人作呕的关系](https://s.weibo.com/weibo?q=%E6%97%A9%E6%98%A5%E6%99%B4%E6%9C%97%20%E7%BB%93%E6%9D%9F%E8%82%AE%E8%84%8F%E7%9A%84%E4%BB%A4%E4%BA%BA%E4%BD%9C%E5%91%95%E7%9A%84%E5%85%B3%E7%B3%BB)
+- [女子花11万请人收纳屋子称很值得](https://www.baidu.com/s?wd=%E5%A5%B3%E5%AD%90%E8%8A%B111%E4%B8%87%E8%AF%B7%E4%BA%BA%E6%94%B6%E7%BA%B3%E5%B1%8B%E5%AD%90%E7%A7%B0%E5%BE%88%E5%80%BC%E5%BE%97&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 97673f90588f15856226 -->
+<!-- content-fingerprint: e85dbae7be34d2b826bb -->
