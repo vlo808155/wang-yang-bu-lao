@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# GPT6能力提升有多大
+# DK晋级S16全球总决赛
 
-> 来源：微博热搜 · 排名：第 19 位 · 热度：274599 · 分类：互联网 · 更新：2026-09-04T17:04:50+08:00
+> 来源：微博热搜 · 排名：第 15 位 · 热度：272474 · 分类：电竞 · 更新：2026-09-04T21:25:34+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“GPT6能力提升有多大”位列第 19 位，公开热度指标为 274599，榜单分类为“互联网”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“DK晋级S16全球总决赛”位列第 15 位，公开热度指标为 272474，榜单分类为“电竞”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `互联网`
+`微博热搜` `实时热搜` `热点资讯` `电竞`
 
 ## 相关热点
 
-- [多国从美国运回黄金有何影响](ji-si-guang-yi.md)
-- [结城理的入职测试！【明日方舟】](qu-chang-bu-duan.md)
-- [教育部：将规范涉师争议投诉处理程序](jing-yi-qiu-jing.md)
-- [武汉大学举报事件的男方要担什么责](jiao-ta-shi-di.md)
+- [33岁抗癌博主唐豆豆离世](ji-si-guang-yi.md)
+- [华为国行 5G 疑似回归，Mate90 系列入网，为何在此时选择回归？其 5G 回归有何技术突破创新？](qu-chang-bu-duan.md)
+- [我在日本，找到了被李白杀死的遣唐使](jing-yi-qiu-jing.md)
+- [火锅店回应锅底爬出大量活蛆](jiao-ta-shi-di.md)
 
 ## 站内推荐
 
-- [人贩子将出狱 孙海洋担心被报复](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
-- [尼泊尔不向中国寻求气候正义赔偿](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
-- [贵州秋假连着中秋国庆休13天系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
-- [A股](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
-- [李羲承曾患癌](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
+- [解放军将派出兵力赴俄参加实兵演习](https://github.com/vlo808155/hua-she-tian-zu/blob/main/hua-she-tian-zu.md)
+- [大学第一年 很多人还活在高中](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/shou-zhu-dai-tu.md)
+- [吉隆泥石流遇难31人失联531人](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ke-zhou-qiu-jian.md)
+- [Lisa曝BLACKPINK时期曾隐藏恋爱](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wang-yang-bu-lao.md)
+- [非农](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jing-di-zhi-wa.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [突然发现大家都有省钱意识了](http://www.play.hengshemaoyi.cn/kongbu/4438122.htm)
-- [女生眼里进虫直接用手扒拉出来](http://www.play.hengshemaoyi.cn/kongbu/5037461.htm)
-- [直击福建莆田暴雨内涝现场](http://www.daogukj.com/8445070)
-- [这只猫，性格好到让我无语](http://www.play.hengshemaoyi.cn/kongbu/2112117.htm)
-- [“中国游”带火这门“新生意”](http://www.daogukj.com/pngxbzzn/)
-- [菲律宾地方法院下令逮捕副总统莎拉](http://www.daogukj.com/1759325)
-- [一台5米4的SUV，问界M9U为什么还要再加长？](http://www.play.hengshemaoyi.cn/kongbu/4861680.htm)
-- [福建莆田因强降雨已造成多人失联](http://www.play.hengshemaoyi.cn/xiju/7366172.htm)
-- [花少大姐从夯到拉排名](http://www.play.hengshemaoyi.cn/xiju/4331754.htm)
-- [《马老师：这世上还是好人多呀》](http://www.play.hengshemaoyi.cn/kongbu/6113894.htm)
-- [李月汝护照弄丢到底是谁的责任](http://www.movie.hkepx.cn/xiju/8211914.htm)
-- [教育部：将规范涉师争议投诉处理程序](http://www.play.hengshemaoyi.cn/kongbu/4388755.htm)
-- [《花少5》是花少系列唯一获奖作品](http://www.movie.hkepx.cn/xiju/6367012.htm)
-- [评论员：A股震荡磨底或进入尾声](http://www.daogukj.com/6101072)
-- [骨髓救母发现非亲生女子被医院威胁](http://www.movie.hkepx.cn/xiju/0132641.htm)
-- [9月首周演唱会热门推荐](http://www.play.hengshemaoyi.cn/xiju/8770689.htm)
-- [小姑娘第一天上幼儿园视频火了](http://www.daogukj.com/6647670)
-- [寿司郎 无权制止餐桌小便](http://www.movie.hkepx.cn/movie/6171602.htm)
-- [美国拉斯维加斯有点爽！](http://www.daogukj.com/koyzhodr/)
-- [尽力了，没带攻击键，放跑了对面牢玩家](http://www.movie.hkepx.cn/movie/3994978.htm)
-- [美航母停靠泰国 指挥官严令禁止嫖娼](http://www.movie.hkepx.cn/xiju/8047737.htm)
-- [井柏然直播澄清](http://www.play.hengshemaoyi.cn/kongbu/9284201.htm)
-- [我在日本，找到了被李白杀死的遣唐使](http://www.movie.hkepx.cn/xiju/8457698.htm)
-- [18岁女孩疑被已婚男友打死](http://www.daogukj.com/7501118)
-- [朱忠明任上海市代市长](http://www.movie.hkepx.cn/movie/8920406.htm)
-- [哪里来的麦片王，敢和我赛一下吗?](http://www.movie.hkepx.cn/xiju/7688389.htm)
-- [直击解放军防空分队实弹对抗演练](http://www.daogukj.com/fxopudre/)
-- [这次是真玩爽了](http://www.movie.hkepx.cn/xiju/1883349.htm)
-- [周冬雨会突然拉肚子](http://www.movie.hkepx.cn/xiju/5527276.htm)
-- [花少2行李 肖奈拿完肖奈拿](http://www.movie.hkepx.cn/movie/4366171.htm)
-- [教育部：对师德失范行为“零容忍”](http://www.movie.hkepx.cn/xiju/1036763.htm)
-- [修地铁挖出施工人员？住建局回应](http://www.daogukj.com/4716149)
-- [尝到“甜头”的菲律宾扛得住代价吗](http://www.movie.hkepx.cn/xiju/5514180.htm)
-- [村子突发山体滑坡 父子俩撑伞路过](http://www.movie.hkepx.cn/xiju/1352458.htm)
-- [贵州秋假连着中秋国庆连休13天系谣言](http://www.movie.hkepx.cn/movie/0256910.htm)
-- [尼泊尔泥石流已致1287人遇难](http://www.daogukj.com/sfpejhkp/)
-- [深耕特色业态 激活文旅消费新动能](http://www.movie.hkepx.cn/xiju/9108938.htm)
-- [周冬雨看到花少团留C位的反应](http://www.play.hengshemaoyi.cn/kongbu/7173509.htm)
-- [男子被医院误诊胃癌切全胃 获赔22万](http://www.daogukj.com/6511273)
-- [镇政府回应福建千年古桥被洪水冲毁](http://www.movie.hkepx.cn/xiju/9671501.htm)
-- [《夜幕之下》主线活动版本PV：隐秘的归属](http://www.daogukj.com/6257299)
-- [天崩开局，读博两年，我的论文中了顶会](http://www.movie.hkepx.cn/movie/3310178.htm)
-- [《三角洲行动》全新【群星】赛季故事短片](http://www.movie.hkepx.cn/xiju/0056213.htm)
-- [有人想靠复盘花少6洗白](http://www.daogukj.com/0362639)
-- [还没擦掉嘴角伊朗儿童的血，他们又来吃中国的“人血馒头”](http://www.movie.hkepx.cn/movie/3530731.htm)
-- [孙卓被拐案人贩子本月将出狱](http://www.play.hengshemaoyi.cn/xiju/9525688.htm)
-- [王华杰任上海市副市长](http://www.daogukj.com/4889223)
-- [贺娇龙归葬于父亲的墓旁](http://www.daogukj.com/kjinzoui/)
-- [A股](http://www.movie.hkepx.cn/movie/8932980.htm)
-- [麻了开学第一天被学姐立规矩](http://www.daogukj.com/4200999)
+- [长安启源Q06预售开启](http://www.play.hengshemaoyi.cn/kongbu/4438122.htm)
+- [98岁老人25年捐款近6000万元](http://www.play.hengshemaoyi.cn/kongbu/5037461.htm)
+- [首批GPT-6内测结果离谱](http://www.daogukj.com/8445070)
+- [男子肚子疼被误诊为胃癌，医院瞒着切全胃，为何会出现如此离谱的医疗事故？医院赔22万，能抵消男子损失吗？](http://www.play.hengshemaoyi.cn/kongbu/2112117.htm)
+- [如何评价勇哥新开的社区食堂？](http://www.daogukj.com/pngxbzzn/)
+- [这只猫，性格好到让我无语](http://www.daogukj.com/1759325)
+- [我不是公公，我是大美太子！万斯要重新证明自己](http://www.play.hengshemaoyi.cn/kongbu/4861680.htm)
+- [陪看中国女篮迎战美国女篮](http://www.play.hengshemaoyi.cn/xiju/7366172.htm)
+- [笑死~日本新发现一名铁血精中！！比98%的中国人都愿意爱中国！！](http://www.play.hengshemaoyi.cn/xiju/4331754.htm)
+- [中国女篮vs美国女篮](http://www.play.hengshemaoyi.cn/kongbu/6113894.htm)
+- [《马老师：这世上还是好人多呀》](http://www.movie.hkepx.cn/xiju/8211914.htm)
+- [我在日本，找到了被李白杀死的遣唐使](http://www.play.hengshemaoyi.cn/kongbu/4388755.htm)
+- [教育部回应“教师面对学生不敢管”](http://www.movie.hkepx.cn/xiju/6367012.htm)
+- [Cybercab怎么影响中国网约车司机](http://www.daogukj.com/6101072)
+- [女留学生被杀，凶手作案动机初步披露，系被害人要公开二人关系，凶手担心失去教职，还有哪些细节值得关注？](http://www.movie.hkepx.cn/xiju/0132641.htm)
+- [全国小学、初中全部完成新教材替换，小学语文课文总数减少，数学简易方程调整到初中学，如何看待这次调整？](http://www.play.hengshemaoyi.cn/xiju/8770689.htm)
+- [特朗普 AI](http://www.daogukj.com/6647670)
+- [如何评价GPT-6打破孪生素数猜想最新纪录？](http://www.movie.hkepx.cn/movie/6171602.htm)
+- [福建受灾严重](http://www.daogukj.com/koyzhodr/)
+- [纪姿含北电落榜](http://www.movie.hkepx.cn/movie/3994978.htm)
+- [纯过日子人](http://www.movie.hkepx.cn/xiju/8047737.htm)
+- [曝西贝拖欠离职补偿金，贾国龙称「要到2028年才能给」，这种行为在法律上如何定性？离职员工如何维权？](http://www.play.hengshemaoyi.cn/kongbu/9284201.htm)
+- [四川宜宾地震](http://www.movie.hkepx.cn/xiju/8457698.htm)
+- [披荆斩棘直播](http://www.daogukj.com/7501118)
+- [国航回应「美国地勤不拔油管扯爆国航油箱」，航班加油时加油车非正常移动导致飞机部件损伤，如何看待此事？](http://www.movie.hkepx.cn/movie/8920406.htm)
+- [天崩开局，读博两年，我的论文中了顶会](http://www.movie.hkepx.cn/xiju/7688389.htm)
+- [阿诺撒……我让你站起来你耳朵🐉吗？](http://www.daogukj.com/fxopudre/)
+- [当我们决定：在村里给自己拍婚纱照，会发生什么？](http://www.movie.hkepx.cn/xiju/1883349.htm)
+- [杨小菁当选河南许昌市委书记](http://www.movie.hkepx.cn/xiju/5527276.htm)
+- [三角洲行动 全身动态特效+史上最强数值手感！新刀重塑全网最详细测评与优缺点介绍！](http://www.movie.hkepx.cn/movie/4366171.htm)
+- [莆田灾情求助](http://www.movie.hkepx.cn/xiju/1036763.htm)
+- [稳步提升参保质量 推动“三医”协同发展](http://www.daogukj.com/4716149)
+- [第 20 届亚运会中国体育代表团成立，平均年龄 24 岁，有36 名奥运会冠军参赛，你最期待谁的表现？](http://www.movie.hkepx.cn/xiju/5514180.htm)
+- [微信最新公告：集体下架](http://www.movie.hkepx.cn/xiju/1352458.htm)
+- [苹果现在才做折叠屏，是来得太晚，还是正好等到了技术成熟？](http://www.movie.hkepx.cn/movie/0256910.htm)
+- [福建因强降雨受灾严重](http://www.daogukj.com/sfpejhkp/)
+- [今年的东博会、峰会有哪些不同](http://www.movie.hkepx.cn/xiju/9108938.htm)
+- [美国拉斯维加斯有点爽！](http://www.play.hengshemaoyi.cn/kongbu/7173509.htm)
+- [我国博士后进站人数正式突破50万，如何看待这一发展趋势？](http://www.daogukj.com/6511273)
+- [DECO*27 - 洗脳 feat. 初音未来](http://www.movie.hkepx.cn/xiju/9671501.htm)
+- [OpenAI总裁宣布AGI到来](http://www.daogukj.com/6257299)
+- [结城理 VS 全方舟BOSS，刮痧还是乱杀？【明日方舟】](http://www.movie.hkepx.cn/movie/3310178.htm)
+- [人人影视回归变正版，会员定价 25 元/月，用户们还会为曾经的情怀买单吗？你看好其市场前景吗？](http://www.movie.hkepx.cn/xiju/0056213.htm)
+- [黄金跌幅](http://www.daogukj.com/0362639)
+- [井柏然直播澄清](http://www.movie.hkepx.cn/movie/3530731.htm)
+- [如何看待今年的超级厄尔尼诺现象？](http://www.play.hengshemaoyi.cn/xiju/9525688.htm)
+- [52名新加坡公民在广西被捕](http://www.daogukj.com/4889223)
+- [为COS旅人我横跨4国6城连夜翻山找到四叶狗狗！](http://www.daogukj.com/kjinzoui/)
+- [Lisa曝BLACKPINK时期曾隐藏恋爱](http://www.movie.hkepx.cn/movie/8932980.htm)
+- [49岁公司高管接受临床试药后死亡](http://www.daogukj.com/4200999)
 
 </details>
 
 ## 原始来源
 
-- [GPT6能力提升有多大](https://s.weibo.com/weibo?q=GPT6%E8%83%BD%E5%8A%9B%E6%8F%90%E5%8D%87%E6%9C%89%E5%A4%9A%E5%A4%A7)
+- [DK晋级S16全球总决赛](https://s.weibo.com/weibo?q=DK%E6%99%8B%E7%BA%A7S16%E5%85%A8%E7%90%83%E6%80%BB%E5%86%B3%E8%B5%9B)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 27af9d4223ba690a1a03 -->
+<!-- content-fingerprint: d3207b43c199152c6e59 -->
