@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 九年义务教育，正在变成“义务坐牢”——“减负”反变“增负”，一个小学老师发现了背后的残酷真相
+# 特朗普晒“总统档位图”将自己排第一
 
-> 来源：哔哩哔哩热门 · 排名：第 16 位 · 热度：755250 · 分类：校园学习 · 更新：2026-09-07T12:21:53+08:00
+> 来源：今日头条热榜 · 排名：第 17 位 · 热度：4365764 · 分类：热门事件 · 更新：2026-09-07T17:29:15+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“九年义务教育，正在变成“义务坐牢”——“减负”反变“增负”，一个小学老师发现了背后的残酷真相”位列第 16 位，公开热度指标为 755250，榜单分类为“校园学习”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“特朗普晒“总统档位图”将自己排第一”位列第 17 位，公开热度指标为 4365764，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：“现在的小初教育改革，正在大批量地生产文盲。" 这是我前几天，在一个小学老师发的帖子里，看到的一句话。 说实话，我的第一反应是，很不舒服。但认真看完全文之后，我不得不承认——她指出了一个，很多人忽略的事实。 她教三年级，除法竖式。就是那个被除数在符号里面、除数在外面的竖式，我们都学过。 刚毕业那会儿，她觉得这玩意儿太简单了。成年人几分钟就能学会的东西，小孩子还能学不会？她备课的时候信心满满，计划四节课搞定。一节课40分钟，加起来160分钟——她不信这还教不会一个除法竖式。 结果站上讲坛之后，她发现
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `校园学习`
+`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
 
 ## 相关热点
 
-- [多地楼市有新变化](wang-yang-bu-lao.md)
-- [陈晓 陈妍希](xuan-liang-ci-gu.md)
-- [《我的前半生》平儿扮演者考入中戏](zao-bi-tou-guang.md)
-- [世界首富为什么不是出自洛克菲勒、摩根这样的财阀？](nang-ying-ying-xue.md)
+- [关羽水淹七军，威震华夏，吓得曹操要迁都以避其锋，怎么就突然兵败如山倒，走了麦城了？](wang-yang-bu-lao.md)
+- [《下一个是谁》第七季（4）](xuan-liang-ci-gu.md)
+- [证监会原副主席王建军一审被判无期](zao-bi-tou-guang.md)
+- [余承东发布会现场连喊3个Super](nang-ying-ying-xue.md)
 
 ## 站内推荐
 
-- [新三国up锐评神探狄仁杰15：这就是传说中数值的力量吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [《下一个是谁》第七季（4）](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [给盲人投放弹窗广告？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [《崩坏：星穹铁道》千星纪游PV——「深水区」](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [国乒男单三人扎堆下半区](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [《明日方舟：终末地》过场动画 - 安玛的馈赠](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [华为麒麟9050Pro](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [吃播网红干饭莹莹去世年仅24岁](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [多地严查赵一鸣等零食品牌](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [博主：特斯拉再不降价就要出局了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [星宇车灯处罚公告](http://www.movie.hkepx.cn/xiju/4248389.htm)
-- [三年之期已到，恭迎世一上归位！【第7集】](http://www.daogukj.com/8479586)
-- [家长反对交600元请保洁扫教室被禁言，这暴露出什么问题？现在的学生连打扫教室都不会了吗？](http://www.movie.hkepx.cn/xiju/6912788.htm)
-- [特朗普发图称月球是美国的](http://www.movie.hkepx.cn/movie/7872338.htm)
-- [【招笑版】新僵尸1:健忘撑杆跳](http://www.play.hengshemaoyi.cn/xiju/9839884.htm)
-- [官方回应赴港看演唱会被取消全家低保](http://www.play.hengshemaoyi.cn/xiju/1600527.htm)
-- [西部神枪手快意恩仇，亲手报血海深仇后，却坠入一场惊天大阴谋](http://www.movie.hkepx.cn/movie/5531579.htm)
-- [【千年村庄】我建了这么久的房子，只有一个小朋友过来](http://www.daogukj.com/3390513)
-- [新三国up锐评神探狄仁杰15：这就是传说中数值的力量吗？](http://www.daogukj.com/6886049)
-- [江西一低保家庭女孩自己攒钱去香港看演唱会，网传其全家低保资格被取消，当地民政局回应正在核查，你怎么看？](http://www.movie.hkepx.cn/xiju/1482774.htm)
-- [你是什么时候发现，人生根本不会完蛋的？](http://www.daogukj.com/9420831)
-- [单亲妈妈说没钱再捐后公益机构笑了](http://www.play.hengshemaoyi.cn/kongbu/5724095.htm)
-- [用手还原badapple-终于还是走到了这一步](http://www.play.hengshemaoyi.cn/kongbu/1788236.htm)
-- [贵州3名未成年女孩接连失联最小12岁](http://www.daogukj.com/5545756)
-- [手机少了8千多张照片 用户质疑系统](http://www.movie.hkepx.cn/movie/5270539.htm)
-- [摩尔线程股价触及跌停](http://www.daogukj.com/3116329)
-- [母亲哄睡3岁儿子外出喝酒儿子坠亡](http://www.play.hengshemaoyi.cn/xiju/9707342.htm)
-- [当你吃出口腔溃疡时体内正在发生什么](http://www.movie.hkepx.cn/xiju/0541259.htm)
-- [律师解读女生赴港看演唱会被取消低保](http://www.movie.hkepx.cn/xiju/2275697.htm)
-- [给盲人投放弹窗广告？](http://www.play.hengshemaoyi.cn/xiju/6577034.htm)
-- [《崩坏：星穹铁道》千星纪游PV——「深水区」](http://www.movie.hkepx.cn/xiju/4577281.htm)
-- [如果德国选择党获得萨克森-安哈尔特州的议会选举胜利，德国的政局将会发生什么变化？](http://www.movie.hkepx.cn/xiju/2665258.htm)
-- [电被发明以前，电鳗叫什么呢？](http://www.daogukj.com/5555418)
-- [贵州中医二附院发生伤医事件，嫌疑人将刀藏于锦旗中捅伤医生，为什么医院不能强制进行高级别安检？](http://www.play.hengshemaoyi.cn/xiju/3747188.htm)
-- [多地严查赵一鸣等零食品牌](http://www.daogukj.com/6942144)
-- [女孩攒钱赴港看演唱会疑被取消低保，法律上是怎样设置这种资格标准的？若全家被取消资格，​后续生活怎么办？](http://www.movie.hkepx.cn/movie/5277782.htm)
-- [财政部将发行3000亿特别国债](http://www.movie.hkepx.cn/movie/8593003.htm)
-- [特斯拉降价](http://www.daogukj.com/8549389)
-- [林肯号驶离泰国 停靠5天消费1亿泰铢](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
-- [《圣斗士》作者被骗 46 亿，具体是什么情况？这部童年经典是否将面临烂尾结局？](http://www.movie.hkepx.cn/movie/3709798.htm)
-- [体育总局拟在外卖、快递员的休息站点建设健身设施，其背后是何种考量，又有哪些更优解？](http://www.daogukj.com/bybxufrl/)
-- [《交锋》尺度好大](http://www.play.hengshemaoyi.cn/kongbu/3402530.htm)
-- [特斯拉降价无人维权](http://www.play.hengshemaoyi.cn/kongbu/9522548.htm)
-- [贵州3名未成年女孩接连失联](http://www.daogukj.com/8485976)
-- [香槟射马云、舞女十八蹲！许家印从首富到白毛萝莉的一生【网络狠人114】](http://www.movie.hkepx.cn/movie/7956729.htm)
-- [王传福：一块拇指大小电池造就比亚迪](http://www.daogukj.com/ipvwmaiv/)
-- [研究生卖黄金所得 12.4 万被跨省冻结，为啥两地警方认定会产生分歧？账户为何迟迟无法解冻？](http://www.play.hengshemaoyi.cn/kongbu/7538769.htm)
-- [一吨旧手机能提炼200克黄金？假的](http://www.movie.hkepx.cn/xiju/3982276.htm)
-- [星宇股份总经理扣薪 12 个月，人力资源总监免职，能平息此次风波吗？带来哪些深思？](http://www.movie.hkepx.cn/xiju/0351825.htm)
-- [“葫芦娃爷爷”隔壁阳台挂起7个葫芦](http://www.movie.hkepx.cn/movie/9051024.htm)
-- [8月经济发展看点有哪些](http://www.movie.hkepx.cn/movie/1479042.htm)
-- [李荣浩演唱会女子中亲签后激动晕倒](http://www.movie.hkepx.cn/xiju/7703550.htm)
-- [美林肯号航母官兵5天消费1亿泰铢](http://www.play.hengshemaoyi.cn/xiju/4193543.htm)
-- [官方回应驳船往长江倾倒黑色固体](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
-- [“国家需要什么 我们就做什么”](http://www.daogukj.com/jzemyffu/)
-- [陈晓 陈妍希](http://www.movie.hkepx.cn/movie/7933914.htm)
-- [黄金 散户](http://www.play.hengshemaoyi.cn/xiju/3481756.htm)
-- [和贫困生喝咖啡一样的困境](http://www.daogukj.com/0746616)
-- [《我的前半生》平儿扮演者考入中戏](http://www.play.hengshemaoyi.cn/kongbu/7714631.htm)
-- [福建某小区禁止新能源车驶入地下车库，要求已停车辆 10 日内移出，这合理吗？如何从法律角度解读？](http://www.movie.hkepx.cn/movie/4117269.htm)
+- [别让低保女生赴港追星争议撕裂舆论](http://www.movie.hkepx.cn/xiju/4248389.htm)
+- [证监会原副主席王建军被判无期](http://www.daogukj.com/8479586)
+- [佛得角宣布全国降半旗](http://www.movie.hkepx.cn/xiju/6912788.htm)
+- [多款手机集体涨价，有经销商称本以为会迎来抢购潮，结果询价者寥寥无几，哪里出了问题？](http://www.movie.hkepx.cn/movie/7872338.htm)
+- [乌克兰的军统和中统内斗](http://www.play.hengshemaoyi.cn/xiju/9839884.htm)
+- [六旬富豪伙同妻子送90后情人坐牢](http://www.play.hengshemaoyi.cn/xiju/1600527.htm)
+- [猪肾续命9个月等来了人肾](http://www.movie.hkepx.cn/movie/5531579.htm)
+- [陈晓 陈妍希](http://www.daogukj.com/3390513)
+- [《明日方舟：终末地》过场动画 - 安玛的馈赠](http://www.daogukj.com/6886049)
+- [福建某小区禁止新能源车驶入地下车库，要求已停车辆 10 日内移出，这合理吗？如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/1482774.htm)
+- [才知道郑佩佩去世后捐赠了大脑](http://www.daogukj.com/9420831)
+- [如何评价铜师傅《凡人》动画联名第二弹作品开售1小时热卖5500万元？](http://www.play.hengshemaoyi.cn/kongbu/5724095.htm)
+- [曝井柏然刘雯结婚](http://www.play.hengshemaoyi.cn/kongbu/1788236.htm)
+- [我国可谓是麻雀大国，问一只麻雀的寿命在两三年，那它们死的时候都死在哪里呢，我怎么从来没见过它们的尸体?](http://www.daogukj.com/5545756)
+- [青年树下撸狗时毒蛇突然擦肩坠落](http://www.movie.hkepx.cn/movie/5270539.htm)
+- [什么！“紫色的蜂蜜？如果给蜜蜂喂火龙果里的天然色素，会不会吧蜂巢里的“蜂蜜”也染色？今天就来做一下实验！看看会不会酿造出“紫色的蜂蜜”！](http://www.daogukj.com/3116329)
+- [给盲人投放弹窗广告？](http://www.play.hengshemaoyi.cn/xiju/9707342.htm)
+- [月捐数年“无人问” 停捐一月遭“催捐”？四川单亲妈妈自曝“寒心”经历 多名网友评论区晒同款经历](http://www.movie.hkepx.cn/xiju/0541259.htm)
+- [收费员听到“卖西瓜”秒提醒可走绿通](http://www.movie.hkepx.cn/xiju/2275697.htm)
+- [吃播网红干饭莹莹去世年仅24岁](http://www.play.hengshemaoyi.cn/xiju/6577034.htm)
+- [多地严查赵一鸣等零食品牌](http://www.movie.hkepx.cn/xiju/4577281.htm)
+- [华为阔直板手机售价](http://www.movie.hkepx.cn/xiju/2665258.htm)
+- [如何评价华为 9 月 7 日全球直播的新品发布会？有哪些信息值得关注？](http://www.daogukj.com/5555418)
+- [李荣浩演唱会女子中亲签后激动晕倒](http://www.play.hengshemaoyi.cn/xiju/3747188.htm)
+- [24岁吃播网红去世 最后一条视频曝光](http://www.daogukj.com/6942144)
+- [31岁女企划连熬数夜后突发心梗](http://www.movie.hkepx.cn/movie/5277782.htm)
+- [扰民，但是扰的是队友](http://www.movie.hkepx.cn/movie/8593003.htm)
+- [华为最新三折叠售价19999元起](http://www.daogukj.com/8549389)
+- [古代的银票就一张纸，有人去仿制吗？](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
+- [郑佩佩去世后捐赠了大脑](http://www.movie.hkepx.cn/movie/3709798.htm)
+- [曝井柏然刘雯结婚了](http://www.daogukj.com/bybxufrl/)
+- [余承东介绍新芯片连喊3个Super](http://www.play.hengshemaoyi.cn/kongbu/3402530.htm)
+- [怎么有网友让我走到西藏啊…](http://www.play.hengshemaoyi.cn/kongbu/9522548.htm)
+- [世界首富为什么不是出自洛克菲勒、摩根这样的财阀？](http://www.daogukj.com/8485976)
+- [恋与深空](http://www.movie.hkepx.cn/movie/7956729.htm)
+- [早期视频，方块小镇大乱斗1](http://www.daogukj.com/ipvwmaiv/)
+- [《鸣潮》共鸣者战斗演示 | 景燃](http://www.play.hengshemaoyi.cn/kongbu/7538769.htm)
+- [江苏 | 南京麦乐鸡块碎尸案](http://www.movie.hkepx.cn/xiju/3982276.htm)
+- [研究生卖黄金所得 12.4 万被跨省冻结，为啥两地警方认定会产生分歧？账户为何迟迟无法解冻？](http://www.movie.hkepx.cn/xiju/0351825.htm)
+- [【终末地1.5】全网最强基建！划时代创新科技！颠覆你对基建深度的认知！](http://www.movie.hkepx.cn/movie/9051024.htm)
+- [赓续科创薪火 书写报国华章](http://www.movie.hkepx.cn/movie/1479042.htm)
+- [挖眼案男孩抱着盲校“妈妈”合影](http://www.movie.hkepx.cn/xiju/7703550.htm)
+- [华为新款折叠屏手机售价19999元起](http://www.play.hengshemaoyi.cn/xiju/4193543.htm)
+- [华强买瓜，但死神来了](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
+- [5年再增约10亿“风光”意味着什么](http://www.daogukj.com/jzemyffu/)
+- [《下一个是谁》第七季（4）](http://www.movie.hkepx.cn/movie/7933914.htm)
+- [耐克将被移出标普 100 指数，市值五年累计缩水约 79%，耐克怎么了？](http://www.play.hengshemaoyi.cn/xiju/3481756.htm)
+- [新世界地图要来了，采用平等地球投影法，非洲变得更大，美国投下唯一反对票，背后有着怎样的地缘与文化诉求？](http://www.daogukj.com/0746616)
+- [证监会原副主席王建军一审被判无期](http://www.play.hengshemaoyi.cn/kongbu/7714631.htm)
+- [香槟射马云、舞女十八蹲！许家印从首富到白毛萝莉的一生【网络狠人114】](http://www.movie.hkepx.cn/movie/4117269.htm)
 
 </details>
 
 ## 原始来源
 
-- [九年义务教育，正在变成“义务坐牢”——“减负”反变“增负”，一个小学老师发现了背后的残酷真相](https://b23.tv/BV132tB6YExQ)
+- [特朗普晒“总统档位图”将自己排第一](https://www.toutiao.com/trending/7681960791264788507/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227681960791264788507%22%2C%22hot_board_impr_id%22%3A%2220260907172912061A58FCA6410AEC0CB7%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 12ffa050fb6527857160 -->
+<!-- content-fingerprint: 6a5a05beb0c308bfee50 -->
