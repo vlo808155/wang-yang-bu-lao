@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 宁夏7人假意应聘，借居住条件差等理由「软暴力」向工方勒索共16起，最高被判七年，如何从法律角度解读？
+# 硬蹭《狂飙》卖酒 被判赔偿500万
 
-> 来源：知乎热榜 · 排名：第 16 位 · 热度：80 万热度 · 分类：问答 · 更新：2026-09-10T08:13:49+08:00
+> 来源：百度热搜 · 排名：第 15 位 · 热度：6381476 · 更新：2026-09-10T12:43:54+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“宁夏7人假意应聘，借居住条件差等理由「软暴力」向工方勒索共16起，最高被判七年，如何从法律角度解读？”位列第 16 位，公开热度指标为 80 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“硬蹭《狂飙》卖酒 被判赔偿500万”位列第 15 位，公开热度指标为 6381476。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据新华社消息，9月8日，宁夏回族自治区吴忠市同心县人民法院依法对被告人马某某、叶某某等7人实施的“劳务碰瓷”涉恶案件进行一审公开宣判。该团伙应聘工作后找理由制造矛盾索要钱财，先后在广东、海南、河北等多地建筑工地实施违法犯罪活动16起。 经审理查明，2024年3月至4月，被告人马某某、叶某某为谋取非法利益，纠集被告人赵某某、夏某某等5人借助网络招工平台等物色目标，假借应聘务工名义进入工地，以管理制度严苛、居住条件差、饮食习惯不便、工期短等为由，提出各种不合理要求制造矛盾，并采取辱骂、围堵、威胁到项目部闹事等“软暴力”手段，向用工方勒索不合理路费、误工费等费
+来源公开摘要显示：9日，最高人民法院发布9件反不正当竞争典型案例，厘清仿冒混淆、商业诋毁等行为认定。其中，某公司搭蹭影视剧《狂飙》热度卖酒，被判赔偿500万元。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [《物业费最贵の一集》](chi-zhi-yi-heng.md)
-- [降价140万元的药终于有患者用了](jian-ren-bu-ba.md)
-- [宁德时代已报警](zi-qiang-bu-xi.md)
-- [刘亦菲发合照裁掉越南女星](fen-fa-tu-qiang.md)
+- [老吃家才懂杨紫推荐的零食含金量](chi-zhi-yi-heng.md)
+- [特朗普预告战事将终结 伊朗开出条件](jian-ren-bu-ba.md)
+- [17 岁赵松源「跳级」入选国足，成为首位「现役高中生」国脚，他有哪些过人之处？未来潜力有多大？](zi-qiang-bu-xi.md)
+- [帮精神小妹过一场生日，送给她一束特别的花](fen-fa-tu-qiang.md)
 
 ## 站内推荐
 
-- [郑钦文止步美网八强](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [爱马仕橙退出历史舞台](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [中国女篮险胜波多黎各女篮](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [人口红利为何可能变成印度人口压力](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [郑钦文从排名跌到一百名开外到如今一路挺进美网八强，你认为她的状态算重回巅峰了吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [人类史上首次！老人比小孩多了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [北京新浪总部大楼附近着火](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [亚运会多个项目今天开赛](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [昆明警方通报鲜花饼吐痰事件](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [泰柬边境电诈园区酷刑室首次曝光](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [教师节](http://www.movie.hkepx.cn/xiju/7278435.htm)
-- [2026女篮世界杯八强附加赛，中国女篮75：72战胜波多黎各女篮晋级八强，如何评价本场比赛？](http://www.daogukj.com/eaozjceu/)
-- [会卖萌的…太空歌剧?? - 新世代科幻RPG大作【EXODUS】最新试玩揭晓~ (Leya蕾雅)](http://www.daogukj.com/xtfvegvn/)
-- [iPhone18Pro价格](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
-- [iPhone 18 Pro涨价](http://www.daogukj.com/fkuewdzb/)
-- [iPhone 18 Pro和18 Pro Max买哪个](http://www.movie.hkepx.cn/xiju/4307844.htm)
-- [抖音擦边礼物被下架](http://www.daogukj.com/8791893)
-- [老师们各个都身怀绝技](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
-- [郑钦文遭莱巴金娜逆转无缘四强](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
-- [降价140万元的药终于有患者用了](http://www.daogukj.com/2165140)
-- [请停留三秒，为毛主席献花，今天9月9日是主席毛泽东逝世50周年的日子，他是中国共产党、中国人民解放军、中华人民共和国的主要缔造者](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
-- [卫冕冠军大巴黎6-1狂胜取欧冠首胜](http://www.movie.hkepx.cn/xiju/1440611.htm)
-- [郑钦文止步美网八强](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
-- [假如“开学需带物品”来面试](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
-- [共享投资机遇 共谋未来发展](http://www.daogukj.com/9837121)
-- [“过日子人”重新捧红方便面](http://www.movie.hkepx.cn/movie/5334415.htm)
-- [iPhone Duo读音](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
-- [罗欣棫嘴含鲜血命中关键三分](http://www.movie.hkepx.cn/movie/2391374.htm)
-- [人口红利为何可能变成印度人口压力](http://www.movie.hkepx.cn/movie/4276791.htm)
-- [郑钦文美网止步八强](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
-- [爱马仕橙退出历史舞台](http://www.daogukj.com/6612016)
-- [8 月新能源车零售100.5万辆，同比下降10.1%，燃油车零售54万辆，同比下降 40%，如何解读？](http://www.movie.hkepx.cn/movie/4045624.htm)
-- [西山居新作运营官号被曝承认「尘白」已死，这一言论对相关游戏和公司意味着什么？](http://www.daogukj.com/9217972)
-- [在改善民生中扩大内需](http://www.daogukj.com/eecjrkxr/)
-- [AirPods5 便宜](http://www.movie.hkepx.cn/xiju/0864553.htm)
-- [开学这么爽怎么不早说？](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
-- [苹果 牙膏挤“爆”](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
-- [上交所向星宇股份发监管函，就公司相关事项明确监管要求，哪些信息值得关注？](http://www.daogukj.com/chnejvmg/)
-- [武亮称接棒张雪峰后压力大到斑秃，澄清本人并未持股且未来将交还家业，这种代管模式能支撑公司持续经营吗？](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
-- [利物浦2-1逆转马竞](http://www.daogukj.com/dmyshqkp/)
-- [iPhone 18 Pro颜色](http://www.daogukj.com/hxjdxwxy/)
-- [男子看望奶奶时因桥梁破损坠亡，9天后奶奶也因受打击离世，死者父母获赔 120 万，从法律角度如何解读？](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
-- [苹果 iPhoneDuo](http://www.movie.hkepx.cn/movie/5093289.htm)
-- [警惕这些常见骗术](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
-- [韩国执政党党首在国会演讲时表示，只看美国的时代结束了，美已不再扮演对韩的「宽容大哥」，他为何这么说？](http://www.movie.hkepx.cn/movie/7746903.htm)
-- [人民日报锐评一边高消费一边领低保](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
-- [iPhoneDuo 屏下摄像头](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
-- [郑钦文从排名跌到一百名开外到如今一路挺进美网八强，你认为她的状态算重回巅峰了吗？](http://www.daogukj.com/2551047)
-- [《欢迎来龙餐馆》里杀死老扎妻女的是什么人？](http://www.daogukj.com/7700423)
-- [越南女星回应合照被刘亦菲裁掉了](http://www.daogukj.com/0062100)
-- [成为老师以后，你发现这份工作和入行前想象中最不一样的地方是什么？](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
-- [抖音礼物 擦边](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
-- [心动的信号](http://www.daogukj.com/qzcflnda/)
-- [第三集上线！《新数码宝贝·全面战争》【15分钟管饱！】](http://www.movie.hkepx.cn/movie/1098440.htm)
-- [刘亦菲发合照裁掉越南女星](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
-- [特朗普预告战事将终结 伊朗开出条件](http://www.daogukj.com/2428628)
-- [早期视频，我的世界模拟治疗](http://www.daogukj.com/uftxwefl/)
-- [无折痕](http://www.movie.hkepx.cn/movie/6056833.htm)
-- [宇树科技发布视频称，首次实现人形机器人全自主搏击，这一进展意味着什么？](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
-- [刘恋想问早春晴朗作者自己是不是原型](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
+- [日本梅毒男性20到60岁女性20左右](http://www.movie.hkepx.cn/xiju/7278435.htm)
+- [谁能加入iPhone折叠屏朋友圈](http://www.daogukj.com/eaozjceu/)
+- [霸王茶姬在上海试卖茶叶蛋，单价 5 元，搭配奶茶半价，为何瞄准早餐市场？你愿意下单吗？](http://www.daogukj.com/xtfvegvn/)
+- [iPhoneDuo 折痕](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
+- [日本 梅毒](http://www.daogukj.com/fkuewdzb/)
+- [“梅姨”家属：她和家人没亲情](http://www.movie.hkepx.cn/xiju/4307844.htm)
+- [女孩去邻居家吃饭惨遭夫妻分尸，时隔 21 年凶手被抓获，该案目前进展如何？哪些细节值得关注？](http://www.daogukj.com/8791893)
+- [如何评价刘翔发言「我希望组织认真考虑每一位运动员的出路……他们搭上整个青春健康，甚至留下永久的伤病」？](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
+- [宝格丽越南公关回应刘亦菲裁掉胡玉荷](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
+- [特朗普预告战事将终结 伊朗开出条件](http://www.daogukj.com/2165140)
+- [三星苹果“碎嘴商战”](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
+- [「小白」iPhone Duo真机体验：苹果折叠终于来了！](http://www.movie.hkepx.cn/xiju/1440611.htm)
+- [人类史上首次！老人比小孩多了](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
+- [维密一员工称请假陪患癌母亲做手术遭拒，提出辞职领导却马上批准，如何看待此事？遇到公司拒假该怎么办？](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
+- [教育本就是一场美好的双向奔赴](http://www.daogukj.com/9837121)
+- [人民日报锐评一边高消费一边领低保](http://www.movie.hkepx.cn/movie/5334415.htm)
+- [“0票影帝”沈腾的资本博弈](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
+- [无敌，就是这么寂寞！](http://www.movie.hkepx.cn/movie/2391374.htm)
+- [昆明警方通报鲜花饼吐痰事件](http://www.movie.hkepx.cn/movie/4276791.htm)
+- [男子酒后撞电梯门坠亡 妻子索赔155万](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
+- [北京新浪总部大楼附近着火](http://www.daogukj.com/6612016)
+- [中学换饮水机滤芯 全校每班平摊98元](http://www.movie.hkepx.cn/movie/4045624.htm)
+- [iPhone首款折叠屏天猫新品发布](http://www.daogukj.com/9217972)
+- [中国快递按下转型升级“换挡键”](http://www.daogukj.com/eecjrkxr/)
+- [iPhone18Pro颜色 男士内裤](http://www.movie.hkepx.cn/xiju/0864553.htm)
+- [如何看待大二学生因用名牌手机被取消资助后威胁要曝光，现愿意更换手机、到资助者亲戚家的店里打工挣钱？](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
+- [中小学生流行“吃作业” 多地提醒](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
+- [男子造谣“鲜花饼吐痰事件”被行拘](http://www.daogukj.com/chnejvmg/)
+- [时尚博主曝刘亦菲裁掉胡玉荷的原因](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
+- [这才是iphone折叠机啊！](http://www.daogukj.com/dmyshqkp/)
+- [《未眠野》首曝PV | 万物都在回应，世界没有答案](http://www.daogukj.com/hxjdxwxy/)
+- [曝DeepSeek正筹备科创板IPO](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
+- [刘亦菲合影裁掉越南女星引争议](http://www.movie.hkepx.cn/movie/5093289.htm)
+- [哪位嫂子会用上iPhone的新功能](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
+- [苹果下架停产iPhone 17 Pro系列](http://www.movie.hkepx.cn/movie/7746903.htm)
+- [野外看到“马刀树”要尽快远离](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
+- [iPhoneDuo过渡动画 完美](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
+- [泰柬边境电诈园区酷刑室首次曝光](http://www.daogukj.com/2551047)
+- [德国政坛大地震，选择党，前进四！](http://www.daogukj.com/7700423)
+- [莆田洪水后“泡水鞋”甩卖？假的](http://www.daogukj.com/0062100)
+- [俄方：若安全受威胁时有权用核武器](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
+- [花200000买个金丝楠树瘤，放家里藏了10年，锯开一看震惊全场](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
+- [男子3个月差点搬空一家酒店](http://www.daogukj.com/qzcflnda/)
+- [教师节](http://www.movie.hkepx.cn/movie/1098440.htm)
+- [帮精神小妹过一场生日，送给她一束特别的花](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
+- [兰香如故14首OST](http://www.daogukj.com/2428628)
+- [毛新宇少将到毛主席纪念堂祭奠缅怀](http://www.daogukj.com/uftxwefl/)
+- [「小白」苹果iPhone18 Pro/Max体验：尽善尽美？](http://www.movie.hkepx.cn/movie/6056833.htm)
+- [马来西亚5劫匪持刀闯入中国富商公寓](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
+- [18岁女孩被包办婚姻强制辍学](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
 
 </details>
 
 ## 原始来源
 
-- [宁夏7人假意应聘，借居住条件差等理由「软暴力」向工方勒索共16起，最高被判七年，如何从法律角度解读？](https://www.zhihu.com/question/2080721680796861543)
+- [硬蹭《狂飙》卖酒 被判赔偿500万](https://www.baidu.com/s?wd=%E7%A1%AC%E8%B9%AD%E3%80%8A%E7%8B%82%E9%A3%99%E3%80%8B%E5%8D%96%E9%85%92+%E8%A2%AB%E5%88%A4%E8%B5%94%E5%81%BF500%E4%B8%87&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2e731c2c95341502bc5c -->
+<!-- content-fingerprint: 2486e85e6d2566014ea9 -->
