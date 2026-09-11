@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 如何看待日本梅毒患者数量居高不下，受辉瑞影响目前青霉素短缺？分析称这与社会「三个一」有关，如何理解？
+# 智谱 GLM-5架构负责人白雨石，被爆已加盟腾讯混元？会对双方未来架构设计有什么影响？
 
-> 来源：知乎热榜 · 排名：第 14 位 · 热度：119 万热度 · 分类：问答 · 更新：2026-09-11T09:23:47+08:00
+> 来源：知乎热榜 · 排名：第 14 位 · 热度：155 万热度 · 分类：问答 · 更新：2026-09-11T14:10:51+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待日本梅毒患者数量居高不下，受辉瑞影响目前青霉素短缺？分析称这与社会「三个一」有关，如何理解？”位列第 14 位，公开热度指标为 119 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“智谱 GLM-5架构负责人白雨石，被爆已加盟腾讯混元？会对双方未来架构设计有什么影响？”位列第 14 位，公开热度指标为 155 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据新华社，日本近年来梅毒患者数量居高不下，而治疗药物青霉素短缺，预计最早明年下半年才可能缓解。 据日本共同社9日报道，该国2013年报告梅毒感染病例1000多例，2021年增至近8000例，2025年超过1.3万例。专家认为，社交媒体、交友软件的无序发展导致与不特定多人的性行为增加，是梅毒感染在日本扩散的一大原因。 在日本，青霉素是治疗梅毒的首选药物，也是阻断梅毒在母婴间传播的唯一推荐药物。报道说，由于美国辉瑞公司的产品和生产设备去年出现问题，导致日本市场目前青霉素紧缺。该公司预计明年下半年可恢复发货。 据新华社此前报道，日本梅毒感染人数近年持续处于高位
+来源公开摘要显示：时间线先看清楚： 2026.01 入选腾讯首届青云奖学金（全国仅15人），20万现金+30万算力，颁奖人正是姚顺雨。 2026.03 IndexCache 论文上线，他是第一作者，当时机构还在智谱/清华。核心贡献：把 DSA 的跨层索引算力砍掉大半。 约半年后 论文/主页机构改为 Tencent HY Team，外界开始传「入职混元」。 2026.08.28 混元 Hy4 preview 发布。模型卡写明采用 Gated DSA + IndexCache。随后个人简介更新，任职信息指向腾讯混元。 现在圈内开始赌下一手：混元把架构大牛挖走后，Hy-5 会不
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [众望所归，今天带孙艺洲自律！](wen-gu-zhi-xin.md)
-- [荣耀 魔法画报](ju-yi-fan-san.md)
-- [甲亢哥发现自己中文比阿信英文好](rong-hui-guan-tong.md)
-- [百兽之王人人惧 为何中国人偏爱虎](ji-si-guang-yi.md)
+- [一根铅笔300块？如今的文具让我大开眼界...](wen-gu-zhi-xin.md)
+- [看了好几遍 确认是中国军网发的](ju-yi-fan-san.md)
+- [范丞丞ins发抽烟照](rong-hui-guan-tong.md)
+- [普京与莫迪11天连见两次有何意味](ji-si-guang-yi.md)
 
 ## 站内推荐
 
-- [女子旧手机号二次放号后支付宝被哈啰盗刷 6551 元，平台仅补 200 元，这合理吗？暴露了哪些问题？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
-- [九尾妖狐三妖完成了女娲娘娘交给的任务却被姜子牙斩首了，死的冤不冤？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
-- [我看《明朝那些事儿》，发现宦官这个字眼尤为频繁，但唯独少了外戚，请问外戚去哪里了？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
-- [「员工裸奔拉屎事件」事发储能巨头瑞浦兰钧，公司称因离职手续引发，哪些信息值得关注？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
-- [如何看待红果短剧日活1.68亿已超「爱优腾芒」四家总和？为啥大众会在影视娱乐上出现这么强烈的偏好转变？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
+- [“9·11”主谋为什么至今未被审判](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qiu-gao-qi-shuang.md)
+- [浙江老师用心拓宽大凉山孩子眼界](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-fan-feng-shun.md)
+- [星宇股份又出错，外包报酬支付总额「约2.44万亿元」，如何看待这家公司频频出错？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yuan-mu-qiu-yu.md)
+- [印度严重欺诈调查局拟调查小米，外交部回应称不了解具体情况，中印经贸合作该如何互利共赢？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jian-ren-bu-ba.md)
+- [为什么人类只剩下智人这一个物种？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/huo-ling-huo-xian.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [刘慈欣原著授权 |《流浪地球：望日》首支预告片](http://www.play.hengshemaoyi.cn/xiju/1488370.htm)
-- [我国成功发射一箭六星](http://www.movie.hkepx.cn/xiju/8142802.htm)
-- [燃油车卖不动 加油站怎么办](http://www.daogukj.com/aifavzjo/)
-- [「员工裸奔拉屎事件」事发储能巨头瑞浦兰钧，公司称因离职手续引发，哪些信息值得关注？](http://www.daogukj.com/prhgrxkc/)
-- [车主留意！油价要调了](http://www.daogukj.com/xljpgpar/)
-- [早春晴朗短剧版](http://www.play.hengshemaoyi.cn/kongbu/8269810.htm)
-- [捉奸变藏尸？！开局够抓马，反转够吸睛，全程无尿点！年度高分韩剧《现在不是出轨的问题》上](http://www.daogukj.com/1042234)
-- [网传《三体 2》蒋奇明将饰演罗辑，是真的吗？你对这一选角有何期待？](http://www.movie.hkepx.cn/movie/2017762.htm)
-- [日本百岁老人开拖拉机不慎侧翻身亡](http://www.play.hengshemaoyi.cn/kongbu/7305402.htm)
-- [九尾妖狐三妖完成了女娲娘娘交给的任务却被姜子牙斩首了，死的冤不冤？](http://www.movie.hkepx.cn/xiju/5372175.htm)
-- [国产游戏《未眠野》首曝 PV 展现物理交互，高度类似《塞尔达》，它能脱颖而出吗？](http://www.play.hengshemaoyi.cn/xiju/1521285.htm)
-- [郑钦文这段话被联合国妇女署转发](http://www.play.hengshemaoyi.cn/kongbu/1443383.htm)
-- [iPhone17官方涨价线下降价](http://www.play.hengshemaoyi.cn/xiju/8078591.htm)
-- [传奇历史人物志——达尔文](http://www.movie.hkepx.cn/xiju/0484360.htm)
-- [丁俊晖晋级英格兰赛8强](http://www.play.hengshemaoyi.cn/xiju/1936896.htm)
-- [GPT-6 Astra 会给具身行业带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/6024898.htm)
-- [“员工在厂区裸奔”公司找到了](http://www.movie.hkepx.cn/xiju/5916403.htm)
-- [日韩股市大跌](http://www.daogukj.com/0571201)
-- [中国女篮4年前赢法国14分如今输29分](http://www.daogukj.com/7986451)
-- [官方回应「男子称停止资助后遭受助学生质问催捐」，经查当地教育机构没有姚先生这个人，该争议会有反转吗？](http://www.movie.hkepx.cn/xiju/1894043.htm)
-- [不能回家的除了青蛙可能还有玩家的钱](http://www.movie.hkepx.cn/xiju/0055682.htm)
-- [油价](http://www.daogukj.com/4550083)
-- [【独家】时光代理人 第三季 PartOne 第6集 试探【8月国创】](http://www.play.hengshemaoyi.cn/xiju/3796624.htm)
-- [只不过是学会了化妆，对象非说我整容了……](http://www.daogukj.com/6834869)
-- [女子旧手机号二次放号后支付宝被哈啰盗刷 6551 元，平台仅补 200 元，这合理吗？暴露了哪些问题？](http://www.movie.hkepx.cn/movie/6739229.htm)
-- [三年之期已到，恭迎世一上归位！【第8集】](http://www.play.hengshemaoyi.cn/xiju/0523690.htm)
-- [殷桃跳水声音比胆子大](http://www.movie.hkepx.cn/movie/5273281.htm)
-- [如何看待红果短剧日活1.68亿已超「爱优腾芒」四家总和？为啥大众会在影视娱乐上出现这么强烈的偏好转变？](http://www.daogukj.com/ikgdahbt/)
-- [许绍雄去世近1年 代言品牌仍用其头像](http://www.movie.hkepx.cn/xiju/8832891.htm)
-- [荣耀 魔法画报](http://www.movie.hkepx.cn/movie/3703446.htm)
-- [建议大家把内裤袜子丢洗衣机洗](http://www.play.hengshemaoyi.cn/kongbu/6710418.htm)
-- [韩旭：希望更多女篮姑娘去海外打球](http://www.movie.hkepx.cn/movie/3132728.htm)
-- [“梅姨”落网前视频首曝光](http://www.play.hengshemaoyi.cn/xiju/6644085.htm)
-- [外交部回应印度拟对小米启动调查](http://www.movie.hkepx.cn/xiju/1400285.htm)
-- [我看《明朝那些事儿》，发现宦官这个字眼尤为频繁，但唯独少了外戚，请问外戚去哪里了？](http://www.daogukj.com/7263483)
-- [月薪1w是月薪5K的六倍](http://www.movie.hkepx.cn/movie/6845097.htm)
-- [911事件25周年](http://www.daogukj.com/9868095)
-- [武汉一小学学生不订奶就后排罚站，教育局称系误解，孩子刚好去后面储物柜拿水，能打消大众质疑吗？](http://www.play.hengshemaoyi.cn/kongbu/0966236.htm)
-- [丈夫肥胖久坐致妻子4次怀孕全流产](http://www.play.hengshemaoyi.cn/kongbu/3775616.htm)
-- [管理员: 哭？哭也算时间哦？](http://www.play.hengshemaoyi.cn/xiju/3733431.htm)
-- [看不见的贸易为什么“跑”得更快](http://www.daogukj.com/rlltnmdf/)
-- [丁俊晖周跃龙晋级英格兰公开赛八强](http://www.movie.hkepx.cn/xiju/8555771.htm)
-- [“普通人出境变难”系误读新规](http://www.play.hengshemaoyi.cn/xiju/2504578.htm)
-- [会卖萌的…太空歌剧?? - 新世代科幻RPG大作【EXODUS】最新试玩揭晓~ (Leya蕾雅)](http://www.movie.hkepx.cn/xiju/9944540.htm)
-- [男子称遭受助者催捐 官方调查真实性](http://www.play.hengshemaoyi.cn/xiju/8146045.htm)
-- [女孩被包办婚姻逃离后父母跨省抓人](http://www.play.hengshemaoyi.cn/xiju/7037654.htm)
-- [从8月物价数据看消费提质扩容](http://www.movie.hkepx.cn/xiju/6811064.htm)
-- [电影《老江湖》冲击力](http://www.movie.hkepx.cn/movie/4901752.htm)
-- [德总理在会上被怼到紧咬嘴唇](http://www.daogukj.com/3022991)
-- [人为什么要读书最好的答案](http://www.play.hengshemaoyi.cn/xiju/3299032.htm)
+- [换一种心跳，感受世界的奇妙——《伊莫》联结玩法实机](http://www.play.hengshemaoyi.cn/xiju/1488370.htm)
+- [美企为何看好“中国机遇2.0”](http://www.movie.hkepx.cn/xiju/8142802.htm)
+- [《对三骗王炸》](http://www.daogukj.com/aifavzjo/)
+- [印度严重欺诈调查局拟调查小米，外交部回应称不了解具体情况，中印经贸合作该如何互利共赢？](http://www.daogukj.com/prhgrxkc/)
+- [老人心梗 老伴打120时被广告卡住](http://www.daogukj.com/xljpgpar/)
+- [大衣哥回应为何多年来从不收徒](http://www.play.hengshemaoyi.cn/kongbu/8269810.htm)
+- [传奇历史人物志——达尔文](http://www.daogukj.com/1042234)
+- [小孩坠楼砸烂宝马车 家长要求删视频](http://www.movie.hkepx.cn/movie/2017762.htm)
+- [低保户装空调会被取消资格？多地回应](http://www.play.hengshemaoyi.cn/kongbu/7305402.htm)
+- [浙江老师用心拓宽大凉山孩子眼界](http://www.movie.hkepx.cn/xiju/5372175.htm)
+- [中国博主伦敦直播遭外籍青年殴打抢劫，博主称当地警方未处置，事情经过如何？遇到此类情况应如何应对？](http://www.play.hengshemaoyi.cn/xiju/1521285.htm)
+- [7.2万元一枚的徽章现在按斤卖](http://www.play.hengshemaoyi.cn/kongbu/1443383.htm)
+- [大学“一床难求” 高教大省出手](http://www.play.hengshemaoyi.cn/xiju/8078591.htm)
+- [官方回应「男子称停止资助后遭受助学生质问催捐」，经查当地教育机构没有姚先生这个人，该争议会有反转吗？](http://www.movie.hkepx.cn/xiju/0484360.htm)
+- [井柏然送网友私服 最贵的价值四万七](http://www.play.hengshemaoyi.cn/xiju/1936896.htm)
+- [黄晓明说自己帮了太多白眼狼](http://www.play.hengshemaoyi.cn/xiju/6024898.htm)
+- [【独家】时光代理人 第三季 PartOne 第6集 试探【8月国创】](http://www.movie.hkepx.cn/xiju/5916403.htm)
+- [【warma/怒九】出国！去逛全球最大的游戏展吧！](http://www.daogukj.com/0571201)
+- [萨巴伦卡称仍有机会夺回世界第一](http://www.daogukj.com/7986451)
+- [青岛失火货轮内部船舱现场曝光](http://www.movie.hkepx.cn/xiju/1894043.htm)
+- [刘慈欣原著授权 |《流浪地球：望日》首支预告片](http://www.movie.hkepx.cn/xiju/0055682.htm)
+- [月薪1w是月薪5K的六倍](http://www.daogukj.com/4550083)
+- [如何评价贝赫和斯维纳通-戴尔猜想（BSD猜想，七大千禧难题）疑被OpenAI或Anthropic解决？](http://www.play.hengshemaoyi.cn/xiju/3796624.htm)
+- [人类史上首次老人数量超过儿童，65岁以上人口占比‌10.5%‌，5岁以下不足10%，该数据意味着什么？](http://www.daogukj.com/6834869)
+- [“9·11”主谋为什么至今未被审判](http://www.movie.hkepx.cn/movie/6739229.htm)
+- [如何评价兰州大学在中雨天气拉练新生？](http://www.play.hengshemaoyi.cn/xiju/0523690.htm)
+- [【英雄联盟】打了 15 年， 对决还在继续。](http://www.movie.hkepx.cn/movie/5273281.htm)
+- [为什么人类只剩下智人这一个物种？](http://www.daogukj.com/ikgdahbt/)
+- [这些习惯会加速皮肤衰老](http://www.movie.hkepx.cn/xiju/8832891.htm)
+- [看了好几遍 确认是中国军网发的](http://www.movie.hkepx.cn/movie/3703446.htm)
+- [“梅姨”正脸](http://www.play.hengshemaoyi.cn/kongbu/6710418.htm)
+- [糖尿病人喝白酒到底会不会影响血糖](http://www.movie.hkepx.cn/movie/3132728.htm)
+- [携程垄断被罚51亿后又现房价刺客](http://www.play.hengshemaoyi.cn/xiju/6644085.htm)
+- [《王者万象棋》为何让人上头](http://www.movie.hkepx.cn/xiju/1400285.htm)
+- [星宇股份又出错，外包报酬支付总额「约2.44万亿元」，如何看待这家公司频频出错？](http://www.daogukj.com/7263483)
+- [高露圈外老公首曝光](http://www.movie.hkepx.cn/movie/6845097.htm)
+- [三年之期已到，恭迎世一上归位！【第8集】](http://www.daogukj.com/9868095)
+- [少吃两口：一个最简单的抗衰方法](http://www.play.hengshemaoyi.cn/kongbu/0966236.htm)
+- [网易 鸿蒙](http://www.play.hengshemaoyi.cn/kongbu/3775616.htm)
+- [大美王朝2026：党争、测谎，挪用军饷，美国真有大明那味了！](http://www.play.hengshemaoyi.cn/xiju/3733431.htm)
+- [“我儿子可能还是个gay....”](http://www.daogukj.com/rlltnmdf/)
+- [车主留意！油价要调了](http://www.movie.hkepx.cn/xiju/8555771.htm)
+- [【招笑版】新植物9:力竭豌豆【bilibilionly同人扶持计划】](http://www.play.hengshemaoyi.cn/xiju/2504578.htm)
+- [如何看待红果短剧日活1.68亿已超「爱优腾芒」四家总和？为啥大众会在影视娱乐上出现这么强烈的偏好转变？](http://www.movie.hkepx.cn/xiju/9944540.htm)
+- [老人突发脑梗医生要求先交钱再手术](http://www.play.hengshemaoyi.cn/xiju/8146045.htm)
+- [香港 烟盒设计](http://www.play.hengshemaoyi.cn/xiju/7037654.htm)
+- [我国深海科考新突破](http://www.movie.hkepx.cn/xiju/6811064.htm)
+- [苹果首款天价折叠屏 被炒到了9万](http://www.movie.hkepx.cn/movie/4901752.htm)
+- [燃油车卖不动了加油站怎么办](http://www.daogukj.com/3022991)
+- [酒店的免费茶包早该重做了](http://www.play.hengshemaoyi.cn/xiju/3299032.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待日本梅毒患者数量居高不下，受辉瑞影响目前青霉素短缺？分析称这与社会「三个一」有关，如何理解？](https://www.zhihu.com/question/2081325661914929014)
+- [智谱 GLM-5架构负责人白雨石，被爆已加盟腾讯混元？会对双方未来架构设计有什么影响？](https://www.zhihu.com/question/2078808417414788999)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 21288845916798c65433 -->
+<!-- content-fingerprint: becdd383e7415e824bbd -->
