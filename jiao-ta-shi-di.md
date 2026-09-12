@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 武汉没订奶学生“站后排喝水”：“刚好”不能成万能解释，一句“刚好” 堵不住所有追问
+# 菲尔兹奖得主称AI与数学正严重错位
 
-> 来源：哔哩哔哩热门 · 排名：第 15 位 · 热度：801888 · 分类：社会 · 更新：2026-09-12T13:41:06+08:00
+> 来源：微博热搜 · 排名：第 16 位 · 热度：198734 · 分类：科学科普 · 更新：2026-09-12T17:34:42+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“武汉没订奶学生“站后排喝水”：“刚好”不能成万能解释，一句“刚好” 堵不住所有追问”位列第 15 位，公开热度指标为 801888，榜单分类为“社会”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“菲尔兹奖得主称AI与数学正严重错位”位列第 16 位，公开热度指标为 198734，榜单分类为“科学科普”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `社会`
+`微博热搜` `实时热搜` `热点资讯` `科学科普`
 
 ## 相关热点
 
-- [郭富城两女儿成刘德华女儿校友](shi-shi-qiu-shi.md)
-- [时代少年团单飞热度](chi-zhi-yi-heng.md)
-- [小女孩越帮越忙大家笑翻](jian-ren-bu-ba.md)
-- [如何看待特朗普拒绝沙特介入也门局势的请求，拒绝打击胡塞武装？](zi-qiang-bu-xi.md)
+- [3个方法把阳气“养”回来](shi-shi-qiu-shi.md)
+- [为什么很多家长特别爱转视频号当自己的「嘴替」来教育孩子？](chi-zhi-yi-heng.md)
+- [“人们常常在夏天结束时，回忆那些美好的时光... ”【Shawdow of the sun】【夏天结束の小曲】](jian-ren-bu-ba.md)
+- [过度依赖网络热梗会降低表达能力吗](zi-qiang-bu-xi.md)
 
 ## 站内推荐
 
-- [21世纪波兰依然被闪击](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
-- [去了一趟山西。](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
-- [小 兵 阿 嘎](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
-- [五分钟后年级查带手机](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
-- [高糖VS戒糖14天！真的差别很大吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
+- [小 兵 阿 嘎](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wu-gu-feng-deng.md)
+- [中国每8个新生儿就有1个在广东](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/po-fu-chen-zhou.md)
+- [付航脱口秀1000张黄牛票被拦](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/ye-gong-hao-long.md)
+- [同事合买彩票中大奖 购彩者不愿平分](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/cheng-men-li-xue.md)
+- [总有人说AI写出的作品带AI味，那AI味究竟是什么？难道AI就不能消除AI味吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yun-chou-wei-wo.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [我真有那么像外国人吗…!?](http://www.play.hengshemaoyi.cn/xiju/0097071.htm)
-- [一设计师称中国客厅已失去意义，反映了当下怎样的家庭生活变化？你家还有客厅吗，是怎样的？](http://www.daogukj.com/6917906)
-- [老人住每月4千养老院却因热射病离世](http://www.movie.hkepx.cn/xiju/5218004.htm)
-- [韩国：朝鲜发射多枚弹道导弹](http://www.play.hengshemaoyi.cn/xiju/0477759.htm)
-- [陕西省军区原司令员郭景洲逝世](http://www.play.hengshemaoyi.cn/kongbu/2496428.htm)
-- [多家公司/学校被曝限制职工/学生入厕，「上厕所自由」是从什么时候开始被剥夺的？](http://www.movie.hkepx.cn/xiju/3685062.htm)
-- [陶哲轩、邓煜等菲奖得主联合抗议 AI 公司数学军备竞赛，AI 是否在毁掉数学？](http://www.daogukj.com/3371182)
-- [为什么F1的马修是志愿工作却可以保质保量，中国赛车比赛能模仿这种「志愿」模式，而不是层层转包吗？](http://www.movie.hkepx.cn/movie/5235217.htm)
-- [郭富城两女儿成刘德华女儿校友](http://www.movie.hkepx.cn/movie/1065563.htm)
-- [住宅 低频噪音](http://www.movie.hkepx.cn/xiju/2385315.htm)
-- [如何看待博士生和导师能力的倒挂现象？](http://www.movie.hkepx.cn/movie/6775516.htm)
-- [25位菲尔兹奖得主：AI正毁掉数学](http://www.play.hengshemaoyi.cn/xiju/8315734.htm)
-- [「小白」鸿蒙7正式版来了：好用不只是一点点？](http://www.movie.hkepx.cn/movie/7363540.htm)
-- [公司中秋国庆连放13.5天发2000元](http://www.daogukj.com/cdxwsvlr/)
-- [去了一趟山西。](http://www.play.hengshemaoyi.cn/kongbu/0643388.htm)
-- [早春晴朗穿得太少了花絮](http://www.daogukj.com/2422126)
-- [小女孩越帮越忙大家笑翻](http://www.play.hengshemaoyi.cn/xiju/1647104.htm)
-- [五分钟后年级查带手机](http://www.daogukj.com/ndxvabom/)
-- [支付宝回应出现假APP](http://www.movie.hkepx.cn/xiju/4619435.htm)
-- [时代少年团单飞热度](http://www.play.hengshemaoyi.cn/kongbu/1101559.htm)
-- [杨幂玩梗说自己45岁](http://www.play.hengshemaoyi.cn/xiju/0629628.htm)
-- [LadyGaga疑似代孕](http://www.daogukj.com/ylpitmdd/)
-- [“救护中心圈养雪豹博流量”系谣言](http://www.daogukj.com/0425890)
-- [校长来啦](http://www.movie.hkepx.cn/movie/0711704.htm)
-- [流浪体验非遗簪花](http://www.play.hengshemaoyi.cn/kongbu/6688053.htm)
-- [周启豪不敌张本智和 国乒男单均出局](http://www.movie.hkepx.cn/xiju/8726337.htm)
-- [25位菲尔兹奖得主警告：AI正毁掉数学](http://www.movie.hkepx.cn/movie/4000033.htm)
-- [牛群沿河道缓步如金鱼水中游荡](http://www.play.hengshemaoyi.cn/kongbu/8129952.htm)
-- [普京称欧洲向乌派兵等于对俄开战](http://www.movie.hkepx.cn/xiju/6717823.htm)
-- [女子花20万买房车陪读上高中儿子](http://www.play.hengshemaoyi.cn/xiju/8207849.htm)
-- [普通人抱着“关你屁事，关我屁事”的态度生活，究竟会让自己越活越轻松，还是越活越艰难？](http://www.movie.hkepx.cn/xiju/7176754.htm)
-- [宁波大学开学典礼突降暴雨校长只讲3句话](http://www.movie.hkepx.cn/xiju/7103907.htm)
-- [菲尔兹奖得主称AI与数学正严重错位](http://www.daogukj.com/8480932)
-- [日本品牌选“918”跟辱华动漫搞联名](http://www.play.hengshemaoyi.cn/xiju/1324706.htm)
-- [为什么打到现在，伊朗还有能力反击美国？](http://www.movie.hkepx.cn/xiju/0777272.htm)
-- [中国驻日本大使馆调整对日签证规费，外交部表示是根据对等的原则作出的安排，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/7917314.htm)
-- [2026征战世界杯的女篮运动员们，赛后都是怎么做体能恢复的？有什么科学指导吗？](http://www.play.hengshemaoyi.cn/kongbu/1468319.htm)
-- [21世纪波兰依然被闪击](http://www.movie.hkepx.cn/xiju/5876017.htm)
-- [加拿大一向很听美国的话，这次怎么敢真的和美国打贸易战？](http://www.daogukj.com/gawltyww/)
-- [宁波大学开学典礼暴雨 校长只讲3句话](http://www.daogukj.com/khvkrhhm/)
-- [美国再陷入9·11后海外持久战困境](http://www.daogukj.com/ohmyjicx/)
-- [男孩不爱喝牛奶在早餐店销赃](http://www.movie.hkepx.cn/movie/8333714.htm)
-- [【独家】《百日成王》第24集 还有人在等着我【7月国创】](http://www.play.hengshemaoyi.cn/kongbu/2515788.htm)
-- [我靠做数独解决了10000起谋杀案！！](http://www.movie.hkepx.cn/xiju/3206850.htm)
-- [杨幂上线回复祝福](http://www.movie.hkepx.cn/xiju/8109403.htm)
-- [泰国网红僧侣已被还俗剥夺僧籍](http://www.daogukj.com/7843554)
-- [2026服贸会 “新”在何处](http://www.play.hengshemaoyi.cn/xiju/1200735.htm)
-- [经典镜头竟是演员下意识反应！有的是意外，有的也是导演真缺德！](http://www.play.hengshemaoyi.cn/xiju/9587905.htm)
-- [周启豪输张本智和 男单澳门站全淘汰](http://www.movie.hkepx.cn/movie/0046131.htm)
-- [如何评价俄罗斯将历史上击败金帐汗国的圣人遗骸送往前线鼓舞士气？](http://www.movie.hkepx.cn/movie/8441677.htm)
+- [房东买烤肠转了20000元转身就走](http://www.play.hengshemaoyi.cn/xiju/0097071.htm)
+- [《阴阳师》十周年庆典现已开启丨送你这样好的「石莲金」](http://www.daogukj.com/6917906)
+- [茶叶蛋vs白煮蛋](http://www.movie.hkepx.cn/xiju/5218004.htm)
+- [汽车为什么长期采用方向盘而不是操纵杆？](http://www.play.hengshemaoyi.cn/xiju/0477759.htm)
+- [北大硕士因本科非北大年薪被降5万](http://www.play.hengshemaoyi.cn/kongbu/2496428.htm)
+- [打假网红铁头一审获刑8年](http://www.movie.hkepx.cn/xiju/3685062.htm)
+- [湖南小学生梦游坠楼砸中宝马车定损近5万元，家长从主动赔偿转为用拆车件维修并删视频，你怎么看这种转变？](http://www.daogukj.com/3371182)
+- [21世纪波兰依然被闪击](http://www.movie.hkepx.cn/movie/5235217.htm)
+- [3个方法把阳气“养”回来](http://www.movie.hkepx.cn/movie/1065563.htm)
+- [如何批评下属才能让他心服口服并改进？](http://www.movie.hkepx.cn/xiju/2385315.htm)
+- [回访篇：当年改造的家，现在怎么样了【梦想改造家 第13季】](http://www.movie.hkepx.cn/movie/6775516.htm)
+- [凡人修仙传动漫191集观众满意吗？](http://www.play.hengshemaoyi.cn/xiju/8315734.htm)
+- [WTT澳门冠军赛男单1/4决赛，周启豪1-4张本智和，无缘 4 强，男单全部被淘汰，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/7363540.htm)
+- [必须查清烧烤店两个月被查15次](http://www.daogukj.com/cdxwsvlr/)
+- [中国每8个新生儿就有1个在广东](http://www.play.hengshemaoyi.cn/kongbu/0643388.htm)
+- [走进印度首都新德里](http://www.daogukj.com/2422126)
+- [“人们常常在夏天结束时，回忆那些美好的时光... ”【Shawdow of the sun】【夏天结束の小曲】](http://www.play.hengshemaoyi.cn/xiju/1647104.htm)
+- [同事合买彩票中大奖 购彩者不愿平分](http://www.daogukj.com/ndxvabom/)
+- [台湾空姐鹤岗3万买房半退休](http://www.movie.hkepx.cn/xiju/4619435.htm)
+- [为什么很多家长特别爱转视频号当自己的「嘴替」来教育孩子？](http://www.play.hengshemaoyi.cn/kongbu/1101559.htm)
+- [小酒窝说朵朵转学了](http://www.play.hengshemaoyi.cn/xiju/0629628.htm)
+- [孙燕姿回应演唱会摔倒：没有大碍](http://www.daogukj.com/ylpitmdd/)
+- [曝有公司挖时代峰峻艺人](http://www.daogukj.com/0425890)
+- [中国男篮105比59大胜巴林](http://www.movie.hkepx.cn/movie/0711704.htm)
+- [六小龄童张一山演师徒](http://www.play.hengshemaoyi.cn/kongbu/6688053.htm)
+- [男孩不爱喝牛奶在早餐店销赃](http://www.movie.hkepx.cn/xiju/8726337.htm)
+- [雷军现身徐州 给首批车主开车门](http://www.movie.hkepx.cn/movie/4000033.htm)
+- [江西一小学食堂让孩子在菜谱墙上投票，选上什么菜食堂就做什么菜，把点菜权交给孩子是好事吗？适合推广吗？](http://www.play.hengshemaoyi.cn/kongbu/8129952.htm)
+- [iPhoneDuo溢价至79999元](http://www.movie.hkepx.cn/xiju/6717823.htm)
+- [付航脱口秀1000张黄牛票无法入场](http://www.play.hengshemaoyi.cn/xiju/8207849.htm)
+- [五分钟后年级查带手机](http://www.movie.hkepx.cn/xiju/7176754.htm)
+- [支付宝回应出现假APP](http://www.movie.hkepx.cn/xiju/7103907.htm)
+- [俄媒发布接机普京“印度运镜”视频](http://www.daogukj.com/8480932)
+- [支付宝 假APP](http://www.play.hengshemaoyi.cn/xiju/1324706.htm)
+- [年轻夫妻吵架赌气把婴儿留在法庭](http://www.movie.hkepx.cn/xiju/0777272.htm)
+- [耗费200小时，雕刻二游先帝的十周年女神](http://www.play.hengshemaoyi.cn/kongbu/7917314.htm)
+- [普京：西方为重夺主导地位不择手段](http://www.play.hengshemaoyi.cn/kongbu/1468319.htm)
+- [小 兵 阿 嘎](http://www.movie.hkepx.cn/xiju/5876017.htm)
+- [去了一趟山西。](http://www.daogukj.com/gawltyww/)
+- [大连市长李强履新大连市委书记](http://www.daogukj.com/khvkrhhm/)
+- [法考](http://www.daogukj.com/ohmyjicx/)
+- [中国男篮狂胜巴林46分](http://www.movie.hkepx.cn/movie/8333714.htm)
+- [OpenAI将暂停pro200美元档的订阅，这将带来怎样的影响？](http://www.play.hengshemaoyi.cn/kongbu/2515788.htm)
+- [张雪比赛中失误不断 调侃车行人不行](http://www.movie.hkepx.cn/xiju/3206850.htm)
+- [经典镜头竟是演员下意识反应！有的是意外，有的也是导演真缺德！](http://www.movie.hkepx.cn/xiju/8109403.htm)
+- [公职人员醉驾撞死一对夫妻 已被刑拘](http://www.daogukj.com/7843554)
+- [多项指标见证中国经济活力](http://www.play.hengshemaoyi.cn/xiju/1200735.htm)
+- [李现回家宠粉](http://www.play.hengshemaoyi.cn/xiju/9587905.htm)
+- [河南一高中为 50 名教师发 180 万高考奖励资金，对教师积极性和教育质量带来哪些影响？值得推广吗？](http://www.movie.hkepx.cn/movie/0046131.htm)
+- [什么叫你往mc添加了整套拼豆系统？](http://www.movie.hkepx.cn/movie/8441677.htm)
 
 </details>
 
 ## 原始来源
 
-- [武汉没订奶学生“站后排喝水”：“刚好”不能成万能解释，一句“刚好” 堵不住所有追问](https://b23.tv/BV1TnYE67ELN)
+- [菲尔兹奖得主称AI与数学正严重错位](https://s.weibo.com/weibo?q=%E8%8F%B2%E5%B0%94%E5%85%B9%E5%A5%96%E5%BE%97%E4%B8%BB%E7%A7%B0AI%E4%B8%8E%E6%95%B0%E5%AD%A6%E6%AD%A3%E4%B8%A5%E9%87%8D%E9%94%99%E4%BD%8D)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e388a2623bebd334870c -->
+<!-- content-fingerprint: fd75d2d4667e97b1b18a -->
