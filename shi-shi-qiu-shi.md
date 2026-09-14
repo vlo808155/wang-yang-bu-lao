@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 《魔兽世界：永恒》11 月 4 日上线，其作为「怀旧服+」会给游戏带来哪些影响？
+# 如何看待张国伟疑似评价刘翔事件，称「国内国外不一样，自己花钱我绝不会练体育，别断了贫穷孩子上升途径」？
 
-> 来源：知乎热榜 · 排名：第 16 位 · 热度：103 万热度 · 分类：问答 · 更新：2026-09-14T09:31:25+08:00
+> 来源：知乎热榜 · 排名：第 16 位 · 热度：122 万热度 · 分类：问答 · 更新：2026-09-14T14:55:26+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“《魔兽世界：永恒》11 月 4 日上线，其作为「怀旧服+」会给游戏带来哪些影响？”位列第 16 位，公开热度指标为 103 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待张国伟疑似评价刘翔事件，称「国内国外不一样，自己花钱我绝不会练体育，别断了贫穷孩子上升途径」？”位列第 16 位，公开热度指标为 122 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2026暴雪嘉年华正在进行中，暴雪正式公布全新独立企划《魔兽世界：永恒》，游戏定于2026年11月4日上线。官方在发布会上打出“在传奇世界中，开拓属于你的崭新征途”的宣传语，并确认《魔兽世界：永恒》将以经典60级版本的艾泽拉斯为基础，在原有世界观之上开辟一条全新的平行剧情线，也被视为暴雪官方对于“Classic+”模式的一次正式尝试。与单纯复刻旧版本不同，《魔兽世界：永恒》将在保留经典版本核心体验的同时加入大量全新内容。游戏依旧采用《魔兽世界》常规月卡订阅模式，玩家无需额外购买独立客户端或本体激活资格。此外，《魔兽世界：永恒》与此前限时开放的探索赛季有所
+来源公开摘要显示：9月12日，跳高名将张国伟在微博连续发布两条动态，谈及国内竞技体育的培养模式，因发文时间正处于刘翔退役安置事件的舆论热议期，被大量网友解读为隔空回应相关争议。 张国伟在第一条博文中对比了国内外体育的培养逻辑：“国内和国外的体育是不一样的，国外是自己花钱。国内是国家培养。如果是自己花钱练体育我肯定不会练的。我家也没那么多钱来支持我。更不会有今天的成就。”数小时后他再度发文补充：“别断了很多贫穷孩子的上升途径。” 近期，刘翔的退役安置事件持续引发全网讨论。8月底，刘翔公开表示上海体育局要求其在“留任执教”和“身份买断” 之间二选一，事件随后不断发酵。9月1日
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [那些年为了听歌做过的事？你中了几个？也许那首歌才能带我们回到过去。。。](chi-zhi-yi-heng.md)
-- [公职人员醉驾撞死夫妻 事发监控曝光](jian-ren-bu-ba.md)
-- [张本美和说一直没有赢过孙颖莎](zi-qiang-bu-xi.md)
-- [iPhone Duo在印度售价比美国高57%](fen-fa-tu-qiang.md)
+- [端倪](chi-zhi-yi-heng.md)
+- [英国的大麻烦来了](jian-ren-bu-ba.md)
+- [罗永浩 野人先生西贝](zi-qiang-bu-xi.md)
+- [中国博士真的“过剩”了吗](fen-fa-tu-qiang.md)
 
 ## 站内推荐
 
-- [人民日报曝光后 苏州市委表态：严查](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [胖东来新招工准则：合同4年不续签](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [60岁渔民落水失踪11天奇迹回家](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [为什么扎根西北的兰州大学，没有吃到「工科苦行僧」审美的红利？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [不少网友痴迷看单集几分钟、充满反转与爽点的 AI 短剧，你会看 AI 短剧成瘾吗？看多了会有哪些影响？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [五指山停课停工停业停产停运](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [iPhone18Pro价格被打下来了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [纽约地铁站一对男女静坐轨道被撞身亡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [两部门联合通报六起地方政府隐性债务追责问责典型案例，这将如何影响地方政府财政管理？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [中国餐馆的利润大部分来源于酒水吗？如果是的话，为什么？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [大学生生活费才3000](http://www.movie.hkepx.cn/xiju/7278435.htm)
-- [【假装讲电影】笑死！黑帮集体跳槽干物业！结果发现物业更黑啊！！！](http://www.daogukj.com/eaozjceu/)
-- [彭小苒直播穿的衣服](http://www.daogukj.com/xtfvegvn/)
-- [上5休1上5休3上3休7上3休1](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
-- [成都一越野车高架上坠落致1死1伤](http://www.daogukj.com/fkuewdzb/)
-- [渔民落水11天后事都办了 人回来了](http://www.movie.hkepx.cn/xiju/4307844.htm)
-- [黄灿灿103斤被粉丝说太胖了](http://www.daogukj.com/8791893)
-- [我国从来没有第一学历这个概念](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
-- [「吉田凛·雷之律者」实机演示 | 9月11日登场，雳霆裁诏，狂雷涤罪！](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
-- [公职人员醉驾撞死夫妻 事发监控曝光](http://www.daogukj.com/2165140)
-- [你为什么不喜欢英剧《神探夏洛克》？](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
-- [井柏然孙千体面](http://www.movie.hkepx.cn/xiju/1440611.htm)
-- [人民日报曝光后 苏州市委表态：严查](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
-- [井柏然送孙千的衣服代言人是刘雯](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
-- [寻找“金砖温度”的答案](http://www.daogukj.com/9837121)
-- [演唱会女生拒绝男友亲吻转头亲闺蜜](http://www.movie.hkepx.cn/movie/5334415.htm)
-- [网红墙绘孤独少女被围挡增添孤寂感](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
-- [市委书记多次称前面的债凭什么我还](http://www.movie.hkepx.cn/movie/2391374.htm)
-- [为什么扎根西北的兰州大学，没有吃到「工科苦行僧」审美的红利？](http://www.movie.hkepx.cn/movie/4276791.htm)
-- [如何看待Anthropic、马斯克等顶级 AI 公司呼吁控制前沿 AI 发展节奏？为啥在此时喊减速？](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
-- [胖东来新招工准则：合同4年不续签](http://www.daogukj.com/6612016)
-- [16 岁中国小将孙心然夺得美网青少年组女单冠军，怎样评价她的表现？她未来的潜力如何？](http://www.movie.hkepx.cn/movie/4045624.htm)
-- [【1818黄金眼】女会员的健身照 店长发朋友圈引流？](http://www.daogukj.com/9217972)
-- [透过服贸会，外资抢抓三大新机遇](http://www.daogukj.com/eecjrkxr/)
-- [内存显卡什么时候回归正常价格啊？](http://www.movie.hkepx.cn/xiju/0864553.htm)
-- [在读75万 中国博士真的过剩了吗](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
-- [“次抛衣”走红](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
-- [英超官方：哈兰德进球应无效](http://www.daogukj.com/chnejvmg/)
-- [《原神》六周年配音演员祝福-「循音致远的足迹」](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
-- [韩国股市放大招](http://www.daogukj.com/dmyshqkp/)
-- [货车忘拉手刹失控横扫路边众摊位](http://www.daogukj.com/hxjdxwxy/)
-- [吃一把拇指西瓜以为香甜爆汁，结果……【主播说三农】](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
-- [星宇股份被曝产业园接近 90% 的工人都是劳务派遣临时工，真的是这样吗？](http://www.movie.hkepx.cn/movie/5093289.htm)
-- [自驾穿越美国加州，遭遇野生黑熊，住进绿皮书里汽车hotel](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
-- [香飘飘筹备开9家线下门店](http://www.movie.hkepx.cn/movie/7746903.htm)
-- [十赌九输](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
-- [斑海豹娜娜耗时6天独自游回大长山岛](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
-- [不少网友痴迷看单集几分钟、充满反转与爽点的 AI 短剧，你会看 AI 短剧成瘾吗？看多了会有哪些影响？](http://www.daogukj.com/2551047)
-- [曝巴军歼10涂刷击落“阵风”标志](http://www.daogukj.com/7700423)
-- [如何看待苏格兰、威尔士和北爱尔兰的领导人将共商民族自决权利？会导致英国分裂解体吗？](http://www.daogukj.com/0062100)
-- [特大暴雨来了：川渝华南将大范围多阴雨，新台风酝酿或中秋前靠近](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
-- [克拉克赛后更推：世界杯金牌得主](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
-- [如何看待津巴布韦禁止出口钨和锑](http://www.daogukj.com/qzcflnda/)
-- [《听见你的心声》05我能听见我的初恋在想什么。老师……你拉链真的开了。本故事纯属虚构，请相信科学。](http://www.movie.hkepx.cn/movie/1098440.htm)
-- [iPhone Duo在印度售价比美国高57%](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
-- [如何看待于东来发文称胖东来再招员工都是学员性质，合同四年，不续签？意味着什么？](http://www.daogukj.com/2428628)
-- [举报元青花杯失踪烧烤店主改卖红薯](http://www.daogukj.com/uftxwefl/)
-- [专家：台湾是晚清全国近代化先进省份](http://www.movie.hkepx.cn/movie/6056833.htm)
-- [LPL 2026 赛季季后赛总决赛 AL 3:1 击败 BLG 夺得总冠军，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
-- [比亚迪将在高速上建成2000座闪充站](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
+- [人无法写出自己没经历过的事](http://www.movie.hkepx.cn/xiju/7278435.htm)
+- [那些年为了听歌做过的事？你中了几个？也许那首歌才能带我们回到过去。。。](http://www.daogukj.com/eaozjceu/)
+- [举报元青花杯失踪烧烤店主改卖红薯](http://www.daogukj.com/xtfvegvn/)
+- [野人先生 冷处理](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
+- [江南布衣一边挨骂一边狂卖60亿](http://www.daogukj.com/fkuewdzb/)
+- [贾跃亭要一口气发布9款机器人](http://www.movie.hkepx.cn/xiju/4307844.htm)
+- [李一桐曾半年胖了30斤](http://www.daogukj.com/8791893)
+- [印度外交官峰会吃坚果舔手指](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
+- [媒体称 12345 话务员多为外包，是真的吗？会影响政务服务质量与效率吗？如何保障诉求被真正解决？](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
+- [英国的大麻烦来了](http://www.daogukj.com/2165140)
+- [《淘汰回放》](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
+- [雷军现身B站总部](http://www.movie.hkepx.cn/xiju/1440611.htm)
+- [五指山停课停工停业停产停运](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
+- [特朗普：可以接受中国车企在美建厂](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
+- [词元出海怎么实现？服贸会上有答案](http://www.daogukj.com/9837121)
+- [燃油车为何有点卖不动了](http://www.movie.hkepx.cn/movie/5334415.htm)
+- [俄罗斯军列满载新坦克运往前线](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
+- [“涨工资”的三重信号](http://www.movie.hkepx.cn/movie/2391374.htm)
+- [两部门联合通报六起地方政府隐性债务追责问责典型案例，这将如何影响地方政府财政管理？](http://www.movie.hkepx.cn/movie/4276791.htm)
+- [50岁女子坚持锻炼练出6块腹肌](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
+- [iPhone18Pro价格被打下来了](http://www.daogukj.com/6612016)
+- [沙特求援后，美国为何拒绝直接对胡塞出兵？](http://www.movie.hkepx.cn/movie/4045624.htm)
+- [【2026LPL第三赛段】9月13日 BLG vs AL](http://www.daogukj.com/9217972)
+- [千里沃野夺秋收](http://www.daogukj.com/eecjrkxr/)
+- [郭柯宇坦言上再见爱人是因为没有工作](http://www.movie.hkepx.cn/xiju/0864553.htm)
+- [南昌地铁 逃票](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
+- [央视评“HYROX选手赛场失禁”](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
+- [带赛车搭子试驾智界RX，他会下订吗？](http://www.daogukj.com/chnejvmg/)
+- [【假装讲电影】笑死！黑帮集体跳槽干物业！结果发现物业更黑啊！！！](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
+- [心动的信号](http://www.daogukj.com/dmyshqkp/)
+- [花钱买罪受的Hyrox为何流行](http://www.daogukj.com/hxjdxwxy/)
+- [什么是洲同学？洲同学就是洲同学！](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
+- [陈小春唱响《大东北是我的家乡》](http://www.movie.hkepx.cn/movie/5093289.htm)
+- [如何看待苏格兰、威尔士和北爱尔兰的领导人将共商民族自决权利？会导致英国分裂解体吗？](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
+- [原来体制内的工作留痕天花板长这样](http://www.movie.hkepx.cn/movie/7746903.htm)
+- [全球变暖正在让西北变江南，都在往好的方向发展，为什么还有这么多人认为变暖弊大于利？](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
+- [浙大开学典礼一教授因飘逸刘海走红](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
+- [中国餐馆的利润大部分来源于酒水吗？如果是的话，为什么？](http://www.daogukj.com/2551047)
+- [你为什么不喜欢英剧《神探夏洛克》？](http://www.daogukj.com/7700423)
+- [网民造谣商业街发生枪战被拘](http://www.daogukj.com/0062100)
+- [《地狱之家》改编自粉丝真实经历](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
+- [英国 分裂](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
+- [男子10块钱衣服穿20年却自费30万支教](http://www.daogukj.com/qzcflnda/)
+- [《你以为的支教只教课时，但实际上...》](http://www.movie.hkepx.cn/movie/1098440.htm)
+- [中国博士真的“过剩”了吗](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
+- [为什么学校总要求低年级的学生包书皮呢？](http://www.daogukj.com/2428628)
+- [中国有1.26亿只“毛孩子”](http://www.daogukj.com/uftxwefl/)
+- [陈小春演唱会退场站箱子里被推着走](http://www.movie.hkepx.cn/movie/6056833.htm)
+- [军机处这种临时指挥机构这么好用，为何现代没有国家采用了？](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
+- [中国男篮44分复仇菲律宾](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
 
 </details>
 
 ## 原始来源
 
-- [《魔兽世界：永恒》11 月 4 日上线，其作为「怀旧服+」会给游戏带来哪些影响？](https://www.zhihu.com/question/2082311421673616444)
+- [如何看待张国伟疑似评价刘翔事件，称「国内国外不一样，自己花钱我绝不会练体育，别断了贫穷孩子上升途径」？](https://www.zhihu.com/question/2082325621686924902)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e929852199f9fbb53e76 -->
+<!-- content-fingerprint: b53508c05d90e1d00360 -->
