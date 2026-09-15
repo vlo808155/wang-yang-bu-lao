@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 南昌地铁通报3人钻闸机逃票
+# 卫龙进口魔芋粉检出二氧化硫超标，客服表示不合格原料已退回，对人体会产生什么影响？其环节存在哪些问题？
 
-> 来源：今日头条热榜 · 排名：第 15 位 · 热度：5603919 · 分类：新进展 · 更新：2026-09-15T08:37:24+08:00
+> 来源：知乎热榜 · 排名：第 15 位 · 热度：202 万热度 · 分类：问答 · 更新：2026-09-15T13:22:22+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“南昌地铁通报3人钻闸机逃票”位列第 15 位，公开热度指标为 5603919，榜单分类为“新进展”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“卫龙进口魔芋粉检出二氧化硫超标，客服表示不合格原料已退回，对人体会产生什么影响？其环节存在哪些问题？”位列第 15 位，公开热度指标为 202 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，记者就卫龙魔芋粉超标一事致电客服，对方表示将记录反馈，截至发稿未获回复。此前，海关总署披露2026年7月全国未准入境食品信息：河南卫龙食品企业电商发展有限公司进口的162吨印度尼西亚产魔芋粉，在青岛口岸因二氧化硫超标被通报。‌‌ 卫龙162吨进口魔芋粉二氧化硫超标被通报，客服称未用于任何产品_网易订阅https://www.163.com/dy/article/L6PT5Q2C0519DFFO.html
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新进展`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [广汽集团发布公告，筹划购买一汽股份持有的某整车合资公司部分股权，会带来哪些影响？](qu-chang-bu-duan.md)
-- [猫师傅进城第一天，没钱住店却遇见了一群好人](jing-yi-qiu-jing.md)
-- [95后清华核科技女博士当村支书](jiao-ta-shi-di.md)
-- [井柏然边界感](shi-shi-qiu-shi.md)
+- [日本年轻人开始流行“梅毒妆”：身上点满红斑，假装自己感染了](qu-chang-bu-duan.md)
+- [原来含糖饮料喝一瓶就超标](jing-yi-qiu-jing.md)
+- [2026亚运会乒乓球](jiao-ta-shi-di.md)
+- [娃哈哈虎林工厂房产被法院查封](shi-shi-qiu-shi.md)
 
 ## 站内推荐
 
-- [美股](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [猕猴桃是全世界最团结的水果](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [郑合惠子一出场刘学义都变帅了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [刘学义郑合惠子 cp感玄学](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [日本首相高市早苗将于17日改组内阁](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [演唱会求婚事件后排观众发声](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [微信AI 隐私](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [伊朗称击毁一架MQ-1无人机](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [罗永浩吐槽后，野人先生沉默被夸听劝，西贝硬刚被指陷入自证，沉默一定安全吗？面对质疑，怎么判断是否回应？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [日本为啥很少有米线之类的米加工品？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [牛肉价格持续上涨](http://www.daogukj.com/elzxddpw/)
-- [李一桐用8公斤水杯喝水](http://www.movie.hkepx.cn/movie/1864442.htm)
-- [全键盘版“阔直板”手机爆火](http://www.play.hengshemaoyi.cn/xiju/5288873.htm)
-- [Anthropic一研究员辞职示警称AI可能在未来十年内毁灭人类，巨头拿人类生命作赌，如何看待该观点？](http://www.daogukj.com/1789946)
-- [“南北丰田”有望合并](http://www.play.hengshemaoyi.cn/xiju/7002266.htm)
-- [如何看待东南大学电子学院预推免结果，高绩点保研本院失败，顶尖学院为何「看不上」自己培养的学生？](http://www.daogukj.com/7327475)
-- [自称演唱会求婚事件当事人发声](http://www.movie.hkepx.cn/xiju/9951548.htm)
-- [广汽集团 资产重组](http://www.movie.hkepx.cn/xiju/1674151.htm)
-- [王一博 acne](http://www.play.hengshemaoyi.cn/kongbu/9814810.htm)
-- [女子散步时被蝙蝠撞到脸，连夜打狂犬病疫苗，医生：直接接触蝙蝠 无论有无伤口，即判定为狂犬病III级暴露，一旦发病死亡率是100%](http://www.daogukj.com/6006131)
-- [iOS27更新九大看点](http://www.movie.hkepx.cn/movie/5825798.htm)
-- [生逢其时](http://www.movie.hkepx.cn/movie/4511611.htm)
-- [2026年下半年了，你认为codex已经超越claude code了吗？](http://www.play.hengshemaoyi.cn/xiju/7118308.htm)
-- [猫师傅进城第一天，没钱住店却遇见了一群好人](http://www.movie.hkepx.cn/movie/3210477.htm)
-- [全球最大每周车展创始人车祸身亡](http://www.movie.hkepx.cn/movie/1427819.htm)
-- [当AI巨头开始要求减速](http://www.daogukj.com/ulhauueh/)
-- [AI降速呼声重挫芯片股](http://www.movie.hkepx.cn/xiju/7426025.htm)
-- [黑龙江黑河口岸今年出入境旅客破百万](http://www.daogukj.com/6828552)
+- [电池税正式落地对新能源车意味着什么](http://www.daogukj.com/elzxddpw/)
+- [10 年期美债突破「5% 收益率关口」，全球债市抛售潮是否将加速，加息预期下的市场何去何从？](http://www.movie.hkepx.cn/movie/1864442.htm)
+- [男子苦钓三天钓起118斤大青鱼](http://www.play.hengshemaoyi.cn/xiju/5288873.htm)
+- [新三国up锐评楚汉传奇18：我真是枉为我项梁啊！](http://www.daogukj.com/1789946)
+- [塔克拉玛干沙漠发现大型水源](http://www.play.hengshemaoyi.cn/xiju/7002266.htm)
+- [这个“合订本”让日本人气坏了](http://www.daogukj.com/7327475)
+- [涉嫌猎杀玳瑁中国籍教练发声](http://www.movie.hkepx.cn/xiju/9951548.htm)
+- [iOS27首批用户反馈](http://www.movie.hkepx.cn/xiju/1674151.htm)
+- [于东来回应“四年合同制”](http://www.play.hengshemaoyi.cn/kongbu/9814810.htm)
+- [黄仁勋峰会现场接到川普电话](http://www.daogukj.com/6006131)
+- [无人机钓鱼“力气太小”坠河](http://www.movie.hkepx.cn/movie/5825798.htm)
+- [汽车去掉轮子之后车企去干什么了](http://www.movie.hkepx.cn/movie/4511611.htm)
+- [全网首发！二周年彩蛋解密完成！每个鸟窝都是入口！难度大大降低！这些东西速买！要爆！](http://www.play.hengshemaoyi.cn/xiju/7118308.htm)
+- [原来含糖饮料喝一瓶就超标](http://www.movie.hkepx.cn/movie/3210477.htm)
+- [肖战孙菲菲 VOGUE银十](http://www.movie.hkepx.cn/movie/1427819.htm)
+- [「员工裸奔拉屎事件」起因是办离职时间没达成一致，为什么会在这一环节有矛盾？一般会走怎样的申诉沟通渠道？](http://www.daogukj.com/ulhauueh/)
+- [韩路谈华为赛力斯合作模式调整](http://www.movie.hkepx.cn/xiju/7426025.htm)
+- [如何看待 DeepSeek 刘胜与的《我不得不把才华埋葬在昨天》？](http://www.daogukj.com/6828552)
 - [网友说再高端的场所给服务人员低工资也是低端场所，你怎么看这一说法？](http://www.daogukj.com/4846063)
-- [演唱会求婚当事人称已报警](http://www.play.hengshemaoyi.cn/xiju/1115121.htm)
-- [Re：从零开始的异世界学园生活·序](http://www.movie.hkepx.cn/xiju/5458697.htm)
-- [短剧行业出现大量抄袭， AI 几分钟就能抄出一部剧，月薪几千的原创编剧还有未来吗？](http://www.movie.hkepx.cn/xiju/7970452.htm)
-- [兰香如故把男主改成处男](http://www.daogukj.com/7831492)
-- [王毅：希望法方恪守一个中国原则](http://www.movie.hkepx.cn/movie/0165285.htm)
-- [报告称72%成年人未达适宜饮水量](http://www.play.hengshemaoyi.cn/kongbu/1576216.htm)
-- [面试完才懂关系户有多动人](http://www.play.hengshemaoyi.cn/kongbu/0352211.htm)
-- [【萌黄一槽】夺走你的心！角都[晓·北]全技能爆料](http://www.daogukj.com/skxlcqbv/)
-- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](http://www.play.hengshemaoyi.cn/kongbu/8194557.htm)
-- [亲证](http://www.play.hengshemaoyi.cn/xiju/8022096.htm)
-- [有哪些小时候的科学常识现在被证实是伪知识？](http://www.movie.hkepx.cn/xiju/7214601.htm)
-- [时代峰峻](http://www.daogukj.com/nvgfhrus/)
-- [平陆运河挖出的土石方去哪了](http://www.movie.hkepx.cn/xiju/2289573.htm)
-- [《魔兽争霸3》，听说魔兽出了新英雄，来检测一下它的实力如何](http://www.play.hengshemaoyi.cn/kongbu/7073818.htm)
-- [苹果回应iPhone 18 Pro破发](http://www.play.hengshemaoyi.cn/kongbu/3209429.htm)
-- [Anthropic前研究员再谈AI风险](http://www.play.hengshemaoyi.cn/kongbu/4786157.htm)
-- [锵锵锵](http://www.movie.hkepx.cn/xiju/4895855.htm)
-- [于东来回应“四年合同制”](http://www.play.hengshemaoyi.cn/kongbu/0234862.htm)
-- [父亲撞死人儿子顶包 全家串供掩盖](http://www.daogukj.com/1476559)
-- [驯化西瓜：一颗苦涩有毒的野瓜，如何成为世界顶流](http://www.play.hengshemaoyi.cn/kongbu/3024566.htm)
-- [自民党琉球狂胜 民众对日美的反抗要落幕了吗？](http://www.movie.hkepx.cn/xiju/4214569.htm)
-- [程序员为干私活腾空间 17 小时删光公司 89TB 数据，获刑五年十个月，暴露出哪些问题？](http://www.play.hengshemaoyi.cn/kongbu/1465165.htm)
-- [日本首相高市早苗将于17日改组内阁](http://www.daogukj.com/0876342)
-- [iOS27流畅度大增](http://www.play.hengshemaoyi.cn/kongbu/5523593.htm)
-- [演唱会求婚 别把没素质当仪式感](http://www.movie.hkepx.cn/xiju/7093896.htm)
-- [美股](http://www.movie.hkepx.cn/movie/2906304.htm)
-- [刘翔口口声声说的“第三条路”到底是什么？](http://www.play.hengshemaoyi.cn/kongbu/6007147.htm)
-- [和五月天阿信见了他](http://www.play.hengshemaoyi.cn/xiju/5236793.htm)
-- [井柏然边界感](http://www.daogukj.com/5178271)
-- [日本为啥很少有米线之类的米加工品？](http://www.play.hengshemaoyi.cn/kongbu/4327189.htm)
-- [最成功的“魔改”，恰恰背叛了原著？160年了，爱丽丝为什么总在被改写？【万字拉片】《爱丽丝梦游仙境》P1](http://www.daogukj.com/3659644)
+- [女婴身亡月子中心产妇全部搬离](http://www.play.hengshemaoyi.cn/xiju/1115121.htm)
+- [特朗普急了 致电黄仁勋斥责AI危险论](http://www.movie.hkepx.cn/xiju/5458697.htm)
+- [最成功的“魔改”，恰恰背叛了原著？160年了，爱丽丝为什么总在被改写？【万字拉片】《爱丽丝梦游仙境》P1](http://www.movie.hkepx.cn/xiju/7970452.htm)
+- [Anthropic一研究员辞职示警称AI可能在未来十年内毁灭人类，巨头拿人类生命作赌，如何看待该观点？](http://www.daogukj.com/7831492)
+- [如何看待东南大学电子学院预推免结果，高绩点保研本院失败，顶尖学院为何「看不上」自己培养的学生？](http://www.movie.hkepx.cn/movie/0165285.htm)
+- [自主品牌集体造“9系”，国产旗舰到底在卷什么？【阿Test正经比比】](http://www.play.hengshemaoyi.cn/kongbu/1576216.htm)
+- [保险公司花钱雇人开会称为了报销](http://www.play.hengshemaoyi.cn/kongbu/0352211.htm)
+- [曝姆巴佩与登贝莱彻底决裂](http://www.daogukj.com/skxlcqbv/)
+- [《你以为的支教只教课时，但实际上...》](http://www.play.hengshemaoyi.cn/kongbu/8194557.htm)
+- [驯化西瓜：一颗苦涩有毒的野瓜，如何成为世界顶流](http://www.play.hengshemaoyi.cn/xiju/8022096.htm)
+- [历史教授为什么不愿碰元史？](http://www.movie.hkepx.cn/xiju/7214601.htm)
+- [这4个瞬间父母务必站在孩子这边](http://www.daogukj.com/nvgfhrus/)
+- [如何评价在魔兽争霸3虫豸制最新DLC《被遗忘者王国》中，前联盟大元帅加里瑟斯被做成了憎恶缝合怪？](http://www.movie.hkepx.cn/xiju/2289573.htm)
+- [本科生扎堆回炉读技校](http://www.play.hengshemaoyi.cn/kongbu/7073818.htm)
+- [塔克拉玛干沙漠发现大型地下水水源](http://www.play.hengshemaoyi.cn/kongbu/3209429.htm)
+- [《魔兽争霸 3 重制版》新 DLC 获盛赞，暴雪在 RTS 领域「找回状态」了吗？](http://www.play.hengshemaoyi.cn/kongbu/4786157.htm)
+- [被嫌弃的手臂赘肉是“长寿肉”](http://www.movie.hkepx.cn/xiju/4895855.htm)
+- [刘翔口口声声说的“第三条路”到底是什么？](http://www.play.hengshemaoyi.cn/kongbu/0234862.htm)
+- [关晓彤演白化病人眼球轻颤](http://www.daogukj.com/1476559)
+- [卫健委新出生人口800万左右](http://www.play.hengshemaoyi.cn/kongbu/3024566.htm)
+- [国家卫健委呼吁大家要多锻炼](http://www.movie.hkepx.cn/xiju/4214569.htm)
+- [什么是洲同学？洲同学就是洲同学！](http://www.play.hengshemaoyi.cn/kongbu/1465165.htm)
+- [日本为啥很少有米线之类的米加工品？](http://www.daogukj.com/0876342)
+- [交警教科书式执法视频获大量网友点赞](http://www.play.hengshemaoyi.cn/kongbu/5523593.htm)
+- [中国人保集团原副总裁于泽被公诉](http://www.movie.hkepx.cn/xiju/7093896.htm)
+- [演唱会求婚事件后排观众发声](http://www.movie.hkepx.cn/movie/2906304.htm)
+- [《地狱之家》改编自粉丝真实经历](http://www.play.hengshemaoyi.cn/kongbu/6007147.htm)
+- [全球疯抢钨 中国手握八成产量](http://www.play.hengshemaoyi.cn/xiju/5236793.htm)
+- [娃哈哈虎林工厂房产被法院查封](http://www.daogukj.com/5178271)
+- [8岁女童被男孩推倒后用电话手表报警](http://www.play.hengshemaoyi.cn/kongbu/4327189.htm)
+- [“四川芬达”恶搞杨坤被判赔31.5万](http://www.daogukj.com/3659644)
 
 </details>
 
 ## 原始来源
 
-- [南昌地铁通报3人钻闸机逃票](https://www.toutiao.com/trending/7685360158020668966/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227685360158020668966%22%2C%22hot_board_impr_id%22%3A%2220260915083720210EFDCEC259D76BA54A%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [卫龙进口魔芋粉检出二氧化硫超标，客服表示不合格原料已退回，对人体会产生什么影响？其环节存在哪些问题？](https://www.zhihu.com/question/2082076314148791385)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f6cdbc92856dc37fd3ba -->
+<!-- content-fingerprint: 09d76c3c35de16cac959 -->
