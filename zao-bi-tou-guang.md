@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# ai大概还要多久就可以取代程序员了?
+# 8岁女孩被男孩推倒、威胁，用手表报警，围观者笑她「浪费警力」，民警否认并调监控检查伤势，如何看待此举？
 
-> 来源：知乎热榜 · 排名：第 13 位 · 热度：120 万热度 · 分类：问答 · 更新：2026-09-16T09:44:04+08:00
+> 来源：知乎热榜 · 排名：第 13 位 · 热度：279 万热度 · 分类：问答 · 更新：2026-09-16T14:47:25+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“ai大概还要多久就可以取代程序员了?”位列第 13 位，公开热度指标为 120 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“8岁女孩被男孩推倒、威胁，用手表报警，围观者笑她「浪费警力」，民警否认并调监控检查伤势，如何看待此举？”位列第 13 位，公开热度指标为 279 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：本人现在是搞安卓逆向的，最近感觉ai太强了，感觉像安卓逆向这些程序员岗位很快就会被取代了，但是目前也没发现程序员被大规模取代。 在行业交流群中大家都说ai厉害 但是大家还继续学。我感觉ai真起来了，不说代替百分之99，至少代替百分之90的人，像安卓逆向我感觉真没什么前途了。但是不太确定ai到底行不行，毕竟现在大部分人还是在继续学，也没听说市场上大规模裁程序员。 现在真是太迷茫了，虽说ai也能创造一些岗位，但是这些岗位我感觉也能被ai替代，还不如程序员。我现在就有种有种刀架在脖子上，随时要给一刀，但一直不给的感觉。 现在我还年轻就想让各位给我分析一下，程序
+来源公开摘要显示：9月11日，上海徐汇，目击者马女士散步偶遇小朋友在公园产生摩擦，8岁的小女孩独自用电话手表报警，围观有人说这点小事也报警，是浪费警力。 当天晚上，马女士带着自家两个孩子在公园玩耍，碰巧看到一个8岁女孩被小男孩推倒，还遭到言语威胁。等女孩想去找对方理论，那个小男孩已经直接回家，找不到人了。小姑娘又委屈又生气，身边只有小伙伴，爸爸妈妈根本没有陪同在公园。小女孩没有哭闹，也没有到处去找大人诉苦，直接拿起电话手表，拨打了110报警。 警察很快就赶到现场，小姑娘条理特别清楚，一字一句，把整件事情完完整整讲给警察听。旁边围观有些大人在说笑，说小孩子打闹而已，这纯属浪
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [什么事比丈夫出轨还头疼？！年度8.7高分抓马韩剧万字详解](nang-ying-ying-xue.md)
-- [曝陈建州突发心肌梗塞紧急手术](cheng-men-li-xue.md)
-- [白鹿走秀提鞋](shou-bu-shi-juan.md)
-- [女生花12小时做拼豆送姚安娜](xue-fu-wu-che.md)
+- [【终末地基建活动】一键搞定龙泡泡，摆完挂机集成援助！](nang-ying-ying-xue.md)
+- [“哥哥 我顺极了”文章演出加入名梗](cheng-men-li-xue.md)
+- [曝许嵩冯禧结婚了](shou-bu-shi-juan.md)
+- [曝赛力斯每卖一辆车车价10%归华为](xue-fu-wu-che.md)
 
 ## 站内推荐
 
-- [如何评价湘雅医院「23年未见父母，每天睡2小时」教师PPT争议？影响如何？是否存在夸大及其它相关问题？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [8岁女孩被男孩推倒、威胁，用手表报警，围观者笑她「浪费警力」，民警否认并调监控检查伤势，如何看待此举？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [伊朗外长阿拉格齐将于 9 月 16 日访华，哪些信息值得关注？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [报告显示 72% 的成年人未达饮用水适宜摄入量，水没喝够会对身体产生啥影响？该怎样正确喝水？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [二本文科女，没有任何技能，父母是农民，身体也不好，家里几乎没有存款，求助以后要怎么走，有什么出路？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [一组数字解码平陆运河](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [赵家驹巨人之旅破纪录夺冠](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [伊朗外长阿拉格齐于 9 月 16 日访华，哪些信息值得关注？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [是什么让90后的各位感觉自己已经跟不上时代、落伍了的？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [罗永浩前合伙人黄斌炮轰其「吹牛成性，谎称盈利」，是真的吗？他俩之间有啥恩怨？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [媒体：台湾恐被推向更险境](http://www.movie.hkepx.cn/movie/7696059.htm)
-- [斐济艾滋病疫情构成国家危机](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
-- [教师PPT写23年未见父母每天睡2小时](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
-- [据统计，番茄AI文占比74.5%，起点仅10%，数据可靠吗？起点会因手搓文技术落后而完蛋吗？](http://www.daogukj.com/xbqcnyun/)
-- [西部多了一个“沿海城市”](http://www.daogukj.com/3076909)
-- [童年的捕虫网，依然在我们的手里——《伊莫》PC端预下载现已开启！](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
+- [我国人口总量14.05亿](http://www.movie.hkepx.cn/movie/7696059.htm)
+- [A股科创50大涨4.5%](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
+- [华为高层：14亿人市场足以支撑生存](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
+- [娃哈哈虎林工厂房产被查封，前员工称 100 多员工共被欠缴住房公积金 200 余万元，具体是怎么回事？](http://www.daogukj.com/xbqcnyun/)
+- [《鸣潮》动画短片 | 寻心](http://www.daogukj.com/3076909)
+- [Find X10 Pro Max上手体验：续航优秀的影像旗舰](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
 - [不良信息一键举报 共建清朗网络空间](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
-- [报告显示 72% 的成年人未达饮用水适宜摄入量，水没喝够会对身体产生啥影响？该怎样正确喝水？](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
-- [当你获得了掌握风的能力](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
-- [女儿牵线 亲妈嫁给丈夫爸爸变婆婆](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
-- [温铁军谈比亚迪](http://www.daogukj.com/7832374)
-- [范玮琪透露陈建州血管堵到90%](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
-- [鸡如果吃了水蛭，水蛭可以钻破鸡的肠胃，长期在鸡的体内吸血吗？](http://www.movie.hkepx.cn/movie/5380543.htm)
-- [8岁女童被男孩推倒后用电话手表报警](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
-- [二本文科女，没有任何技能，父母是农民，身体也不好，家里几乎没有存款，求助以后要怎么走，有什么出路？](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
-- [女生花12小时做拼豆送姚安娜](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
-- [如何看待厂二代拍工厂宣传视频被网友评论区追问「职工福利如何」？为啥大家开始反感这类厂二代视频了？](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
-- [问界售后权责划分](http://www.daogukj.com/whdogfom/)
-- [发朋友圈要有滞后性](http://www.daogukj.com/owjemlxs/)
-- [你在恐怖片里看到吐的四大烂梗，每一个在当年都是神来之笔！](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
-- [什么事比丈夫出轨还头疼？！年度8.7高分抓马韩剧万字详解](http://www.movie.hkepx.cn/xiju/8272307.htm)
-- [《复联5》剧情全泄露！太真了！谨慎观看！](http://www.movie.hkepx.cn/xiju/5503803.htm)
-- [《上吊比赛》](http://www.movie.hkepx.cn/movie/5517829.htm)
-- [伊朗外长阿拉格齐将于 9 月 16 日访华，哪些信息值得关注？](http://www.daogukj.com/kfcenimf/)
-- [为什么《一步之遥》《邪不压正》都达不到《让子弹飞》的高度？](http://www.movie.hkepx.cn/xiju/1284306.htm)
-- [【萌黄一槽】冰镜之间灵活穿梭，白[中秋限定]全技能爆料！](http://www.movie.hkepx.cn/movie/9628674.htm)
-- [优酷2027年度片单](http://www.daogukj.com/1857926)
-- [孙颖莎 王励勤](http://www.daogukj.com/dauszqqt/)
-- [斐济宣布艾滋病疫情构成国家危机](http://www.movie.hkepx.cn/movie/0907691.htm)
-- [范玮琪回应陈建州病情：血管堵到90%](http://www.daogukj.com/5817227)
-- [重播率百分百](http://www.daogukj.com/wotljoso/)
-- [对外贸易快速增长](http://www.daogukj.com/8049323)
-- [40年房贷全面落地](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
-- [当你和一百万人一起吃火锅【AI全民制作人】](http://www.movie.hkepx.cn/xiju/0261792.htm)
-- [娃哈哈虎林工厂房产被查封，前员工称 100 多员工共被欠缴住房公积金 200 余万元，具体是怎么回事？](http://www.movie.hkepx.cn/movie/6726833.htm)
-- [第一次坐公交坐崩溃了，忍不住哭了](http://www.movie.hkepx.cn/xiju/1828380.htm)
-- [国家卫健委拟延长献血年龄至65岁，献血间隔拟由6个月缩至3个月，对此你怎么看？能有效缓解用血荒吗？](http://www.movie.hkepx.cn/xiju/1222939.htm)
-- [王力宏第一时间冲到医院](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
-- [西部多了一个“沿海城市”意味着什么](http://www.daogukj.com/2594309)
-- [曝许嵩冯禧结婚了](http://www.daogukj.com/qdasdjom/)
-- [8岁女孩被男孩推倒、威胁，用手表报警，围观者笑她「浪费警力」，民警否认并调监控检查伤势，如何看待此举？](http://www.daogukj.com/3136388)
-- [内裤袜子一起洗？专家：可以](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
-- [如何评价湘雅医院「23年未见父母，每天睡2小时」教师PPT争议？影响如何？是否存在夸大及其它相关问题？](http://www.daogukj.com/4275576)
-- [死亡女婴母亲调解中提出4点诉求](http://www.daogukj.com/lpknevub/)
-- [男子性侵15岁智力残疾少女获刑4年](http://www.daogukj.com/3012939)
-- [迎接崭新的融合超级机枪豌豆！【bilibilionly同人扶持计划】](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
-- [与印度人聊聊种姓制、恒河水、挂火车、仿制药、补习班、IT外包、彩礼嫁妆、干净又卫生……网络刻板印象是真是假？| 地球观察局EP01 【视频播客】](http://www.movie.hkepx.cn/xiju/9870181.htm)
-- [俄无人机差点打到英前首相？俄方回应](http://www.movie.hkepx.cn/movie/2656535.htm)
-- [女子被高空抛物致死抛砖男被执行死刑](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
-- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
+- [是什么让90后的各位感觉自己已经跟不上时代、落伍了的？](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
+- [三河四省！板载！](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
+- [为工作23年未见父母也算先进事迹吗](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
+- [紫薯和红薯营养到底差在哪](http://www.daogukj.com/7832374)
+- [南方医科大学 令人心动的offer](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
+- [一线城市房价涨了](http://www.movie.hkepx.cn/movie/5380543.htm)
+- [范玮琪说陈建州差点像大S命丧日本](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
+- [罗永浩前合伙人黄斌炮轰其「吹牛成性，谎称盈利」，是真的吗？他俩之间有啥恩怨？](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
+- [曝赛力斯每卖一辆车车价10%归华为](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
+- [韩国法院判朝鲜赔偿446亿韩元](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
+- [早春晴朗2原班人马](http://www.daogukj.com/whdogfom/)
+- [警方介入南方医科大学坠亡事件](http://www.daogukj.com/owjemlxs/)
+- [《复联5》剧情全泄露！太真了！谨慎观看！](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
+- [【终末地基建活动】一键搞定龙泡泡，摆完挂机集成援助！](http://www.movie.hkepx.cn/xiju/8272307.htm)
+- [华为高层被曝称核心并非拥有自研大模型，而是让任何大模型均能在昇腾、鲲鹏、超节点上高效运行，怎样解读？](http://www.movie.hkepx.cn/xiju/5503803.htm)
+- [宁德时代上半年营收利润双增股价却大跌，车企「去宁德化」如何影响其未来？](http://www.movie.hkepx.cn/movie/5517829.htm)
+- [伊朗外长阿拉格齐于 9 月 16 日访华，哪些信息值得关注？](http://www.daogukj.com/kfcenimf/)
+- [《雍正王朝》中为什么康熙总是不急不慢、智珠在握的感觉，而雍正却动不动就发火大喊大叫？](http://www.movie.hkepx.cn/xiju/1284306.htm)
+- [为什么QQ邮箱这么好用大家还是觉得它「档次不够高」？](http://www.movie.hkepx.cn/movie/9628674.htm)
+- [南方医科大学学生发声](http://www.daogukj.com/1857926)
+- [领衔主演傅诗淇](http://www.daogukj.com/dauszqqt/)
+- [医生建议生气时暂停3秒](http://www.movie.hkepx.cn/movie/0907691.htm)
+- [硕士考试第一名因专升本被取消资格](http://www.daogukj.com/5817227)
+- [携程上架维珍银河 2027 太空旅行船票，510万元一张，亚轨道太空游能体验什么？值这个价吗？](http://www.daogukj.com/wotljoso/)
+- [世纪工程4年完工](http://www.daogukj.com/8049323)
+- [A股大反攻](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
+- [南方医科大学疑有一名本博连读医学生坠亡，警方正跟进处理，具体情况如何？怎样看待背后折射的医学教育窘境？](http://www.movie.hkepx.cn/xiju/0261792.htm)
+- [「儿子去世孙子非亲生案」老人两度败诉，将召开再审听证会，希望获得对孙子探视权，再审听证会结果会怎样？](http://www.movie.hkepx.cn/movie/6726833.htm)
+- [打了我，就不能去团战打我队友了](http://www.movie.hkepx.cn/xiju/1828380.htm)
+- [罗永浩前脚拉踩野人先生称不如钟薛高，后脚钟薛高宣布「复活」并参加博览会，这会是巧合吗？](http://www.movie.hkepx.cn/xiju/1222939.htm)
+- [最想手机AI替我办的事](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
+- [一家三口打赏650万赖到女儿身上](http://www.daogukj.com/2594309)
+- [越来越多人承担不起亲密关系成本](http://www.daogukj.com/qdasdjom/)
+- [赵家驹巨人之旅破纪录夺冠](http://www.daogukj.com/3136388)
+- [《上吊比赛》](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
+- [一组数字解码平陆运河](http://www.daogukj.com/4275576)
+- [易烊千玺最近到底经历了什么](http://www.daogukj.com/lpknevub/)
+- [曝许嵩冯禧结婚](http://www.daogukj.com/3012939)
+- [看完大家的评论，我进化了！(重置版奉上)](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
+- [如何看待厂二代拍工厂宣传视频被网友评论区追问「职工福利如何」？为啥大家开始反感这类厂二代视频了？](http://www.movie.hkepx.cn/xiju/9870181.htm)
+- [韩国尸皮针价格](http://www.movie.hkepx.cn/movie/2656535.htm)
+- [得来全部费功夫（95）](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
+- [野人先生创始人曾回应 38 元一个冰淇淋太贵，称自己的品牌把行业价格打下来了，客观来看这个定价合理吗？](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
 
 </details>
 
 ## 原始来源
 
-- [ai大概还要多久就可以取代程序员了?](https://www.zhihu.com/question/2038411932424725710)
+- [8岁女孩被男孩推倒、威胁，用手表报警，围观者笑她「浪费警力」，民警否认并调监控检查伤势，如何看待此举？](https://www.zhihu.com/question/2083160484220515329)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4481b86c44a0af957c57 -->
+<!-- content-fingerprint: 81063339fec522c1c61b -->
