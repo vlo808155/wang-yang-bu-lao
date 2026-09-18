@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 小孩哥1比1手搓语文书
+# 《欢迎来龙餐馆》918日本上映
 
-> 来源：百度热搜 · 排名：第 15 位 · 热度：6376457 · 更新：2026-09-18T09:33:57+08:00
+> 来源：百度热搜 · 排名：第 15 位 · 热度：6374900 · 更新：2026-09-18T14:34:03+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“小孩哥1比1手搓语文书”位列第 15 位，公开热度指标为 6376457。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“《欢迎来龙餐馆》918日本上映”位列第 15 位，公开热度指标为 6374900。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，一家长发现儿子的二年级语文课本竟是“手搓版”。起因是孩子水杯打湿课本怕挨骂，便1:1纯手绘还原了一本。家长感叹其还原度极高，不仅包含目录，还画出了《小蝌蚪找妈妈》等课文插图及梅花，甚至连正反面和二维码都安排好了，仅字迹稍差。
+来源公开摘要显示：9月18日，电影《欢迎来龙餐馆》确认将在日本上映。因该日期恰逢九一八事变纪念日，被网友评价选得妙且应景。影片由文牧野执导、沈腾领衔主演，讲述中国厨师徐福在中东战乱地区经营餐馆，以一桌热饭连结不同国别普通人的反战故事。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [陈建州拜托大家3件事](jing-yi-qiu-jing.md)
-- [勿忘“九一八”：历史不容虚无](jiao-ta-shi-di.md)
-- [为什么同样白天，地球上是一片明亮，而外太空却是添黑一片？](shi-shi-qiu-shi.md)
-- [友：时长越长观看越少。 我：但这里是B站诶！](chi-zhi-yi-heng.md)
+- [广西孙子无血缘案奶奶听证后晕倒](jing-yi-qiu-jing.md)
+- [住建部：房地产进入存量时代](jiao-ta-shi-di.md)
+- [美股三大指数全线收涨，纳指涨1.69%，半导体狂飙，英特尔涨7.67%，科技股集体上涨，如何解读？](shi-shi-qiu-shi.md)
+- [Tim反掰iPhone Duo出现闪屏 苹果称人为损坏不保修](chi-zhi-yi-heng.md)
 
 ## 站内推荐
 
-- [宁德时代正在经历至暗时刻](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [天津漫展手机事件](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [国产榴莲大丰收](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [前人欠债凭啥我还？市委书记错在哪](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [一座雕像何以让日本政府如此紧张](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [男子15万抢到10台iPhone 18 Pro Max](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [【纪录片】生命奇观2 01 内蒙古高原](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [俺叫蔓小迪，一坨立誓成为”救世主“的泡沫💪！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [九一八事变爆发95周年](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [媒体人：中国男篮锋线紧张有望缓解](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [夏粮旺季收购基本结束](http://www.daogukj.com/baxpihzh/)
-- [张一鸣身家突破 1050 亿美元首次成亚洲首富，如何评价其商业成就？](http://www.play.hengshemaoyi.cn/kongbu/2062726.htm)
-- [我只是想煮一个鸡蛋，互联网却想教我做人❤️](http://www.daogukj.com/1315659)
-- [国际大花李冰冰国民女主白鹿对应照片](http://www.play.hengshemaoyi.cn/xiju/2704335.htm)
-- [勿忘“九一八”：历史不容虚无](http://www.daogukj.com/lumregqz/)
-- [才意识到一台苹果手机能换一万斤粮食](http://www.daogukj.com/kwbyfzbo/)
-- [【边狱巴士】“今天，我杀了妈妈...”丨 主线第10章汉化（施工中）](http://www.movie.hkepx.cn/movie/4575020.htm)
-- [中国和俄罗斯投下反对票](http://www.daogukj.com/1670070)
-- [上1休1上5休3](http://www.play.hengshemaoyi.cn/xiju/3416396.htm)
-- [九一八事变爆发95周年](http://www.daogukj.com/1634277)
-- [动态视频｜3天拍完？影视飓风的iPhone评测是怎么拍的？](http://www.daogukj.com/5380912)
-- [前人欠债凭啥我还？市委书记错在哪](http://www.movie.hkepx.cn/xiju/8054512.htm)
-- [甄姬：没见第一波线，第二波直接来8个？！](http://www.daogukj.com/7644617)
-- [媒体：日本一些人活在军国主义迷梦中](http://www.daogukj.com/5432364)
-- [棣棣和耀文蹦极太酷了](http://www.play.hengshemaoyi.cn/xiju/0868894.htm)
-- [这里只有一个是真的张起灵](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
-- [全款买房的人越来越多了](http://www.play.hengshemaoyi.cn/xiju/2616443.htm)
-- [十年，你会记得哪个瞬间?](http://www.daogukj.com/0678164)
-- [UFO高速飞过墨西哥城上空](http://www.daogukj.com/4244457)
-- [“勿忘九一八”撞钟鸣警仪式](http://www.movie.hkepx.cn/movie/9295074.htm)
-- [阿祖从军记（二）](http://www.play.hengshemaoyi.cn/xiju/0913157.htm)
-- [人民日报评南医大导师被造谣](http://www.movie.hkepx.cn/movie/2532435.htm)
-- [如果能预知20年人生，你还会选择出生吗？](http://www.play.hengshemaoyi.cn/kongbu/9083706.htm)
-- [宇树科技大涨重回500元，总市值重返2000亿元，当下是触底反弹还是下跌中继？谁在500元下方接盘？](http://www.movie.hkepx.cn/xiju/0437055.htm)
-- [天津漫展手机事件](http://www.play.hengshemaoyi.cn/xiju/0405943.htm)
-- [统派：中国人不打中国人“台独”例外](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
-- [中国运动员在日本机场干等6小时](http://www.daogukj.com/8118057)
-- [机顶盒即将退场](http://www.play.hengshemaoyi.cn/xiju/3197658.htm)
-- [亚运会半决赛中国男篮对阵日本](http://www.play.hengshemaoyi.cn/kongbu/3085425.htm)
-- [特厨做饭|零差评零失误！专业厨师的压箱底](http://www.movie.hkepx.cn/movie/4468433.htm)
-- [胡歌直言做综艺压力很大](http://www.movie.hkepx.cn/xiju/0951693.htm)
-- [杨某媛疑似在西班牙读博](http://www.movie.hkepx.cn/movie/5267051.htm)
-- [68%受访物理学家质疑时间始于大爆炸](http://www.daogukj.com/3228319)
-- [探访“梅姨案”模拟画像师：和本人相似度高达九成？ | 今天上个什么班EP01【视频播客】](http://www.movie.hkepx.cn/xiju/0255674.htm)
-- [网传“外卖员向餐食吐口水”系摆拍](http://www.play.hengshemaoyi.cn/kongbu/6482335.htm)
-- [小猫突然把小狗的头扶正了](http://www.daogukj.com/cmwhbpsa/)
-- [坠亡幼童父亲举报妻子发布的视频侵犯其肖像权，他有权这么做吗？](http://www.daogukj.com/6408302)
-- [陈建州拜托大家3件事](http://www.play.hengshemaoyi.cn/kongbu/6504187.htm)
-- [宁德时代正在经历至暗时刻](http://www.movie.hkepx.cn/xiju/8353840.htm)
-- [苹果最贵手机还没开售就翻车了吗](http://www.daogukj.com/jhhicgnj/)
-- [于东来建议给家人花钱不超 3 成收入，呼吁员工「为自己而活」，如何看待这一观点？](http://www.play.hengshemaoyi.cn/xiju/2201754.htm)
-- [如何看待 HYROX 失禁选手就北京赛场事件道歉，决定追溯性退出该场比赛，并放弃此前获得的积分？](http://www.movie.hkepx.cn/xiju/9904424.htm)
-- [日本亚运会住宿条件遭吐槽，真实情况如何？原因是什么？](http://www.play.hengshemaoyi.cn/xiju/7993084.htm)
-- [很多人说「不能以中国标准看其他国家办大赛」，但办好比赛不是东道主该做的吗，为什么好像全世界都在草台化？](http://www.movie.hkepx.cn/xiju/2553336.htm)
-- [如何看待在医学降分的背景下，继续扩大医学生招生培养规模？](http://www.play.hengshemaoyi.cn/kongbu/6028567.htm)
-- [学生称同济大学痛经请假需脱裤检查，校医院称检查由医生视情况决定，学校有权这么做吗？有更好解决办法吗？](http://www.play.hengshemaoyi.cn/xiju/6306862.htm)
-- [如何看待 GPT-6-Astra 刷新信息学竞赛题复杂度记录？](http://www.movie.hkepx.cn/xiju/2775713.htm)
-- [中式魅魔挑战（你能闯到第几关？）](http://www.movie.hkepx.cn/movie/5485785.htm)
-- [新疆阿勒泰34万只羊排队洗香香](http://www.play.hengshemaoyi.cn/xiju/5094963.htm)
-- [外卖员向餐食吐口水摆拍案细节披露](http://www.play.hengshemaoyi.cn/kongbu/1178935.htm)
+- [这里只有一个是真的张起灵](http://www.daogukj.com/baxpihzh/)
+- [小时候最害怕的事情还是发生了](http://www.play.hengshemaoyi.cn/kongbu/2062726.htm)
+- [退休副省长家丢了 243 万元茅台等名酒，管家因盗窃罪获刑10年半，哪些细节值得关注？](http://www.daogukj.com/1315659)
+- [佟丽娅回应离婚对儿子的影响，称儿子现在还不知道父母离婚，孩子真的感受不到吗？如何看待她直面争议的态度？](http://www.play.hengshemaoyi.cn/xiju/2704335.htm)
+- [住建部：房地产进入存量时代](http://www.daogukj.com/lumregqz/)
+- [冲奖剧怎么了](http://www.daogukj.com/kwbyfzbo/)
+- [坠亡幼童父亲称出殡按最高规格](http://www.movie.hkepx.cn/movie/4575020.htm)
+- [一个智能药盒卖3900元](http://www.daogukj.com/1670070)
+- [31岁医学博士辞医送外卖](http://www.play.hengshemaoyi.cn/xiju/3416396.htm)
+- [黄牛称iPhone 18 Pro没人要](http://www.daogukj.com/1634277)
+- [揭秘硫磺竹笋，二氧化硫含量惊人，这样的竹笋能吃吗？恳请当地彻查硫磺竹笋，保障食品安全](http://www.daogukj.com/5380912)
+- [九一八事变爆发95周年](http://www.movie.hkepx.cn/xiju/8054512.htm)
+- [【1931.9.18-2026.9.18】九一八事变爆发95周年，请留一分钟](http://www.daogukj.com/7644617)
+- [媒体称美国大模型已被日本错误历史观污染，有哪些信息值得关注？](http://www.daogukj.com/5432364)
+- [冯绍峰脸怎么了](http://www.play.hengshemaoyi.cn/xiju/0868894.htm)
+- [互相求婚？美国女孩和我为什么要这样做](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
+- [沈鼓集团暴涨250% 市值突破2000亿元](http://www.play.hengshemaoyi.cn/xiju/2616443.htm)
+- [全球陷入「抢钨大战」，两年时间价格上涨了约 9 倍，为啥会疯涨？钨这种稀有金属的战略价值体现在哪里？](http://www.daogukj.com/0678164)
+- [原来百家讲坛是真的在教东西](http://www.daogukj.com/4244457)
+- [12306回应“国庆期间高铁涨价”](http://www.movie.hkepx.cn/movie/9295074.htm)
+- [如何看待「快递小哥救助摔倒老人反被索赔超 92 万」一案，终审驳回全部诉求 ？法律怎样降低救人的风险？](http://www.play.hengshemaoyi.cn/xiju/0913157.htm)
+- [宁德时代 至暗时刻](http://www.movie.hkepx.cn/movie/2532435.htm)
+- [Tropical fruit slicing animation](http://www.play.hengshemaoyi.cn/kongbu/9083706.htm)
+- [网传浙江师范大学强制新生填写父母工作单位、月收入等12项隐私信息，为啥要填这么详细？真的有必要吗？](http://www.movie.hkepx.cn/xiju/0437055.htm)
+- [【纪录片】生命奇观2 01 内蒙古高原](http://www.play.hengshemaoyi.cn/xiju/0405943.htm)
+- [阿祖从军记（二）](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
+- [马来西亚女子昆明认出外公照片](http://www.daogukj.com/8118057)
+- [十一 高铁票涨价](http://www.play.hengshemaoyi.cn/xiju/3197658.htm)
+- [多地苹果门店现场排长队](http://www.play.hengshemaoyi.cn/kongbu/3085425.htm)
+- [生娃失明失聪女子原本是英语老师](http://www.movie.hkepx.cn/movie/4468433.htm)
+- [佟丽娅否认陈思诚家暴传闻](http://www.movie.hkepx.cn/xiju/0951693.htm)
+- [男子称儿女都非亲生 妻子转移1400万](http://www.movie.hkepx.cn/movie/5267051.htm)
+- [中国射击队因酒店远不参加亚运开幕式](http://www.daogukj.com/3228319)
+- [甄姬：没见第一波线，第二波直接来8个？！](http://www.movie.hkepx.cn/xiju/0255674.htm)
+- [【年会不能停！2】刘马组合升职无限流](http://www.play.hengshemaoyi.cn/kongbu/6482335.htm)
+- [曝甲醛白菜的博主渔猎齐哥再曝广东清远「硫磺竹笋」，当地发布通报称情况属实，哪些信息值得关注？](http://www.daogukj.com/cmwhbpsa/)
+- [公司每周上班3天半 月薪平均7000元](http://www.daogukj.com/6408302)
+- [广西孙子无血缘案奶奶听证后晕倒](http://www.play.hengshemaoyi.cn/kongbu/6504187.htm)
+- [男子15万抢到10台iPhone 18 Pro Max](http://www.movie.hkepx.cn/xiju/8353840.htm)
+- [水滴筹服务费上涨至8%](http://www.daogukj.com/jhhicgnj/)
+- [中国先进制造接连“上新”](http://www.play.hengshemaoyi.cn/xiju/2201754.htm)
+- [美国务院批准向沙特出售48架F-35战机](http://www.movie.hkepx.cn/xiju/9904424.htm)
+- [为什么麦当劳在中国不如肯德基？](http://www.play.hengshemaoyi.cn/xiju/7993084.htm)
+- [TES 拿下 LPL 三号种子席位挺进 S16，如何评价他们本次季后赛表现？](http://www.movie.hkepx.cn/xiju/2553336.htm)
+- [很多老师称现在批改作业不能用×，要换成◯、△，是为了保护学生吗？真的有用吗？打×本身有问题吗？](http://www.play.hengshemaoyi.cn/kongbu/6028567.htm)
+- [于东来建议给家人花钱不超 3 成收入，呼吁员工「为自己而活」，如何看待这一观点？](http://www.play.hengshemaoyi.cn/xiju/6306862.htm)
+- [张本智和：日本男团夺冠概率高于中国](http://www.movie.hkepx.cn/xiju/2775713.htm)
+- [“当确实型人格遇上反驳型人格”](http://www.movie.hkepx.cn/movie/5485785.htm)
+- [如何看待华为突破冯诺依曼「单机」架构？](http://www.play.hengshemaoyi.cn/xiju/5094963.htm)
+- [LadyGaga 代孕](http://www.play.hengshemaoyi.cn/kongbu/1178935.htm)
 
 </details>
 
 ## 原始来源
 
-- [小孩哥1比1手搓语文书](https://www.baidu.com/s?wd=%E5%B0%8F%E5%AD%A9%E5%93%A51%E6%AF%941%E6%89%8B%E6%90%93%E8%AF%AD%E6%96%87%E4%B9%A6&sa=fyb_news&rsv_dl=fyb_news)
+- [《欢迎来龙餐馆》918日本上映](https://www.baidu.com/s?wd=%E3%80%8A%E6%AC%A2%E8%BF%8E%E6%9D%A5%E9%BE%99%E9%A4%90%E9%A6%86%E3%80%8B918%E6%97%A5%E6%9C%AC%E4%B8%8A%E6%98%A0&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 410e4f50f0bdace14d26 -->
+<!-- content-fingerprint: c9c350c1db4dada01343 -->

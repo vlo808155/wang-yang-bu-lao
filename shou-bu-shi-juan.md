@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 「一点点」否认威胁员工家人，「提着牛奶上门，当时沟通进展顺利」，哪些信息值得关注？
+# 如何评价名古屋亚运会的奖牌设计，以及其理念「破碎与重组」？
 
-> 来源：知乎热榜 · 排名：第 14 位 · 热度：103 万热度 · 分类：问答 · 更新：2026-09-18T09:33:57+08:00
+> 来源：知乎热榜 · 排名：第 14 位 · 热度：130 万热度 · 分类：问答 · 更新：2026-09-18T14:34:03+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“「一点点」否认威胁员工家人，「提着牛奶上门，当时沟通进展顺利」，哪些信息值得关注？”位列第 14 位，公开热度指标为 103 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价名古屋亚运会的奖牌设计，以及其理念「破碎与重组」？”位列第 14 位，公开热度指标为 130 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，“一点点”奶茶店前员工反映，茶叶原料有异物并发起用工维权一事件引发热议。有网友提出质疑称，该员工曾在古茗、茉莉奶白等多家奶茶店短暂上班，并且此前也有过劳动纠纷获赔情况。另有网友表示“作为消费者，更关注其举报的问题如门店篡改有效期之类的问题是否真实存在。”对此，记者向当事人吴先生求证，其称无事实补充，且与本事件无关。此外，针对吴先生反映公司曾上门找家长一事，涉事门店负责人回应荔枝新闻称内部很重视，目前正在处理中。记者尝试联系“一点点”总部，截至发稿前电话暂未接通。此前，一点点新媒体部工作人员公开回应称，当时因无法与当事人沟通达成调解，因此通过正规渠道
+来源公开摘要显示：奖牌灵感源自赛事口号(IMAGINE ONE ASIA）。我们原本是一个整体，如今已发展出多种语言和文化，并以各种形式传播。奖牌的表面处理和形状表达了通过体育运动再次融合的理念。 在制作过程中，陶瓷圆盘被反复摔碎，经过反复验证，直至达到令人满意的形状，最终才确定了设计方案。 运动员们一路走来一定经历了无数次的挫折，而这款设计则寄托着他们所有的努力最终将汇聚成一枚奖牌的美好愿望。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [甄姬：没见第一波线，第二波直接来8个？！](xue-fu-wu-che.md)
-- [“勿忘九一八”撞钟鸣警仪式](bo-wen-qiang-ji.md)
-- [棣棣和耀文蹦极太酷了](wen-gu-zhi-xin.md)
-- [胡歌直言做综艺压力很大](ju-yi-fan-san.md)
+- [【1931.9.18-2026.9.18】九一八事变爆发95周年，请留一分钟](xue-fu-wu-che.md)
+- [12306回应“国庆期间高铁涨价”](bo-wen-qiang-ji.md)
+- [冯绍峰脸怎么了](wen-gu-zhi-xin.md)
+- [佟丽娅否认陈思诚家暴传闻](ju-yi-fan-san.md)
 
 ## 站内推荐
 
-- [上1休1上5休3](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [我们为何依然要拉响防空警报](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- [穴居人晚上去哪里拉屎？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [为什么同样白天，地球上是一片明亮，而外太空却是添黑一片？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [坠亡幼童父亲举报妻子发布的视频侵犯其肖像权，他有权这么做吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [31岁医学博士辞医送外卖](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [司机偶遇东北虎妈带4只幼崽路边玩耍](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [宇树科技大涨重回500元，总市值重返2000亿元，当下是触底反弹还是下跌中继？谁在500元下方接盘？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [美股三大指数全线收涨，纳指涨1.69%，半导体狂飙，英特尔涨7.67%，科技股集体上涨，如何解读？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [公司每周上班3天半 月薪平均7000元](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [亚运会半决赛中国男篮对阵日本](http://www.daogukj.com/8478676)
-- [医生回应举手式睡姿是身体在求救](http://www.daogukj.com/3239411)
+- [多地苹果门店现场排长队](http://www.daogukj.com/8478676)
+- [梅毒被称为皮肤性病科模仿大师](http://www.daogukj.com/3239411)
 - [听说你最近一段时间一直在找我？【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/6693593.htm)
-- [如何看待 HYROX 失禁选手就北京赛场事件道歉，决定追溯性退出该场比赛，并放弃此前获得的积分？](http://www.play.hengshemaoyi.cn/kongbu/3393647.htm)
-- [九一八事变爆发95周年](http://www.daogukj.com/5177434)
-- [曼德海峡附近激战 制高点几度易手](http://www.daogukj.com/9757981)
-- [平陆运河激活西部“新动脉”](http://www.play.hengshemaoyi.cn/kongbu/5254314.htm)
-- [上1休1上5休3](http://www.play.hengshemaoyi.cn/kongbu/6062543.htm)
-- [学生称同济大学痛经请假需脱裤检查，校医院称检查由医生视情况决定，学校有权这么做吗？有更好解决办法吗？](http://www.daogukj.com/vvhxfmlz/)
-- [日本亚运会住宿条件遭吐槽，真实情况如何？原因是什么？](http://www.play.hengshemaoyi.cn/kongbu/6868011.htm)
-- [十年，你会记得哪个瞬间?](http://www.play.hengshemaoyi.cn/xiju/0581687.htm)
-- [坠亡男童父亲被指出轨 妻子回应](http://www.play.hengshemaoyi.cn/xiju/3249372.htm)
-- [苹果最贵手机还没开售就翻车了吗](http://www.movie.hkepx.cn/xiju/6239174.htm)
-- [如何看待在医学降分的背景下，继续扩大医学生招生培养规模？](http://www.movie.hkepx.cn/xiju/9361968.htm)
-- [母女扔掉装存单黄金床头柜 民警帮找回](http://www.play.hengshemaoyi.cn/xiju/0141985.htm)
-- [“勿忘九一八”撞钟鸣警仪式](http://www.daogukj.com/3639582)
-- [坠亡幼童父亲举报妻子发布的视频侵犯其肖像权，他有权这么做吗？](http://www.daogukj.com/olcgjzxy/)
-- [穴居人晚上去哪里拉屎？](http://www.play.hengshemaoyi.cn/xiju/4459303.htm)
-- [我们来了](http://www.daogukj.com/ogctigmk/)
-- [68%受访物理学家质疑时间始于大爆炸](http://www.play.hengshemaoyi.cn/kongbu/4101569.htm)
-- [杨某媛疑似在西班牙读博](http://www.play.hengshemaoyi.cn/kongbu/1623587.htm)
-- [一座雕像何以让日本政府如此紧张](http://www.movie.hkepx.cn/xiju/2974024.htm)
-- [幼童母亲称丈夫直到买墓地才悲伤](http://www.daogukj.com/qduaipey/)
-- [统派：中国人不打中国人“台独”例外](http://www.play.hengshemaoyi.cn/xiju/8227935.htm)
-- [甄姬：没见第一波线，第二波直接来8个？！](http://www.play.hengshemaoyi.cn/kongbu/4160027.htm)
-- [粉笔 四海](http://www.play.hengshemaoyi.cn/kongbu/9952478.htm)
-- [我只是想煮一个鸡蛋，互联网却想教我做人❤️](http://www.movie.hkepx.cn/xiju/1449526.htm)
-- [沈阳全城点亮大屏缅怀先烈](http://www.play.hengshemaoyi.cn/kongbu/5233867.htm)
-- [为什么同样白天，地球上是一片明亮，而外太空却是添黑一片？](http://www.daogukj.com/foorujpq/)
-- [[只狼深扒]白蛇真的是双头蛇吗？答案可能超乎你的想象！](http://www.movie.hkepx.cn/xiju/1941094.htm)
-- [家从来都不是讲道理的地方，而是讲爱的地方，你认同这种说法吗？](http://www.movie.hkepx.cn/movie/4257941.htm)
-- [外卖员向餐食吐口水摆拍案细节披露](http://www.play.hengshemaoyi.cn/kongbu/5339935.htm)
-- [夏粮旺季收购基本结束](http://www.daogukj.com/ailrualr/)
-- [中国和俄罗斯投下反对票](http://www.play.hengshemaoyi.cn/xiju/5385609.htm)
-- [国际大花李冰冰国民女主白鹿对应照片](http://www.movie.hkepx.cn/movie/0789293.htm)
-- [手机升级个系统，多出 37G 空间？是鸿蒙 7 超空间存储技术！](http://www.movie.hkepx.cn/xiju/4446039.htm)
-- [管家转卖退休副省长家名酒获利243万](http://www.play.hengshemaoyi.cn/kongbu/7816841.htm)
-- [警方破获特大明星行程黑产](http://www.play.hengshemaoyi.cn/kongbu/9613360.htm)
-- [探访“梅姨案”模拟画像师：和本人相似度高达九成？ | 今天上个什么班EP01【视频播客】](http://www.daogukj.com/cdrpkogq/)
-- [于东来建议给家人花钱不超 3 成收入，呼吁员工「为自己而活」，如何看待这一观点？](http://www.movie.hkepx.cn/movie/2665746.htm)
-- [才意识到一台苹果手机能换一万斤粮食](http://www.daogukj.com/zobrwsba/)
-- [勿忘“九一八”：历史不容虚无](http://www.daogukj.com/0656524)
-- [如何看待 GPT-6-Astra 刷新信息学竞赛题复杂度记录？](http://www.movie.hkepx.cn/movie/2963324.htm)
-- [巴基斯坦表态了 这是一个重要信号](http://www.daogukj.com/oapvfaci/)
-- [友：时长越长观看越少。 我：但这里是B站诶！](http://www.daogukj.com/1720245)
-- [56岁保安遭业主拳击头部后死亡](http://www.play.hengshemaoyi.cn/xiju/2000340.htm)
-- [UFO高速飞过墨西哥城上空](http://www.play.hengshemaoyi.cn/kongbu/4181508.htm)
-- [这里只有一个是真的张起灵](http://www.play.hengshemaoyi.cn/kongbu/7488097.htm)
-- [我们来了 刘雯](http://www.play.hengshemaoyi.cn/xiju/5445185.htm)
-- [人机大战](http://www.movie.hkepx.cn/movie/7058284.htm)
+- [美国务院批准向沙特出售48架F-35战机](http://www.play.hengshemaoyi.cn/kongbu/3393647.htm)
+- [黄牛称iPhone 18 Pro没人要](http://www.daogukj.com/5177434)
+- [日本经济为何一团糟](http://www.daogukj.com/9757981)
+- [每个中国人都不能忘记九一八](http://www.play.hengshemaoyi.cn/kongbu/5254314.htm)
+- [31岁医学博士辞医送外卖](http://www.play.hengshemaoyi.cn/kongbu/6062543.htm)
+- [于东来建议给家人花钱不超 3 成收入，呼吁员工「为自己而活」，如何看待这一观点？](http://www.daogukj.com/vvhxfmlz/)
+- [为什么麦当劳在中国不如肯德基？](http://www.play.hengshemaoyi.cn/kongbu/6868011.htm)
+- [全球陷入「抢钨大战」，两年时间价格上涨了约 9 倍，为啥会疯涨？钨这种稀有金属的战略价值体现在哪里？](http://www.play.hengshemaoyi.cn/xiju/0581687.htm)
+- [12306回应国庆高铁票涨价](http://www.play.hengshemaoyi.cn/xiju/3249372.htm)
+- [水滴筹服务费上涨至8%](http://www.movie.hkepx.cn/xiju/6239174.htm)
+- [很多老师称现在批改作业不能用×，要换成◯、△，是为了保护学生吗？真的有用吗？打×本身有问题吗？](http://www.movie.hkepx.cn/xiju/9361968.htm)
+- [十年，你会记得哪个瞬间?](http://www.play.hengshemaoyi.cn/xiju/0141985.htm)
+- [12306回应“国庆期间高铁涨价”](http://www.daogukj.com/3639582)
+- [公司每周上班3天半 月薪平均7000元](http://www.daogukj.com/olcgjzxy/)
+- [宇树科技大涨重回500元，总市值重返2000亿元，当下是触底反弹还是下跌中继？谁在500元下方接盘？](http://www.play.hengshemaoyi.cn/xiju/4459303.htm)
+- [中国海警回应船艇遭菲船只碰撞](http://www.daogukj.com/ogctigmk/)
+- [中国射击队因酒店远不参加亚运开幕式](http://www.play.hengshemaoyi.cn/kongbu/4101569.htm)
+- [男子称儿女都非亲生 妻子转移1400万](http://www.play.hengshemaoyi.cn/kongbu/1623587.htm)
+- [媒体人：中国男篮锋线紧张有望缓解](http://www.movie.hkepx.cn/xiju/2974024.htm)
+- [广东清远通报“硫磺熏蒸麻竹笋”](http://www.daogukj.com/qduaipey/)
+- [阿祖从军记（二）](http://www.play.hengshemaoyi.cn/xiju/8227935.htm)
+- [【1931.9.18-2026.9.18】九一八事变爆发95周年，请留一分钟](http://www.play.hengshemaoyi.cn/kongbu/4160027.htm)
+- [只说给到6500绝口不提怎么拿](http://www.play.hengshemaoyi.cn/kongbu/9952478.htm)
+- [退休副省长家丢了 243 万元茅台等名酒，管家因盗窃罪获刑10年半，哪些细节值得关注？](http://www.movie.hkepx.cn/xiju/1449526.htm)
+- [直击苹果三里屯首发：顾客昨晚到店](http://www.play.hengshemaoyi.cn/kongbu/5233867.htm)
+- [美股三大指数全线收涨，纳指涨1.69%，半导体狂飙，英特尔涨7.67%，科技股集体上涨，如何解读？](http://www.daogukj.com/foorujpq/)
+- [印度央行强制塔塔控股公司上市，或成印度史上最大 IPO，为什么还有强制上市的情况？](http://www.movie.hkepx.cn/xiju/1941094.htm)
+- [中式魅魔挑战（你能闯到第几关？）](http://www.movie.hkepx.cn/movie/4257941.htm)
+- [LadyGaga 代孕](http://www.play.hengshemaoyi.cn/kongbu/5339935.htm)
+- [这里只有一个是真的张起灵](http://www.daogukj.com/ailrualr/)
+- [一个智能药盒卖3900元](http://www.play.hengshemaoyi.cn/xiju/5385609.htm)
+- [佟丽娅回应离婚对儿子的影响，称儿子现在还不知道父母离婚，孩子真的感受不到吗？如何看待她直面争议的态度？](http://www.movie.hkepx.cn/movie/0789293.htm)
+- [穴居人晚上去哪里拉屎？](http://www.movie.hkepx.cn/xiju/4446039.htm)
+- [iPhone18Pro黄牛一天一个价](http://www.play.hengshemaoyi.cn/kongbu/7816841.htm)
+- [诬告小孩者被滴滴司机反告](http://www.play.hengshemaoyi.cn/kongbu/9613360.htm)
+- [甄姬：没见第一波线，第二波直接来8个？！](http://www.daogukj.com/cdrpkogq/)
+- [中国先进制造接连“上新”](http://www.movie.hkepx.cn/movie/2665746.htm)
+- [冲奖剧怎么了](http://www.daogukj.com/zobrwsba/)
+- [住建部：房地产进入存量时代](http://www.daogukj.com/0656524)
+- [张本智和：日本男团夺冠概率高于中国](http://www.movie.hkepx.cn/movie/2963324.htm)
+- [宁德时代：会造车的不一定会造电池](http://www.daogukj.com/oapvfaci/)
+- [Tim反掰iPhone Duo出现闪屏 苹果称人为损坏不保修](http://www.daogukj.com/1720245)
+- [其实王者账号是有耐久的，没耐久就玩不了了](http://www.play.hengshemaoyi.cn/xiju/2000340.htm)
+- [原来百家讲坛是真的在教东西](http://www.play.hengshemaoyi.cn/kongbu/4181508.htm)
+- [互相求婚？美国女孩和我为什么要这样做](http://www.play.hengshemaoyi.cn/kongbu/7488097.htm)
+- [抹黑英雄必受严惩 歪曲历史绝不容忍](http://www.play.hengshemaoyi.cn/xiju/5445185.htm)
+- [曝何瑞贤有孩子了](http://www.movie.hkepx.cn/movie/7058284.htm)
 
 </details>
 
 ## 原始来源
 
-- [「一点点」否认威胁员工家人，「提着牛奶上门，当时沟通进展顺利」，哪些信息值得关注？](https://www.zhihu.com/question/2083942767869309746)
+- [如何评价名古屋亚运会的奖牌设计，以及其理念「破碎与重组」？](https://www.zhihu.com/question/2084228827564044930)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: fcc0156b9aca2a2e2db8 -->
+<!-- content-fingerprint: 6d0fe91c22b2d466cf1c -->
