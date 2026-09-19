@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 变 形 强 强 【B站笑点大赛】
+# 我是美国穷人家的孩子啊啊啊啊 !
 
-> 来源：哔哩哔哩热门 · 排名：第 13 位 · 热度：510779 · 分类：鬼畜剧场 · 更新：2026-09-19T09:17:49+08:00
+> 来源：哔哩哔哩热门 · 排名：第 13 位 · 热度：328221 · 分类：鬼畜调教 · 更新：2026-09-19T14:02:02+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“变 形 强 强 【B站笑点大赛】”位列第 13 位，公开热度指标为 510779，榜单分类为“鬼畜剧场”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“我是美国穷人家的孩子啊啊啊啊 !”位列第 13 位，公开热度指标为 328221，榜单分类为“鬼畜调教”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `鬼畜剧场`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `鬼畜调教`
 
 ## 相关热点
 
-- [拖欠员工公积金 娃哈哈致歉](cheng-men-li-xue.md)
-- [郑合惠子没有感情全是演技](shou-bu-shi-juan.md)
-- [佟丽娅回应主持央视春晚相关传言](xue-fu-wu-che.md)
+- [“我爸一只眼睛的价格是11.3元”](cheng-men-li-xue.md)
+- [张凯毅前夫被曝称当网红像耍猴](shou-bu-shi-juan.md)
+- [AI女演员访谈卡壳后突然飙粤语](xue-fu-wu-che.md)
 - [松岛辉空说亚运会日本男乒「只发挥50%-60%也有机会击败中国队」对此你怎么看？](bo-wen-qiang-ji.md)
 
 ## 站内推荐
 
-- [【我在现代当幽差】EP03 因果 【UP动画】【HiShorts!XupdreamAl短片大赛-剧情单元】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [【奥术之贼01】法师vs重甲，原创西幻cg影片](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [《镜头之后#7》——老八](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [俺叫蔓小迪，一坨立誓成为”救世主“的泡沫💪！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [重生一次，我还是选她【01-11】【完结】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [中国男篮 77-97 不敌日本男篮无缘决赛，失利的原因是什么？暴露了当下中国男篮的哪些问题短板？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [亚运会大巴迷路，司机打开纸质地图找方向，韩国选手吐槽「传奇司机」，日本不至于连导航都没普及吧？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [兵马俑捡到游客手机，结果没想到......](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [棋逢对手](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [新三国up锐评神探狄仁杰17：使团惊魂案大结局](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [重生一次，我还是选她【01-11】【完结】](http://www.daogukj.com/0791900)
-- [“当确实型人格遇上反驳型人格”](http://www.movie.hkepx.cn/movie/6187756.htm)
-- [如何评价31岁博士辞医院工作去送外卖、做驻唱？现代社会如何看待人选择生活方式的自由，探索生活的可能性？](http://www.play.hengshemaoyi.cn/xiju/2843741.htm)
-- [孙千上过央视春晚哈尔滨分会场](http://www.daogukj.com/zealysjt/)
+- [新三国up锐评神探狄仁杰17：使团惊魂案大结局](http://www.daogukj.com/0791900)
+- [大禹看了沉默，愚公看了流泪](http://www.movie.hkepx.cn/movie/6187756.htm)
+- [护士长提醒年轻人少喝饮料少熬夜](http://www.play.hengshemaoyi.cn/xiju/2843741.htm)
+- [建议大家少用这种充电宝](http://www.daogukj.com/zealysjt/)
 - [辟谣周榜｜江西多处堤坝溃决系谣言](http://www.movie.hkepx.cn/movie/0178031.htm)
-- [平陆运河释放多重红利](http://www.daogukj.com/6215529)
-- [旧手机格式化也不安全](http://www.movie.hkepx.cn/xiju/4801450.htm)
-- [中国的小偷为何断崖式下降](http://www.daogukj.com/8108433)
-- [当红好莱坞女星大尺度广告翻车](http://www.daogukj.com/3643825)
-- [王一博嘉人十月刊封面宣发节奏](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
-- [泰国方面吐槽亚运会「选手在官方餐厅吃不饱，只能去外面吃吉野家」，本届亚运会的草台程度还能再上新高度？](http://www.daogukj.com/1108835)
-- [墨西哥阅兵现场惊现UFO？和军机同框](http://www.movie.hkepx.cn/xiju/9153610.htm)
-- [于东来正被自己的人设绑架](http://www.play.hengshemaoyi.cn/xiju/5315061.htm)
-- [池昌旭林珍娜是关系很铁的好友关系](http://www.play.hengshemaoyi.cn/xiju/5421312.htm)
-- [媒体：于东来正被自己的人设绑架](http://www.daogukj.com/veafcjhm/)
-- [百余年来首次 猫科再添现存新物种](http://www.play.hengshemaoyi.cn/xiju/5677870.htm)
-- [许兰香被发卖青楼](http://www.movie.hkepx.cn/movie/8965818.htm)
-- [Tropical fruit slicing animation](http://www.daogukj.com/6666143)
-- [毛东东访朝在毛岸英烈士铜像前祭酒](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
-- [国乒男单签表出炉：王楚钦张本同半区](http://www.movie.hkepx.cn/xiju/8931005.htm)
-- [曝 IG 投诉前 LPL 解说 Wayward 成功并致其无限期禁播，对电竞直播言论边界有何警示？](http://www.movie.hkepx.cn/xiju/6420011.htm)
-- [韩国选手听到朝鲜国歌集体慌乱](http://www.play.hengshemaoyi.cn/kongbu/7380475.htm)
-- [【我在现代当幽差】EP03 因果 【UP动画】【HiShorts!XupdreamAl短片大赛-剧情单元】](http://www.daogukj.com/5699059)
-- [2名外籍游客抱出侧翻被困车中老人](http://www.movie.hkepx.cn/xiju/0644202.htm)
-- [恋陪剧本杀 软色情](http://www.movie.hkepx.cn/xiju/8056511.htm)
-- [高校考试开考9分钟试卷就被外传](http://www.daogukj.com/nexzmtzr/)
-- [永和豆浆被指擦边，400 万粉授权账号播黑丝、洗澡内容，这算品牌营销的一次「翻车」吗？](http://www.daogukj.com/1229862)
-- [中国男篮队长胡明轩赛后发声](http://www.daogukj.com/bnuggeog/)
-- [绵阳一养猪场单日死亡500头猪不实](http://www.movie.hkepx.cn/xiju/0869258.htm)
-- [《埃 及 点 子 王》](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
-- [1s~1h冰冻螺蛳粉挑战](http://www.play.hengshemaoyi.cn/xiju/8712972.htm)
-- [特朗普称获格陵兰岛永久安全控制权](http://www.daogukj.com/1535718)
-- [斑驳旧物铭刻90多年前不屈抗争](http://www.play.hengshemaoyi.cn/kongbu/2527657.htm)
-- [有什么很有意思的考古事件？](http://www.daogukj.com/fwgnvbgz/)
-- [256G变512G再变1T，手机存储为什么永远不够？【差评君】](http://www.daogukj.com/liomovvw/)
-- [第二赛季更新前瞻PV「奥托皮亚·地下之王」](http://www.play.hengshemaoyi.cn/xiju/3352880.htm)
-- [郭士强 下课](http://www.daogukj.com/5981356)
-- [数学老师投300万拍电影 8天票房2万](http://www.play.hengshemaoyi.cn/kongbu/9556053.htm)
-- [琵琶曲丨悟空 VS 如来](http://www.movie.hkepx.cn/movie/6187870.htm)
-- [美驻日使馆9月18日发帖 日本网民破防](http://www.movie.hkepx.cn/xiju/9816980.htm)
-- [于东来考察胖东来梦之城建设](http://www.daogukj.com/djgtqgkc/)
-- [为什么英文称中国为 China，而不是按照中文读音叫 Zhongguo？](http://www.movie.hkepx.cn/movie/4871450.htm)
-- [办公楼进来条蛇，我被惊吓后把它打死了，事后发现这是国家保护动物，我需要负法律责任吗？](http://www.movie.hkepx.cn/xiju/4251876.htm)
-- [《兰香如故》：东方美学入戏入情入境](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
-- [产后失明失聪女子：从不后悔生娃](http://www.movie.hkepx.cn/movie/9171667.htm)
-- [店主贴“回趟公安”被解读成拘留](http://www.daogukj.com/oeibgnih/)
+- [向国旗敬礼](http://www.daogukj.com/6215529)
+- [贾国龙 西贝](http://www.movie.hkepx.cn/xiju/4801450.htm)
+- [轿车在高铁站停了近7年 车主回应](http://www.daogukj.com/8108433)
+- [局长被查 家人花300万找了个政治骗子](http://www.daogukj.com/3643825)
+- [18岁女儿高一退学坚持出嫁](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
+- [“错换人生28年”姚策的生父去世](http://www.daogukj.com/1108835)
+- [女子看短剧发现演员是游戏骗子](http://www.movie.hkepx.cn/xiju/9153610.htm)
+- [210克金条竟然藏在奶粉罐里](http://www.play.hengshemaoyi.cn/xiju/5315061.htm)
+- [舒畅 脸](http://www.play.hengshemaoyi.cn/xiju/5421312.htm)
+- [林珍娜替身](http://www.daogukj.com/veafcjhm/)
+- [《镜头之后#7》——老八](http://www.play.hengshemaoyi.cn/xiju/5677870.htm)
+- [申聪：刚回家时每晚哭 枕头没干过](http://www.movie.hkepx.cn/movie/8965818.htm)
+- [为什么这两年加多宝彻底销声匿迹了？](http://www.daogukj.com/6666143)
+- [于正官宣杨蓉出演朝玉阶](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
+- [美军为何突然亮出太空武器](http://www.movie.hkepx.cn/xiju/8931005.htm)
+- [在岸、离岸人民币兑美元双双升破 6.7，创 2023 年以来新高，受哪些因素影响？](http://www.movie.hkepx.cn/xiju/6420011.htm)
+- [村庄杆子上装了84个监控 村干部回应](http://www.play.hengshemaoyi.cn/kongbu/7380475.htm)
+- [中国男篮 77-97 不敌日本男篮无缘决赛，失利的原因是什么？暴露了当下中国男篮的哪些问题短板？](http://www.daogukj.com/5699059)
+- [机器人开始自己找活干了](http://www.movie.hkepx.cn/xiju/0644202.htm)
+- [白人的快乐老家怎么靠中国找到了自己的路？【东非03丨肯尼亚】](http://www.movie.hkepx.cn/xiju/8056511.htm)
+- [主人欠4万多 15只幼猫将被法拍还债](http://www.daogukj.com/nexzmtzr/)
+- [沈鼓集团上市 2 日 4 次触发临停，盘中涨近 300%，哪些信息值得关注？](http://www.daogukj.com/1229862)
+- [花呗白条月付产品退出支付选项](http://www.daogukj.com/bnuggeog/)
+- [这几个近视谣言 很多家长还在信](http://www.movie.hkepx.cn/xiju/0869258.htm)
+- [【纪录片】中国救护2 01 在抵达之前](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
+- [如何解读住建部「4楼及以上住宅都要加装电梯，解决老年群体上下楼问题 」？具体实施存在什么难点？](http://www.play.hengshemaoyi.cn/xiju/8712972.htm)
+- [女生撞脸张柏芝火了 本人回应](http://www.daogukj.com/1535718)
+- [啥是“好房子” 怎样建设](http://www.play.hengshemaoyi.cn/kongbu/2527657.htm)
+- [iPhone 18 Pro首销，门店排长队，Pro Max加价抢，Pro破发无人收，为什么差距这么大？](http://www.daogukj.com/fwgnvbgz/)
+- [1s~1h冰冻螺蛳粉挑战](http://www.daogukj.com/liomovvw/)
+- [揭秘硫磺竹笋，二氧化硫含量惊人，这样的竹笋能吃吗？恳请当地彻查硫磺竹笋，保障食品安全](http://www.play.hengshemaoyi.cn/xiju/3352880.htm)
+- [兰香如故腾讯年冠](http://www.daogukj.com/5981356)
+- [【奥术之贼01】法师vs重甲，原创西幻cg影片](http://www.play.hengshemaoyi.cn/kongbu/9556053.htm)
+- [【我在现代当幽差】EP03 因果 【UP动画】【HiShorts!XupdreamAl短片大赛-剧情单元】](http://www.movie.hkepx.cn/movie/6187870.htm)
+- [变 形 强 强 【B站笑点大赛】](http://www.movie.hkepx.cn/xiju/9816980.htm)
+- [女子淡定放生1米多长双头蛇](http://www.daogukj.com/djgtqgkc/)
+- [家委会私自用一千元班费给老师买礼物遭其他家长质疑，家委会有权这么做吗？类似事件层出不穷，根源在哪？](http://www.movie.hkepx.cn/movie/4871450.htm)
+- [为什么说穷人家孩子晚熟十年？](http://www.movie.hkepx.cn/xiju/4251876.htm)
+- [孕妇便秘用力致胎盘剥离面达4/5](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
+- [数学老师投300万拍电影 8天票房2万](http://www.movie.hkepx.cn/movie/9171667.htm)
+- [当红好莱坞女星大尺度广告翻车](http://www.daogukj.com/oeibgnih/)
 - [「不打不相识」的对抗路友情可以算是作品中的老套路了，为什么我们还能看得津津有味？](http://www.play.hengshemaoyi.cn/xiju/5921224.htm)
-- [生育后失明失聪女子妹妹父亲患罕见病](http://www.daogukj.com/jqsnmzfn/)
-- [本届亚运会混乱程度](http://www.daogukj.com/fprzebnn/)
-- [如何解读住建部「4楼及以上住宅都要加装电梯，解决老年群体上下楼问题 」？具体实施存在什么难点？](http://www.daogukj.com/2176297)
+- [舒畅脸部状态](http://www.daogukj.com/jqsnmzfn/)
+- [肉包不吃肉 没有给过餐饮授权](http://www.daogukj.com/fprzebnn/)
+- [泰国方面吐槽亚运会「选手在官方餐厅吃不饱，只能去外面吃吉野家」，本届亚运会的草台程度还能再上新高度？](http://www.daogukj.com/2176297)
 
 </details>
 
 ## 原始来源
 
-- [变 形 强 强 【B站笑点大赛】](https://b23.tv/BV1jaer6wEWm)
+- [我是美国穷人家的孩子啊啊啊啊 !](https://b23.tv/BV1sxem68Eqa)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 44e65a1e6c85cd623131 -->
+<!-- content-fingerprint: 6cf41d29f50a14fe8e2c -->
