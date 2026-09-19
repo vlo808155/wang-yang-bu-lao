@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 姐姐姐夫答应我上大学送我电脑，现在说只给5000块钱，这应该吗？
+# 为什么这两年加多宝彻底销声匿迹了？
 
-> 来源：知乎热榜 · 排名：第 15 位 · 热度：84 万热度 · 分类：问答 · 更新：2026-09-19T07:17:19+08:00
+> 来源：知乎热榜 · 排名：第 15 位 · 热度：118 万热度 · 分类：问答 · 更新：2026-09-19T09:17:49+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“姐姐姐夫答应我上大学送我电脑，现在说只给5000块钱，这应该吗？”位列第 15 位，公开热度指标为 84 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“为什么这两年加多宝彻底销声匿迹了？”位列第 15 位，公开热度指标为 118 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：我表达不清楚，导致一些朋友没弄清楚人物关系，抱歉！给大家磕头了。 "我"是妹妹，姐姐是“我”的亲姐姐，这是一对亲姐妹。 我朋友跟她俩是堂姐妹关系，所以知道这个事情，我俩就讨论了一下。我俩跟姐姐姐夫在同一个城市，有时约饭也会碰上，所以认得。 详细内容： 1、我的情况：今年上大学，省内公办专科。姐姐姐夫：23年结婚，近几年买房、装修、买车、生娃，据说是花了不少钱，目前储蓄不多。 2、姐姐姐夫答应我上大学送我电脑，高考完后姐夫说最近电脑硬件价格太高了，超出正常的价值，建议我先不要买，毕竟我刚上大一，不着急用，等电脑价格后面看有没有回调，可以等等。 3、我开学后
+知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [“当确实型人格遇上反驳型人格”](jing-yi-qiu-jing.md)
-- [也门局势突变 又一个海峡危险了](jiao-ta-shi-di.md)
-- [罗永浩评价难吃为何大众不买账了](shi-shi-qiu-shi.md)
-- [业主买下1层4户圈占公共走廊](chi-zhi-yi-heng.md)
+- [俺叫蔓小迪，一坨立誓成为”救世主“的泡沫💪！](jing-yi-qiu-jing.md)
+- [于东来正被自己的人设绑架](jiao-ta-shi-di.md)
+- [王一博嘉人十月刊封面宣发节奏](shi-shi-qiu-shi.md)
+- [人民网评罗永浩说野人先生难吃](chi-zhi-yi-heng.md)
 
 ## 站内推荐
 
-- [住建部：4楼及以上住宅都要加装电梯](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [中国男篮大比分不敌日本](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [住建部：支持老旧房屋原拆原建](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [沙特首都利雅得遭空袭](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [周鸿祎称 「吃过一次亏，不会再投资新能源车」，他在新能源赛道踩了什么坑？其投资逻辑发生了哪些转变？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [亚运会大巴迷路，司机打开纸质地图找方向，韩国选手吐槽「传奇司机」，日本不至于连导航都没普及吧？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
 - [中国男篮 77-97 不敌日本男篮后，网友称让郭士强下课，如何评价这场比赛他的战术安排？真的有问题吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [为什么单纯陈列学术资料，很难让普通伪史论信徒接受？伪史论的传播机制是否更接近一种“精神胜利叙事”？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [办公楼进来条蛇，我被惊吓后把它打死了，事后发现这是国家保护动物，我需要负法律责任吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [Tropical fruit slicing animation](http://www.daogukj.com/baxpihzh/)
-- [郑合惠子演技好牛](http://www.play.hengshemaoyi.cn/kongbu/2062726.htm)
-- [今年前8个月全国上线微短剧43万部，其中AI剧占比超九成，广电总局表示要大力扶持真人剧，透露哪些信号？](http://www.daogukj.com/1315659)
-- [变 形 强 强 【B站笑点大赛】](http://www.play.hengshemaoyi.cn/xiju/2704335.htm)
-- [也门局势突变 又一个海峡危险了](http://www.daogukj.com/lumregqz/)
-- [【徐静雨】亚运会男篮不敌日本二队，全方位差距，根本打不过！](http://www.daogukj.com/kwbyfzbo/)
-- [中国工人为何成为蒙古外籍劳工主力](http://www.movie.hkepx.cn/movie/4575020.htm)
-- [办公楼进来条蛇，我被惊吓后把它打死了，事后发现这是国家保护动物，我需要负法律责任吗？](http://www.daogukj.com/1670070)
-- [中国男篮不敌日本无缘决赛](http://www.play.hengshemaoyi.cn/xiju/3416396.htm)
-- [运动员展示亚运房间：全是纸板做的](http://www.daogukj.com/1634277)
-- [郭士强 下课](http://www.daogukj.com/5380912)
+- [绘就丰收画卷 这四个地方给出答案](http://www.daogukj.com/baxpihzh/)
+- [吕蕺儿当花魁救了兰香](http://www.play.hengshemaoyi.cn/kongbu/2062726.htm)
+- [1s~1h冰冻螺蛳粉挑战](http://www.daogukj.com/1315659)
+- [《篡改正史 | 正史改竄》MV：本案，审查不合格【AI MV大赛】](http://www.play.hengshemaoyi.cn/xiju/2704335.htm)
+- [于东来正被自己的人设绑架](http://www.daogukj.com/lumregqz/)
+- [变 形 强 强 【B站笑点大赛】](http://www.daogukj.com/kwbyfzbo/)
+- [国乒男单签表出炉：王楚钦张本同半区](http://www.movie.hkepx.cn/movie/4575020.htm)
+- [【纪录片】生命奇观2 01 内蒙古高原](http://www.daogukj.com/1670070)
+- [韩国选手听到朝鲜国歌集体慌乱](http://www.play.hengshemaoyi.cn/xiju/3416396.htm)
+- [中国的小偷为何断崖式下降](http://www.daogukj.com/1634277)
+- [郭士强下课冲上热搜](http://www.daogukj.com/5380912)
 - [中国男篮 77-97 不敌日本男篮后，网友称让郭士强下课，如何评价这场比赛他的战术安排？真的有问题吗？](http://www.movie.hkepx.cn/xiju/8054512.htm)
-- [物理学家：AI可能以巨大失望告终](http://www.daogukj.com/7644617)
-- [油价预计9月24日24时上调](http://www.daogukj.com/5432364)
-- [【1931.9.18-2026.9.18】九一八事变爆发95周年，请留一分钟](http://www.play.hengshemaoyi.cn/xiju/0868894.htm)
-- [男子高空作业绳子被2楼老人剪断](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
-- [佟丽娅回应在董璇婚礼上表情严肃](http://www.play.hengshemaoyi.cn/xiju/2616443.htm)
-- [郑合惠子没有感情全是演技](http://www.daogukj.com/0678164)
-- [揭秘硫磺竹笋，二氧化硫含量惊人，这样的竹笋能吃吗？恳请当地彻查硫磺竹笋，保障食品安全](http://www.daogukj.com/4244457)
-- [为什么英文称中国为 China，而不是按照中文读音叫 Zhongguo？](http://www.movie.hkepx.cn/movie/9295074.htm)
-- [如何看待住房城乡建设部称「我国房地产进入存量时代」？未来房地产行业将如何发展？房价如何变化？](http://www.play.hengshemaoyi.cn/xiju/0913157.htm)
-- [养生的风终于吹到了月饼行业](http://www.movie.hkepx.cn/movie/2532435.htm)
-- [特朗普称获格陵兰岛安全永久控制权](http://www.play.hengshemaoyi.cn/kongbu/9083706.htm)
-- [中国男篮回应不敌日本队](http://www.movie.hkepx.cn/xiju/0437055.htm)
-- [中国男篮大比分不敌日本](http://www.play.hengshemaoyi.cn/xiju/0405943.htm)
-- [拖欠员工公积金 娃哈哈致歉](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
-- [男童在自家鱼塘触电截肢 索赔309万](http://www.daogukj.com/8118057)
-- [兵马俑捡到游客手机，结果没想到......](http://www.play.hengshemaoyi.cn/xiju/3197658.htm)
-- [高校考试开考9分钟试卷就被外传](http://www.play.hengshemaoyi.cn/kongbu/3085425.htm)
-- [心梗脑梗与哪些因素有关](http://www.movie.hkepx.cn/movie/4468433.htm)
-- [中国男篮比分被修正为77比97日本](http://www.movie.hkepx.cn/xiju/0951693.htm)
-- [印度媒体吐槽名古屋亚运会「要是换成印度这么干，早就被骂翻成全球丑闻了」，对此你怎么看？](http://www.movie.hkepx.cn/movie/5267051.htm)
-- [互相求婚？美国女孩和我为什么要这样做](http://www.daogukj.com/3228319)
-- [人民网评罗永浩说野人先生难吃](http://www.movie.hkepx.cn/xiju/0255674.htm)
-- [长期吃腐乳到底对身体好不好](http://www.play.hengshemaoyi.cn/kongbu/6482335.htm)
-- [阿祖从军记（二）](http://www.daogukj.com/cmwhbpsa/)
-- [崔永熙回应输日本男篮](http://www.daogukj.com/6408302)
-- [“当确实型人格遇上反驳型人格”](http://www.play.hengshemaoyi.cn/kongbu/6504187.htm)
-- [住建部：4楼及以上住宅都要加装电梯](http://www.movie.hkepx.cn/xiju/8353840.htm)
-- [为什么生意再小，赚钱的速度都远超打工？](http://www.daogukj.com/jhhicgnj/)
-- [平陆运河释放多重红利](http://www.play.hengshemaoyi.cn/xiju/2201754.htm)
-- [媒体：于东来正被自己的人设绑架](http://www.movie.hkepx.cn/xiju/9904424.htm)
-- [梅毒越来越困扰年轻人](http://www.play.hengshemaoyi.cn/xiju/7993084.htm)
-- [猫科动物又上新了](http://www.movie.hkepx.cn/xiju/2553336.htm)
-- [乒乓球赛事后勤保障争议](http://www.play.hengshemaoyi.cn/kongbu/6028567.htm)
-- [有消息传智谱Zcode会上传用户的全量Git操作，这是否属实？](http://www.play.hengshemaoyi.cn/xiju/6306862.htm)
-- [绵阳一养猪场单日死亡500头猪不实](http://www.movie.hkepx.cn/xiju/2775713.htm)
-- [秦始皇祖母陵墓或现世](http://www.movie.hkepx.cn/movie/5485785.htm)
-- [“青山作证水为媒，白头到老也无悔。”](http://www.play.hengshemaoyi.cn/xiju/5094963.htm)
-- [这个小学生用烂梗骂人，惹怒7.8万人，满嘴烂梗的小学生，本质上就是油腻老登!](http://www.play.hengshemaoyi.cn/kongbu/1178935.htm)
+- [佟丽娅回应主持央视春晚相关传言](http://www.daogukj.com/7644617)
+- [墨西哥阅兵现场惊现UFO？和军机同框](http://www.daogukj.com/5432364)
+- [琵琶曲丨悟空 VS 如来](http://www.play.hengshemaoyi.cn/xiju/0868894.htm)
+- [于东来考察胖东来梦之城建设](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
+- [睡觉时将双手举过头顶的「投降式」睡姿，其实是身体在求救，这是真的吗？会带来哪些影响？怎样的睡姿最科学？](http://www.play.hengshemaoyi.cn/xiju/2616443.htm)
+- [黄牛都不看的iPhone 18 Pro谁在买](http://www.daogukj.com/0678164)
+- [油价预计9月24日24时上调](http://www.daogukj.com/4244457)
+- [松岛辉空说亚运会日本男乒「只发挥50%-60%也有机会击败中国队」对此你怎么看？](http://www.movie.hkepx.cn/movie/9295074.htm)
+- [【我在现代当幽差】EP03 因果 【UP动画】【HiShorts!XupdreamAl短片大赛-剧情单元】](http://www.play.hengshemaoyi.cn/xiju/0913157.htm)
+- [毛东东随团访朝 向毛岸英铜像祭酒](http://www.movie.hkepx.cn/movie/2532435.htm)
+- [蒸十笼包子，最上面的先熟还是最下面的先熟？](http://www.play.hengshemaoyi.cn/kongbu/9083706.htm)
+- [中国篮球国家队回应“男篮负日本”](http://www.movie.hkepx.cn/xiju/0437055.htm)
+- [周鸿祎称 「吃过一次亏，不会再投资新能源车」，他在新能源赛道踩了什么坑？其投资逻辑发生了哪些转变？](http://www.play.hengshemaoyi.cn/xiju/0405943.htm)
+- [产后失明失聪女子：从不后悔生娃](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
+- [拖欠员工公积金 娃哈哈致歉](http://www.daogukj.com/8118057)
+- [中国篮球之队回应负于日本男篮](http://www.play.hengshemaoyi.cn/xiju/3197658.htm)
+- [特朗普称获格陵兰岛永久安全控制权](http://www.play.hengshemaoyi.cn/kongbu/3085425.htm)
+- [2名外籍游客抱出侧翻被困车中老人](http://www.movie.hkepx.cn/movie/4468433.htm)
+- [生育后失明失聪女子妹妹父亲患罕见病](http://www.movie.hkepx.cn/xiju/0951693.htm)
+- [《镜头之后#7》——老八](http://www.movie.hkepx.cn/movie/5267051.htm)
+- [吉林出现野生东北虎“五虎同框”](http://www.daogukj.com/3228319)
+- [在岸、离岸人民币兑美元双双升破 6.7，创 2023 年以来新高，受哪些因素影响？](http://www.movie.hkepx.cn/xiju/0255674.htm)
+- [曝 IG 投诉前 LPL 解说 Wayward 成功并致其无限期禁播，对电竞直播言论边界有何警示？](http://www.play.hengshemaoyi.cn/kongbu/6482335.htm)
+- [重生一次，我还是选她【01-11】【完结】](http://www.daogukj.com/cmwhbpsa/)
+- [旧手机格式化也不安全](http://www.daogukj.com/6408302)
+- [俺叫蔓小迪，一坨立誓成为”救世主“的泡沫💪！](http://www.play.hengshemaoyi.cn/kongbu/6504187.htm)
+- [沙特首都利雅得遭空袭](http://www.movie.hkepx.cn/xiju/8353840.htm)
+- [「不打不相识」的对抗路友情可以算是作品中的老套路了，为什么我们还能看得津津有味？](http://www.daogukj.com/jhhicgnj/)
+- [中国男篮 77-97 不敌日本男篮无缘决赛，失利的原因是什么？暴露了当下中国男篮的哪些问题短板？](http://www.play.hengshemaoyi.cn/xiju/2201754.htm)
+- [泰国方面吐槽亚运会「选手在官方餐厅吃不饱，只能去外面吃吉野家」，本届亚运会的草台程度还能再上新高度？](http://www.movie.hkepx.cn/xiju/9904424.htm)
+- [杨毅谈中国男篮不敌日本](http://www.play.hengshemaoyi.cn/xiju/7993084.htm)
+- [本届亚运会混乱程度](http://www.movie.hkepx.cn/xiju/2553336.htm)
+- [媒体：于东来正被自己的人设绑架](http://www.play.hengshemaoyi.cn/kongbu/6028567.htm)
+- [如何解读住建部「4楼及以上住宅都要加装电梯，解决老年群体上下楼问题 」？具体实施存在什么难点？](http://www.play.hengshemaoyi.cn/xiju/6306862.htm)
+- [张凯毅官宣离婚](http://www.movie.hkepx.cn/xiju/2775713.htm)
+- [如何评价31岁博士辞医院工作去送外卖、做驻唱？现代社会如何看待人选择生活方式的自由，探索生活的可能性？](http://www.movie.hkepx.cn/movie/5485785.htm)
+- [重返渴望现场｜百事可乐音乐盛典完整回放正式上线！](http://www.play.hengshemaoyi.cn/xiju/5094963.htm)
+- [绵阳一养猪场单日死亡500头猪不实](http://www.play.hengshemaoyi.cn/kongbu/1178935.htm)
 
 </details>
 
 ## 原始来源
 
-- [姐姐姐夫答应我上大学送我电脑，现在说只给5000块钱，这应该吗？](https://www.zhihu.com/question/2083872661831263836)
+- [为什么这两年加多宝彻底销声匿迹了？](https://www.zhihu.com/question/312268331)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: afdf06e19075ea2aeb9d -->
+<!-- content-fingerprint: f19736374621fe717f64 -->
