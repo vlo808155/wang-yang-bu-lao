@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何评价2026年9月米哈游《崩坏星穹铁道》4.6版本前瞻直播【月升之前，与兽共舞】？
+# 郑丽文：100%把握让国民党2028上台
 
-> 来源：知乎热榜 · 排名：第 15 位 · 热度：149 万热度 · 分类：问答 · 更新：2026-09-20T22:51:39+08:00
+> 来源：今日头条热榜 · 排名：第 15 位 · 热度：5026904 · 更新：2026-09-21T01:44:05+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何评价2026年9月米哈游《崩坏星穹铁道》4.6版本前瞻直播【月升之前，与兽共舞】？”位列第 15 位，公开热度指标为 149 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“郑丽文：100%把握让国民党2028上台”位列第 15 位，公开热度指标为 5026904。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：[图片]
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [《反乌托邦Pt2》，但是反驳型人格](rong-hui-guan-tong.md)
-- [谢金燕 没戴麦](ji-si-guang-yi.md)
-- [胡塞袭击沙特 为何没人真正下场帮忙](qu-chang-bu-duan.md)
-- [沙特关键输油管道遇袭停运，沙特阿美下月全面暂停对欧洲原油交付，该管道日均出口 500 万桶，有何影响？](jing-yi-qiu-jing.md)
+- [许嵩与冯禧官宣结婚，女方是其多年粉丝且两人相差 14 岁，你如何看待这对「偶像与粉丝」的结合？](rong-hui-guan-tong.md)
+- [循环歌单|【Star Crossing Night】|“【校规の小曲】”](ji-si-guang-yi.md)
+- [冯禧孙乐言冯琳是同班同学](qu-chang-bu-duan.md)
+- [媒体人评男篮输球：主帅不该背所有锅](jing-yi-qiu-jing.md)
 
 ## 站内推荐
 
 - [【独家】牧神记 第101集 巫法杀人](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [清华毕业生38岁上北大 同学已是教授](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [已婚女子与男子开房次日全裸身亡](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [「北国特快计划」原神同人特别节目【HoYoFair x bilibilionly】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [亚运会颁奖礼仪人员好多大爷大妈](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [警方通报重庆嘉陵江大桥上现滑翔伞](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [师生恋在在职教师和学生身上不成立](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [编程领域「代码能跑就不要动它」，是普遍真理还是技术债借口？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [【杀死比赛】真人演唱殿堂级宏大交响重构版《琵琶曲》](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [湾区升明月](http://www.movie.hkepx.cn/xiju/5307975.htm)
+- [把配料表中的白砂糖还给我们](http://www.movie.hkepx.cn/xiju/5307975.htm)
 - [司机好心补路、拉绳警示，导致路过女子被绳索勒颈身亡，被以过失致人死亡罪逮捕，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/2609609.htm)
-- [如何看待潮州一腊味厂使用死因不明的猪肉加工肉脯，经检测猪病毒阳性，警方已立案？会对健康造成什么影响？](http://www.daogukj.com/0409437)
-- [假唱](http://www.movie.hkepx.cn/xiju/9563004.htm)
-- [亚运会乒乓球](http://www.daogukj.com/irdcrmjv/)
+- [如何评价河南40岁数学老师自费 300 万拍的电影票房仅有 2.4 万元？普通人能做电影梦吗？](http://www.daogukj.com/0409437)
+- [潘展乐最后一米前都觉得要输了](http://www.movie.hkepx.cn/xiju/9563004.htm)
+- [马竞2比1皇马](http://www.daogukj.com/irdcrmjv/)
 - [今起公积金提取场景6变9](http://www.play.hengshemaoyi.cn/kongbu/8052623.htm)
-- [他的秘密](http://www.play.hengshemaoyi.cn/xiju/2544606.htm)
-- [《反乌托邦Pt2》，但是反驳型人格](http://www.daogukj.com/yxaiauxe/)
-- [快讯！艾莲与耀嘉音即将登陆星穹列车！](http://www.daogukj.com/hfysjbhb/)
-- [田曦薇绿色拖尾旗袍](http://www.play.hengshemaoyi.cn/xiju/9852517.htm)
-- [秦始皇陵水银来源被找到](http://www.movie.hkepx.cn/movie/6952786.htm)
-- [2026湾区升明月晚会](http://www.play.hengshemaoyi.cn/kongbu/6044698.htm)
-- [女子与男性饮酒后入住宾馆 次日猝死](http://www.play.hengshemaoyi.cn/kongbu/2966437.htm)
-- [母亲赶到家时两兄妹已被胡蜂蜇亡](http://www.movie.hkepx.cn/xiju/5545431.htm)
-- [谢金燕 没戴麦](http://www.daogukj.com/7790597)
-- [正视](http://www.movie.hkepx.cn/xiju/8694011.htm)
-- [评分9.3！长大能有多苦涩？重温野比大雄的人生！咋和童年看着不一样？【瓶子君152】](http://www.movie.hkepx.cn/movie/5422234.htm)
+- [《崩坏：星穹铁道》4.6版本PV：「月升之前，与兽共舞」](http://www.play.hengshemaoyi.cn/xiju/2544606.htm)
+- [许嵩与冯禧官宣结婚，女方是其多年粉丝且两人相差 14 岁，你如何看待这对「偶像与粉丝」的结合？](http://www.daogukj.com/yxaiauxe/)
+- [陌生的女人，竟在我家偷偷住了二十年....](http://www.daogukj.com/hfysjbhb/)
+- [谢金燕 没戴麦](http://www.play.hengshemaoyi.cn/xiju/9852517.htm)
+- [中国篮球队：将总结亚运会暴露的问题](http://www.movie.hkepx.cn/movie/6952786.htm)
+- [华为阔直板手机登顶周销量榜单](http://www.play.hengshemaoyi.cn/kongbu/6044698.htm)
+- [【传奇耐熬王】荒野独居2026👊全球最高规格荒野比赛🔪世界各地绝活哥前来参赛...兔王鹿王鱼王大战！](http://www.play.hengshemaoyi.cn/kongbu/2966437.htm)
+- [湾区升明月](http://www.movie.hkepx.cn/xiju/5545431.htm)
+- [循环歌单|【Star Crossing Night】|“【校规の小曲】”](http://www.daogukj.com/7790597)
+- [这牌咋样？](http://www.movie.hkepx.cn/xiju/8694011.htm)
+- [【STN快报第8.5季21】索尼把金刚狼做成了金刚](http://www.movie.hkepx.cn/movie/5422234.htm)
 - [“安居钱”越来越好用了](http://www.daogukj.com/hygudrhy/)
 - [住建局回应5公里路面500个井盖](http://www.movie.hkepx.cn/xiju/6712464.htm)
 - [我国制造业高端化转型加速](http://www.movie.hkepx.cn/xiju/3635472.htm)
-- [潘展乐谈反超夺金：心里一直憋着口气](http://www.daogukj.com/1094500)
-- [汪顺夺男子200米个人混合泳铜牌](http://www.daogukj.com/kjnonujn/)
-- [潘展乐反超夺金](http://www.movie.hkepx.cn/movie/2005213.htm)
-- [如何评价中国男篮不敌伊朗无缘奖牌，以亚运会第4名惨淡收官，创历史第二差成绩？中国男篮的问题到底出在哪？](http://www.movie.hkepx.cn/xiju/4140224.htm)
+- [中国队一天11枚金牌](http://www.daogukj.com/1094500)
+- [《花骨朵》亚细亚旷世奇才/洛天依](http://www.daogukj.com/kjnonujn/)
+- [罗梅罗踩踏贝林厄姆](http://www.movie.hkepx.cn/movie/2005213.htm)
+- [2026湾区升明月晚会](http://www.movie.hkepx.cn/xiju/4140224.htm)
 - [男篮主帅郭士强回应输球](http://www.movie.hkepx.cn/xiju/2598641.htm)
-- [清华毕业生38岁上北大 同学已是教授](http://www.daogukj.com/idbcchjh/)
-- [周深 音响没问题你们唱吧](http://www.movie.hkepx.cn/xiju/2099126.htm)
-- [新能源车正在走向“消亡”吗](http://www.daogukj.com/fqrljege/)
-- [佟丽娅拒绝参与行业奖项评选，不愿承受获奖后非议，如何看待这一选择？作品口碑能否替代奖项认可？](http://www.daogukj.com/gjlzfppj/)
-- [编程领域「代码能跑就不要动它」，是普遍真理还是技术债借口？](http://www.movie.hkepx.cn/movie/2153704.htm)
-- [如何评价孙艺珍、池昌旭主演的韩剧《挑情丑闻》？](http://www.daogukj.com/cxpctjvk/)
-- [张凌赫 假唱](http://www.movie.hkepx.cn/xiju/0125063.htm)
-- [许嵩与冯禧官宣结婚，女方是其多年粉丝且两人相差 14 岁，你如何看待这对「偶像与粉丝」的结合？](http://www.movie.hkepx.cn/movie/5966591.htm)
-- [【逐影集趣】DP全关卡攻略 摆完挂机 简单好抄](http://www.play.hengshemaoyi.cn/xiju/2133033.htm)
-- [宁波夜市砸瓜事件，双方已签订调解协议书，动手一方赔偿西瓜摊主 6 万多元，怎样看待这一结果？](http://www.daogukj.com/tyanyuwx/)
-- [县城财政收入2亿支出近20亿](http://www.movie.hkepx.cn/xiju/0508741.htm)
-- [中国男篮队员身心严重疲劳](http://www.play.hengshemaoyi.cn/kongbu/9417431.htm)
-- [打击商K 连锁反应](http://www.movie.hkepx.cn/movie/9354072.htm)
-- [如何看待2026年9月20日，ZCode承诺开源超过1天但还没开源？](http://www.movie.hkepx.cn/xiju/0708358.htm)
-- [依旧获得优先择偶权](http://www.daogukj.com/ozjlrwei/)
-- [《花骨朵》亚细亚旷世奇才/洛天依](http://www.play.hengshemaoyi.cn/xiju/7882271.htm)
-- [泰国教练晒亚运午餐仅3块鸡肉](http://www.movie.hkepx.cn/xiju/7392987.htm)
+- [警方通报重庆嘉陵江大桥上现滑翔伞](http://www.daogukj.com/idbcchjh/)
+- [章子怡 脸](http://www.movie.hkepx.cn/xiju/2099126.htm)
+- [徐洁儿艾特错王俊凯](http://www.daogukj.com/fqrljege/)
+- [如何评价孙艺珍、池昌旭主演的韩剧《挑情丑闻》？](http://www.daogukj.com/gjlzfppj/)
+- [李克勤献唱《秒针》](http://www.movie.hkepx.cn/movie/2153704.htm)
+- [苹果闹钟终于认中国调休了](http://www.daogukj.com/cxpctjvk/)
+- [崔健](http://www.movie.hkepx.cn/xiju/0125063.htm)
+- [名古屋亚运会为啥办得这么抠搜？是真没钱，还是背后有啥心思？](http://www.movie.hkepx.cn/movie/5966591.htm)
+- [采访了刘慈欣](http://www.play.hengshemaoyi.cn/xiju/2133033.htm)
+- [有观点称于东来正被「大家长」人设绑架，是这样吗？为什么宠员工叙事曾让他圈粉无数，如今相同话术却被嘲？](http://www.daogukj.com/tyanyuwx/)
+- [西贝还能撑多久](http://www.movie.hkepx.cn/xiju/0508741.htm)
+- [声幻娱乐声明](http://www.play.hengshemaoyi.cn/kongbu/9417431.htm)
+- [妈妈送的金项链没挂到张家齐脖子上](http://www.movie.hkepx.cn/movie/9354072.htm)
+- [手机掉在网约车上，司机要价五六百才肯归还，我该如何维权？](http://www.movie.hkepx.cn/xiju/0708358.htm)
+- [评分9.3！长大能有多苦涩？重温野比大雄的人生！咋和童年看着不一样？【瓶子君152】](http://www.daogukj.com/ozjlrwei/)
+- [2627赛季西甲联赛西甲第7轮马德里竞技 2:1 皇家马德里，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/7882271.htm)
+- [新能源车正在走向“消亡”吗](http://www.movie.hkepx.cn/xiju/7392987.htm)
 - [猫为什么敢咬主人，它不怕被打被抛弃吗，它忍心下口吗，它不爱主人吗?](http://www.movie.hkepx.cn/xiju/3057735.htm)
-- [韩国男篮亚运夺冠免除兵役](http://www.daogukj.com/7724415)
+- [赵家驹否认背包里有裹尸布](http://www.daogukj.com/7724415)
 - [西贝来到“生死线”边缘](http://www.movie.hkepx.cn/xiju/7394575.htm)
 - [【独家】牧神记 第101集 巫法杀人](http://www.play.hengshemaoyi.cn/kongbu/1461320.htm)
-- [名古屋亚运会为啥办得这么抠搜？是真没钱，还是背后有啥心思？](http://www.movie.hkepx.cn/movie/9245741.htm)
-- [47岁男子称儿女都非亲生 妻子发声](http://www.movie.hkepx.cn/movie/4514053.htm)
+- [疑谷歌 Gemini4Pro 「偷跑」上线，网传碾压 GPT-6Astra，如何评价？](http://www.movie.hkepx.cn/movie/9245741.htm)
+- [依旧获得优先择偶权](http://www.movie.hkepx.cn/movie/4514053.htm)
 - [老外的厕所究竟叫不叫“WC”？](http://www.daogukj.com/8315110)
-- [为何说妻子是赵家驹夺冠最大功臣](http://www.play.hengshemaoyi.cn/kongbu/1549451.htm)
+- [日本发现失联“全球鹰”无人机残骸](http://www.play.hengshemaoyi.cn/kongbu/1549451.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何评价2026年9月米哈游《崩坏星穹铁道》4.6版本前瞻直播【月升之前，与兽共舞】？](https://www.zhihu.com/question/2084011857619296573)
+- [郑丽文：100%把握让国民党2028上台](https://www.toutiao.com/trending/7687136723365707817/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227687136723365707817%22%2C%22hot_board_impr_id%22%3A%22202609210144023263E5B796BAEF94319D%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b2664ee346a4e33d3529 -->
+<!-- content-fingerprint: c0acadd4cab66fe2e4f3 -->
