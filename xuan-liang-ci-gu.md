@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 男子造谣宁德时代员工裸奔被行拘
+# 长沙一公司因每周上班三天半月薪七千遭质疑，公司回应不为博流量，希望员工有时间陪家人，这种模式能推广吗？
 
-> 来源：今日头条热榜 · 排名：第 13 位 · 热度：7109751 · 分类：辟谣 · 更新：2026-09-21T09:36:40+08:00
+> 来源：知乎热榜 · 排名：第 13 位 · 热度：182 万热度 · 分类：问答 · 更新：2026-09-21T15:05:22+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“男子造谣宁德时代员工裸奔被行拘”位列第 13 位，公开热度指标为 7109751，榜单分类为“辟谣”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“长沙一公司因每周上班三天半月薪七千遭质疑，公司回应不为博流量，希望员工有时间陪家人，这种模式能推广吗？”位列第 13 位，公开热度指标为 182 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：“一周只用工作3天半，不鼓励加班”，9月14日，湖南长沙一家公司向全员发布反向减班的工作制度，引来网友关注。 15日，该公司负责人朱先生告诉记者，这一制度已正式向员工公布执行，比法定多休的一天半时间，也会正常发薪水。 公司公布的工作制度。 记者在该公司官方账号上看到了这份工作制度文件，文件名为“每周四半天、每周五全天带薪休假通知”，通知中称，公司实行3.5天工作制，周有效工时26小时：周一、周二、周三全天上班（10:00至18:30，7.5小时工作，午休1小时）；周四3.5小时，半天上班（10:00至14:30）；周五、周六、周日全天休息。女性员工每个月
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `辟谣`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [沙特首都利雅得凌晨遭遇空袭，现场传出导弹拦截声响，可能是哪一方发动的袭击？](zao-bi-tou-guang.md)
-- [评分9.3！长大能有多苦涩？重温野比大雄的人生！咋和童年看着不一样？【瓶子君152】](nang-ying-ying-xue.md)
-- [母亲赶到家时两兄妹已被胡蜂蜇亡](cheng-men-li-xue.md)
-- [王俊凯妈妈给王俊凯庆生](shou-bu-shi-juan.md)
+- [让村民们自己发展6个小时，回来后我竟然被架空了](zao-bi-tou-guang.md)
+- [歼-35A官方代号正式公布](nang-ying-ying-xue.md)
+- [王源易烊千玺给王俊凯的祝福](cheng-men-li-xue.md)
+- [医保个人账户里的钱可以怎么用](shou-bu-shi-juan.md)
 
 ## 站内推荐
 
-- [今起公积金提取场景6变9](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [华为阔直板新机为何热销](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [评论员：中国男篮需要上“猛药”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [侯明昊登台演唱《黄种人》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [古力娜扎素色抹胸纱裙造型](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [未来五年循环经济怎样融入日常](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [男子花17元网购空礼盒装入散装月饼](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [红薯真的会让血脂越来越高吗？误解](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [如果记忆可以选择，你会留下什么，又会「删除」什么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [【三国杀×猪猪侠联动】新武将！新皮肤！新玩法！新场景！版本内容抢先看！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [大一新生军训跑去旅游，学校报警寻人，教官被处分，取消留役资格，新生称勇敢的人先享受人生，如何看待此事？](http://www.movie.hkepx.cn/xiju/1653219.htm)
-- [是什么让北大复旦校长都如此紧张](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
-- [神兽厨房：给梅山来的7位客人做饭](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
-- [“安居钱”越来越好用了](http://www.daogukj.com/ceegkpfb/)
-- [华强找茬 但是全惹不起](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
-- [妈妈送的金项链没挂到张家齐脖子上](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
-- [13岁女孩模拟外交发言走红全网](http://www.movie.hkepx.cn/xiju/2935808.htm)
-- [日本发现失联“全球鹰”无人机残骸](http://www.movie.hkepx.cn/movie/6067835.htm)
-- [陌生的女人，竟在我家偷偷住了二十年....](http://www.movie.hkepx.cn/movie/1919789.htm)
-- [华为阔直板新机为何热销](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
-- [沙特首都利雅得凌晨遭遇空袭，现场传出导弹拦截声响，可能是哪一方发动的袭击？](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
-- [胡塞武装称沙特空袭也门致4人死亡](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
-- [循环歌单|【Star Crossing Night】|“【校规の小曲】”](http://www.movie.hkepx.cn/xiju/8738765.htm)
-- [评论员：中国男篮需要上“猛药”](http://www.play.hengshemaoyi.cn/xiju/4131259.htm)
-- [妈妈生五胞胎 养娃7个月爸爸瘦22斤](http://www.daogukj.com/5961107)
-- [“乡土凝存温情，善念永续流年.”【Blue Dragon-Inst】【乡土の小曲】](http://www.daogukj.com/4005019)
-- [郑丽文：100%把握让国民党2028上台](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
-- [当那一天真的来临，我们不会孤军奋战 | 元素战争：破晓 【原神HoYoFair x bilibilionly】](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
-- [如何评价男子患尘肺举报公司，却因在不具备防护条件下接受存在职业病危害作业被罚5万，卫健局随后撤销处罚？](http://www.movie.hkepx.cn/xiju/3802162.htm)
-- [章子怡体重从49增加到55kg](http://www.daogukj.com/4160322)
-- [侯明昊登台演唱《黄种人》](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
-- [这牌咋样？](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
-- [“平价小山姆”怎么火了](http://www.movie.hkepx.cn/movie/5796961.htm)
-- [10岁男孩轻生溺亡 班主任不予批捕](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
-- [把配料表中的白砂糖还给我们](http://www.daogukj.com/6018961)
-- [农民交公粮 养老金](http://www.daogukj.com/efehcbta/)
-- [沙特关键输油管道遇袭停运，沙特阿美下月全面暂停对欧洲原油交付，该管道日均出口 500 万桶，有何影响？](http://www.daogukj.com/7846527)
-- [古力娜扎素色抹胸纱裙造型](http://www.movie.hkepx.cn/movie/2779517.htm)
-- [韩国人知道怎么说话最扎心](http://www.daogukj.com/5137842)
-- [闲鱼暗藏涉黄产业链 涉未成年少女](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
-- [仅5.87MB？全新重构Bongocat，推荐所有人使用！](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
-- [长沙电动车时速超25码要被抓不实](http://www.daogukj.com/2275454)
-- [王俊凯妈妈给王俊凯庆生](http://www.movie.hkepx.cn/movie/8955518.htm)
-- [今起公积金提取场景6变9](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
-- [胡歌模仿刘德华唱《来生缘》](http://www.daogukj.com/3040545)
-- [阿尔茨海默病患者不再认识家人后，还能感受到熟悉、信任和爱吗？](http://www.movie.hkepx.cn/movie/0072136.htm)
-- [湾区升明月三个破百万视频](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
-- [评分9.3！长大能有多苦涩？重温野比大雄的人生！咋和童年看着不一样？【瓶子君152】](http://www.movie.hkepx.cn/xiju/2548466.htm)
-- [网贷为什么敢借钱给根本还不起的人？](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
-- [莫斯科这一幕 震惊全世界](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
-- [亲生父母将非婚生女交给保姆不闻不问](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
-- [周也哭戏被嘲](http://www.movie.hkepx.cn/movie/0563740.htm)
-- [【独家】牧神记 第101集 巫法杀人](http://www.play.hengshemaoyi.cn/xiju/5085308.htm)
-- [刚离职，又想回去了，怎么办？](http://www.movie.hkepx.cn/xiju/6484379.htm)
-- [欧美同行感慨中国抑制了国际油价飙升](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
-- [不要找太漂亮的老头演祖父](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
-- [王楚钦打第三局发现搞错比分](http://www.movie.hkepx.cn/movie/4954417.htm)
-- [美股三大股指期货集体拉升](http://www.daogukj.com/8556378)
-- [男子花84.51万拍下省财政厅公物仓「金观音」，一测几乎全是铜，物品系收缴赃物，问题出在哪？](http://www.daogukj.com/0551116)
-- [中国人买黄金的逻辑变了吗](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
+- [【逐影集趣】DP全关卡攻略 摆完挂机 简单好抄](http://www.movie.hkepx.cn/xiju/1653219.htm)
+- [吸烟 取消学费减免](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
+- [长期碎片化睡眠的危害是全身性的](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
+- [万千气象看吉林](http://www.daogukj.com/ceegkpfb/)
+- [《异环》黑羽角色PV丨「魔女」的工作](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
+- [如何解读国务院国资委称「中央企业带头及时支付账款」？对此还有哪些细节值得关注？](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
+- [苹果闹钟终于认中国调休了](http://www.movie.hkepx.cn/xiju/2935808.htm)
+- [13岁于子迪破亚运纪录](http://www.movie.hkepx.cn/movie/6067835.htm)
+- [「白鸽归乡」哥伦比娅花样滑冰短片【HoYoFair x bilibilionly】](http://www.movie.hkepx.cn/movie/1919789.htm)
+- [男子花17元网购空礼盒装入散装月饼](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
+- [让村民们自己发展6个小时，回来后我竟然被架空了](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
+- [中国人的潮流初恋回来了](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
+- [盛李豪全满贯](http://www.movie.hkepx.cn/xiju/8738765.htm)
+- [红薯真的会让血脂越来越高吗？误解](http://www.play.hengshemaoyi.cn/xiju/4131259.htm)
+- [注射司美格鲁肽的人后来怎样了](http://www.daogukj.com/5961107)
+- [采访了刘慈欣](http://www.daogukj.com/4005019)
+- [第36集|外卖小哥穿越修仙世界，徒手斗恶龙](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
+- [闲鱼客服致歉](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
+- [男子花84.51万拍下省财政厅公物仓「金观音」，一测几乎全是铜，物品系收缴赃物，问题出在哪？](http://www.movie.hkepx.cn/xiju/3802162.htm)
+- [刚离职，又想回去了，怎么办？](http://www.daogukj.com/4160322)
+- [如果记忆可以选择，你会留下什么，又会「删除」什么？](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
+- [买聚能环致妻儿死亡男子发声](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
+- [王祖贤隐退22年后首个访谈](http://www.movie.hkepx.cn/movie/5796961.htm)
+- [中秋国庆出行提前加满油](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
+- [五中全会召开日期公布](http://www.daogukj.com/6018961)
+- [杭州电梯事件](http://www.daogukj.com/efehcbta/)
+- [闫妮的微醺虽迟但到](http://www.daogukj.com/7846527)
+- [【三国杀×猪猪侠联动】新武将！新皮肤！新玩法！新场景！版本内容抢先看！](http://www.movie.hkepx.cn/movie/2779517.htm)
+- [自己做饭成本其实很高](http://www.daogukj.com/5137842)
+- [闲鱼回应涉黄](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
+- [谭松韵刘学义说亲密戏最好是不熟拍](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
+- [男子造谣宁德时代员工裸奔被拘](http://www.daogukj.com/2275454)
+- [医保个人账户里的钱可以怎么用](http://www.movie.hkepx.cn/movie/8955518.htm)
+- [未来五年循环经济怎样融入日常](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
+- [秦始皇陵水银来源被找到](http://www.daogukj.com/3040545)
+- [电动车钥匙丢了？锁坐桶里了？别急](http://www.movie.hkepx.cn/movie/0072136.htm)
+- [住建局回应5公里路面500个井盖](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
+- [歼-35A官方代号正式公布](http://www.movie.hkepx.cn/xiju/2548466.htm)
+- [这牌咋样？](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
+- [不要找太漂亮的老头演祖父](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
+- [美依礼芽宣布离婚](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
+- [iPhone19或被跳过](http://www.movie.hkepx.cn/movie/0563740.htm)
+- [工厂“少爷小姐” 正被流量反噬](http://www.play.hengshemaoyi.cn/xiju/5085308.htm)
+- [是什么让北大复旦校长都如此紧张](http://www.movie.hkepx.cn/xiju/6484379.htm)
+- [三角洲，但是植物大战僵尸！](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
+- [体操](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
+- [王俊凯庆生给劲仔全员带薪放假](http://www.movie.hkepx.cn/movie/4954417.htm)
+- [如何评价男子患尘肺举报公司，却因在不具备防护条件下接受存在职业病危害作业被罚5万，卫健局随后撤销处罚？](http://www.daogukj.com/8556378)
+- [如何看待ZCode道歉三天后开源：零git历史，注释写明开源版不享受活动权益？](http://www.daogukj.com/0551116)
+- [如何评价澳大利亚将禁止留学生家属陪读？](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
 
 </details>
 
 ## 原始来源
 
-- [男子造谣宁德时代员工裸奔被行拘](https://www.toutiao.com/trending/7687325033497100334/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227687325033497100334%22%2C%22hot_board_impr_id%22%3A%22202609210936395F215D837629610BD952%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [长沙一公司因每周上班三天半月薪七千遭质疑，公司回应不为博流量，希望员工有时间陪家人，这种模式能推广吗？](https://www.zhihu.com/question/2085038826842604950)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e986a2fb7147ccbc57a2 -->
+<!-- content-fingerprint: 4a8b7cf70345d317002b -->
