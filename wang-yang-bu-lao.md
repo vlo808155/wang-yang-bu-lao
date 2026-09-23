@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待周琦主动表态愿出战亚运会被拒，林葳跟郭士强只集训两次就被彻底放弃等爆料？是真的吗？
+# 教育部：绩效分配向一线教师倾斜
 
-> 来源：知乎热榜 · 排名：第 13 位 · 热度：133 万热度 · 分类：问答 · 更新：2026-09-23T17:53:02+08:00
+> 来源：百度热搜 · 排名：第 13 位 · 热度：6569361 · 更新：2026-09-23T22:28:09+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待周琦主动表态愿出战亚运会被拒，林葳跟郭士强只集训两次就被彻底放弃等爆料？是真的吗？”位列第 13 位，公开热度指标为 133 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“教育部：绩效分配向一线教师倾斜”位列第 13 位，公开热度指标为 6569361。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：几个消息源交叉验证，周琦亚运前主动向国家队表态愿意出战，没进名单。中国青年报补了刀：徐杰也请缨被拒。 郭士强的理由是“周琦没参加夏天集训”，可他选了刚做完手术的余嘉豪，余嘉豪休赛期同样在养伤，俩人情况本质没区别。 林葳跟郭士强只集训两次就被彻底放弃——训练中发生冲突，郭士强让同曦方面直接把人领走。之后短训营没他，赴美考察见了赵维伦、王俊杰，唯独不见林葳。 具体的情况大概就是林葳在训练的时候没有听到队友喊的换位，下来的时候，郭士强质问他，他就回说确实没听到，然后就不再让他进队了。 不知道有多少人细心的和我一样观察到…每次中国男篮或者郭士强出一些新闻，林葳也
+来源公开摘要显示：近日，教育部副部长表示，将健全中小学教师工资待遇，绩效分配向教育一线、担任班主任和扎根乡村的教师倾斜，推进社会公共服务，落实教师优先。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [再贵的衣服，皱了也白搭！8款实测，告诉你挂烫机到底怎么选？](xuan-liang-ci-gu.md)
-- [33岁女演员确诊癌症 家人公开求助](zao-bi-tou-guang.md)
-- [5次拨打120未接通老人身亡](nang-ying-ying-xue.md)
-- [健康长寿真正的意义是什么](cheng-men-li-xue.md)
+- [中国体操女团夺金](xuan-liang-ci-gu.md)
+- [2天内6省份省委书记调整](zao-bi-tou-guang.md)
+- [腾讯放弃AI元宝全力押注WorkBuddy，这次战略转型算成功吗？](nang-ying-ying-xue.md)
+- [音乐是大家的音乐~](cheng-men-li-xue.md)
 
 ## 站内推荐
 
-- [中国人端稳中国饭碗](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [全国中秋假期天气地图](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [刘德华李克勤助阵谭咏麟演唱会](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [如何评价GPT-6 Sol 和 Luna？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [经济学家鞠建东建议「对外发行10万亿元人民币国债」，以实现「经济结构性」再平衡，对此你怎么看？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [中国教育普及程度居世界前列](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [小米发布会](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [当美院人玩涂鸦躲猫猫真人版](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [中国女排夺冠 香港记者激动落泪](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [日本女排颁奖仪式上全员黑脸](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [“民惠通APP可发高龄补贴”不实](http://www.daogukj.com/aqvilqcv/)
-- [黄大发被判死刑立即执行](http://www.daogukj.com/6414183)
-- [教育部：要让孩子走进社会大课堂](http://www.daogukj.com/9692400)
-- [欧盟要求中国「自愿限制」汽车出口，会如何影响中欧贸易关系？](http://www.movie.hkepx.cn/movie/6535752.htm)
-- [张展硕亚运男子200自夺冠](http://www.movie.hkepx.cn/xiju/0970719.htm)
-- [越南离开中国供应链还能玩得转吗](http://www.play.hengshemaoyi.cn/kongbu/3252379.htm)
+- [经纪公司指控郭宇欣违约](http://www.daogukj.com/aqvilqcv/)
+- [国乒女团3-0朝鲜进决赛](http://www.daogukj.com/6414183)
+- [凤凰传奇的玲花为什么不参加浪姐？](http://www.daogukj.com/9692400)
+- [亚运会乒乓球男团半决赛，王楚钦 3-2 险胜林昀儒，怎样评价本场比赛？](http://www.movie.hkepx.cn/movie/6535752.htm)
+- [《崩坏：星穹铁道》即兴巡演PV——「至此，已成艺术」](http://www.movie.hkepx.cn/xiju/0970719.htm)
+- [琵琶曲‖ 决战重制版【re0】](http://www.play.hengshemaoyi.cn/kongbu/3252379.htm)
 - [【剧情】大理石厅谋杀案（2026）01【莱丝利·曼维尔 / 蒂姆·迈克穆兰】](http://www.play.hengshemaoyi.cn/xiju/7767996.htm)
-- [网购牛奶倒出来发现是清水](http://www.movie.hkepx.cn/xiju/4933959.htm)
-- [兰香如故](http://www.movie.hkepx.cn/movie/6277466.htm)
-- [智耕沃野慧启未来](http://www.movie.hkepx.cn/movie/4847983.htm)
-- [肖战穿了小飞侠印花T恤](http://www.movie.hkepx.cn/movie/2816035.htm)
-- [几年换一部iPhone合适](http://www.movie.hkepx.cn/xiju/1480868.htm)
-- [这是啥户型啊？](http://www.play.hengshemaoyi.cn/kongbu/9076765.htm)
-- [习近平离京对美国进行国事访问](http://www.movie.hkepx.cn/xiju/5940142.htm)
-- [中方回应高市呼吁删除敌国条款](http://www.movie.hkepx.cn/movie/4965485.htm)
-- [林诗栋蒯曼淘汰奥运会亚军](http://www.movie.hkepx.cn/xiju/9603692.htm)
-- [U23国足与阿联酋爆发冲突](http://www.daogukj.com/dgoqdmey/)
-- [如何评价GPT-6 Sol 和 Luna？](http://www.daogukj.com/jbixuceg/)
-- [5次拨打120未接通老人身亡](http://www.movie.hkepx.cn/movie/3470730.htm)
-- [小狗争骨头一只生气一只吃](http://www.play.hengshemaoyi.cn/xiju/4606749.htm)
-- [复仇者联盟](http://www.play.hengshemaoyi.cn/xiju/1809500.htm)
-- [中美元首半年内实现互访](http://www.play.hengshemaoyi.cn/xiju/2357926.htm)
-- [泽连斯基已经不分敌我了吗](http://www.daogukj.com/mubcstjz/)
-- [iPhoneDuo难产](http://www.play.hengshemaoyi.cn/kongbu/1803166.htm)
-- [全国中秋假期天气地图](http://www.play.hengshemaoyi.cn/xiju/6178111.htm)
-- [解锁文旅消费新图景](http://www.play.hengshemaoyi.cn/kongbu/1944948.htm)
-- [【硬核】俄乌打了四年多，到底谁在买单？](http://www.daogukj.com/6071545)
-- [健康长寿真正的意义是什么](http://www.play.hengshemaoyi.cn/xiju/4544487.htm)
-- [张展硕200米自金牌](http://www.movie.hkepx.cn/movie/6450034.htm)
-- [暗区突围X少女前线2：追放 联动访谈实录](http://www.play.hengshemaoyi.cn/xiju/9133321.htm)
-- [车企集体和宁德提“分手”](http://www.movie.hkepx.cn/movie/2700475.htm)
-- [带着豆包去买瓜](http://www.daogukj.com/1077827)
-- [老人早餐吃不完退鸡蛋被拒后用蛋砸人](http://www.play.hengshemaoyi.cn/kongbu/0870154.htm)
-- [《异环》黑羽角色短片丨救世主的祭宴](http://www.movie.hkepx.cn/movie/5323758.htm)
-- [经济学家鞠建东建议「对外发行10万亿元人民币国债」，以实现「经济结构性」再平衡，对此你怎么看？](http://www.play.hengshemaoyi.cn/xiju/4973102.htm)
-- [花60W买燃油性能车还有价值吗？奥迪S5 Avant山路测试！](http://www.movie.hkepx.cn/xiju/8685260.htm)
-- [琵琶曲‖ 决战重制版【re0】](http://www.play.hengshemaoyi.cn/kongbu/1304214.htm)
-- [怎么看待《金融时报》报道俄罗斯已经摧毁了乌克兰全国超过一半，即210万平方米的仓储设施？](http://www.play.hengshemaoyi.cn/xiju/0363166.htm)
+- [小米电视](http://www.movie.hkepx.cn/xiju/4933959.htm)
+- [月饼市场遇冷山姆却卖爆了](http://www.movie.hkepx.cn/movie/6277466.htm)
+- [一个细胞最后能长成完整的人，它怎么知道哪里该是眼睛、哪里该是心脏？](http://www.movie.hkepx.cn/movie/4847983.htm)
+- [软银正寻求发行超 110 亿美元、史上最大规模之一的垃圾债继续押注 AI，有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/2816035.htm)
+- [天天熬夜到凌晨两三点，身体会怎么样？](http://www.movie.hkepx.cn/xiju/1480868.htm)
+- [“十五五”时期将推动制定养老服务法](http://www.play.hengshemaoyi.cn/kongbu/9076765.htm)
+- [打一针管数月的降压疫苗要来了](http://www.movie.hkepx.cn/xiju/5940142.htm)
+- [兰香如故热度](http://www.movie.hkepx.cn/movie/4965485.htm)
+- [中国机床出口都超过德国了，东南亚工厂也在换中国设备，那国产机床到底行不行？有没有过来人说说真实体验？](http://www.movie.hkepx.cn/xiju/9603692.htm)
+- [国乒将与日本争冠](http://www.daogukj.com/dgoqdmey/)
+- [中国女排夺冠 香港记者激动落泪](http://www.daogukj.com/jbixuceg/)
+- [腾讯放弃AI元宝全力押注WorkBuddy，这次战略转型算成功吗？](http://www.movie.hkepx.cn/movie/3470730.htm)
+- [中方回应高市呼吁删除“敌国条款”](http://www.play.hengshemaoyi.cn/xiju/4606749.htm)
+- [兰香如故](http://www.play.hengshemaoyi.cn/xiju/1809500.htm)
+- [实拍王楚钦3比2林昀儒后庆祝](http://www.play.hengshemaoyi.cn/xiju/2357926.htm)
+- [比电影更夸张？专业保镖到底在做什么？](http://www.daogukj.com/mubcstjz/)
+- [经济学家鞠建东建议「对外发行10万亿元人民币国债」，以实现「经济结构性」再平衡，对此你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/1803166.htm)
+- [小米发布会](http://www.play.hengshemaoyi.cn/xiju/6178111.htm)
+- [世界技能博览会在上海开幕](http://www.play.hengshemaoyi.cn/kongbu/1944948.htm)
+- [现制零食店赚走年轻人的钱](http://www.daogukj.com/6071545)
+- [音乐是大家的音乐~](http://www.play.hengshemaoyi.cn/xiju/4544487.htm)
+- [小米18pro价格](http://www.movie.hkepx.cn/movie/6450034.htm)
+- [【逆水寒×盗墓笔记】新角色「张起灵」登场！实机试玩与联动关卡演示](http://www.play.hengshemaoyi.cn/xiju/9133321.htm)
+- [都江堰上空现不明飞行物](http://www.movie.hkepx.cn/movie/2700475.htm)
+- [暗区突围X少女前线2：追放 联动访谈实录](http://www.daogukj.com/1077827)
+- [菲弹劾法庭改规则 莎拉定罪门槛降低](http://www.play.hengshemaoyi.cn/kongbu/0870154.htm)
+- [借给路人手机被塞1条中华1盒月饼](http://www.movie.hkepx.cn/movie/5323758.htm)
+- [日本女排颁奖仪式上全员黑脸](http://www.play.hengshemaoyi.cn/xiju/4973102.htm)
+- [李梦被曝走红后迟到惹制片人开骂](http://www.movie.hkepx.cn/xiju/8685260.htm)
+- [林诗栋蒯曼淘汰奥运会亚军](http://www.play.hengshemaoyi.cn/kongbu/1304214.htm)
+- [月饼市场从“面子”回归“里子”](http://www.play.hengshemaoyi.cn/xiju/0363166.htm)
 - [【独家】镇魂街第五季 王国纷争篇定档12月11日！](http://www.movie.hkepx.cn/xiju/5928968.htm)
-- [闲鱼公布涉黄调查结果](http://www.daogukj.com/2348227)
-- [山上明明没有水库，为什么溪水一年到头流不完？](http://www.movie.hkepx.cn/xiju/7664029.htm)
-- [当美院人玩涂鸦躲猫猫真人版](http://www.movie.hkepx.cn/xiju/6562531.htm)
-- [中国体操男团金牌](http://www.play.hengshemaoyi.cn/kongbu/1978626.htm)
-- [多家银行存款利息涨了](http://www.movie.hkepx.cn/movie/8501679.htm)
-- [如何评价电视剧《交锋》大结局？](http://www.daogukj.com/olljhjfc/)
-- [宁德时代市值蒸发7000亿](http://www.movie.hkepx.cn/xiju/8131882.htm)
-- [任正非会谈东风冯长军](http://www.movie.hkepx.cn/xiju/6634802.htm)
-- [中国男足小组第一进8强](http://www.play.hengshemaoyi.cn/kongbu/0490106.htm)
-- [“考虑了两天两夜 不能对不起孩子”](http://www.play.hengshemaoyi.cn/xiju/3496955.htm)
-- [国乒女团晋级亚运会决赛](http://www.movie.hkepx.cn/movie/9511541.htm)
+- [高市早苗联大演讲会场空荡荡](http://www.daogukj.com/2348227)
+- [【泽元电台】加强上路？利好换线？一年一度的世界赛版本又来了！](http://www.movie.hkepx.cn/xiju/7664029.htm)
+- [李翊君《雨蝶》前奏一响全是回忆](http://www.movie.hkepx.cn/xiju/6562531.htm)
+- [徐嘉余中国亚运历史金牌王](http://www.play.hengshemaoyi.cn/kongbu/1978626.htm)
+- [伊方天地，伊场奇遇——《伊莫》今日全平台上线](http://www.movie.hkepx.cn/movie/8501679.htm)
+- [苹果高管称iPhone无需贴膜，实验室的抗刮是上代 3 倍，为什么放到日常使用就不一样？](http://www.daogukj.com/olljhjfc/)
+- [小米手环11](http://www.movie.hkepx.cn/xiju/8131882.htm)
+- [月饼不“装”了](http://www.movie.hkepx.cn/xiju/6634802.htm)
+- [5300多万名老年人享受老年人补贴](http://www.play.hengshemaoyi.cn/kongbu/0490106.htm)
+- [国乒男团晋级决赛将战日本队](http://www.play.hengshemaoyi.cn/xiju/3496955.htm)
+- [教育部回应“13岁于子迪亚运夺2金”](http://www.movie.hkepx.cn/movie/9511541.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待周琦主动表态愿出战亚运会被拒，林葳跟郭士强只集训两次就被彻底放弃等爆料？是真的吗？](https://www.zhihu.com/question/2086020321677505575)
+- [教育部：绩效分配向一线教师倾斜](https://www.baidu.com/s?wd=%E6%95%99%E8%82%B2%E9%83%A8%EF%BC%9A%E7%BB%A9%E6%95%88%E5%88%86%E9%85%8D%E5%90%91%E4%B8%80%E7%BA%BF%E6%95%99%E5%B8%88%E5%80%BE%E6%96%9C&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1c5c06a0b02cdfbbb75f -->
+<!-- content-fingerprint: d386415afe40781d7682 -->
