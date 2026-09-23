@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 男子不抽烟少饮酒坚持长跑突发心梗
+# 12306 回应国庆假期高铁涨价，「不同日期优惠折扣不同，并非涨价」，哪些信息值得关注？
 
-> 来源：今日头条热榜 · 排名：第 14 位 · 热度：3600661 · 更新：2026-09-23T08:31:47+08:00
+> 来源：知乎热榜 · 排名：第 14 位 · 热度：112 万热度 · 分类：问答 · 更新：2026-09-23T13:04:44+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“男子不抽烟少饮酒坚持长跑突发心梗”位列第 14 位，公开热度指标为 3600661。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“12306 回应国庆假期高铁涨价，「不同日期优惠折扣不同，并非涨价」，哪些信息值得关注？”位列第 14 位，公开热度指标为 112 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：9月16日，国庆假期前一天高铁票开售。有网友称“准备抢国庆期间的车票，发现车票居然涨价了。”该网友晒出的截图显示，9月25日，重庆北至南京南D988次列车票价为446元起，9月30日则为520元起。另有网友分享了广州至潮汕G6592次列车票价变化，该网友称，“同个班次，平时价格是279元，中秋涨到298元，国庆涨到302元。” 9月18日早间，记者询问多名12306官方客服。客服表示，高铁票价可能因节假日客流等因素浮动，不同日期优惠折扣不同，并非涨价。具体票价以12306官方显示为准。 对于何时购票更优惠，客服则表示，无法确保某一时段的优惠力度大小。一般
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [皮很大很薄，肉很小很小的馄饨是江浙一带特有的吗？](bo-wen-qiang-ji.md)
-- [医生坐诊2——pa大夫，你看我到底能不能红啊！](wen-gu-zhi-xin.md)
-- [伊朗外长与美特使在纽约会晤](ju-yi-fan-san.md)
-- [张真源吃饭vs唐艺昕吃饭](rong-hui-guan-tong.md)
+- [【硬核】俄乌打了四年多，到底谁在买单？](bo-wen-qiang-ji.md)
+- [今日秋分](wen-gu-zhi-xin.md)
+- [张家齐妈妈拒绝返还存款涉嫌违法](ju-yi-fan-san.md)
+- [中国女排：23天破局续写女排精神](rong-hui-guan-tong.md)
 
 ## 站内推荐
 
-- [金建宇ins发了讣告](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [王楚钦孙颖莎 亚运混双](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [平陆运河会让哪些产业重新洗牌](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [歼-35装上涡扇-19发动机有多猛](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [日本亚运会被骂史上最差后甩锅法国](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [王楚钦孙颖莎混双晋级16强](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [老人突发心梗，5次拨打120未能接通后死亡，院方称通信光缆故障，各方应承担怎样的责任？暴露了哪些问题？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [欧盟要求中国「自愿限制」汽车出口，会如何影响中欧贸易关系？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [怎么看待《金融时报》报道俄罗斯已经摧毁了乌克兰全国超过一半，即210万平方米的仓储设施？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [《三角洲行动》鼠鼠囤积哈弗币到底有什么不好？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [复仇者联盟](http://www.play.hengshemaoyi.cn/xiju/7605701.htm)
-- [酒店推出「月租房」抢租客，相较传统租房有何优劣？月租最低1500元起、配备品牌家电等，你会选择入住吗？](http://www.daogukj.com/7763134)
-- [博主：俄导弹密集打击乌两大工业中心](http://www.movie.hkepx.cn/movie/9676418.htm)
-- [张真源吃饭vs唐艺昕吃饭](http://www.daogukj.com/glgoceuy/)
-- [王皓质问林诗栋](http://www.daogukj.com/orzdfsse/)
-- [亚运会今日看点](http://www.play.hengshemaoyi.cn/xiju/8405399.htm)
-- [歼-35装上涡扇-19发动机有多猛](http://www.daogukj.com/eymflmzk/)
-- [高中校霸统领黑帮，看“职高武神”用禁招扫黑除恶！爆爽漫改韩剧《学习小组》中](http://www.play.hengshemaoyi.cn/kongbu/7715467.htm)
-- [安徽小学生草丛里捡到一堆钱](http://www.movie.hkepx.cn/movie/6971182.htm)
-- [迪丽热巴男粉握手后捂脸跑下台](http://www.movie.hkepx.cn/movie/4395855.htm)
-- [平陆运河会让哪些产业重新洗牌](http://www.daogukj.com/qotrqcnx/)
-- [和同父异母的妹妹去旅游会发生什么？](http://www.movie.hkepx.cn/movie/3034740.htm)
-- [比电影更夸张？专业保镖到底在做什么？](http://www.play.hengshemaoyi.cn/xiju/2234210.htm)
-- [iPhone Duo 整机组装良率仅六成多，供应链在等苹果决定是否放宽质量要求，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/4074352.htm)
-- [琵琶曲‖ 决战重制版【re0】](http://www.daogukj.com/6535873)
-- [杨幂说短发是自己剪的](http://www.play.hengshemaoyi.cn/kongbu/0771677.htm)
-- [如何评价《生化危机：爆发夜》开分烂番茄98%，成了媒体评分最高的游戏改编电影？](http://www.play.hengshemaoyi.cn/xiju/3926740.htm)
-- [编造“创始人不喝自家饮料”被拘](http://www.play.hengshemaoyi.cn/kongbu/0629663.htm)
-- [今日秋分](http://www.movie.hkepx.cn/xiju/4618462.htm)
-- [美心低至六七折、29.9 元礼盒爆卖 200 万件，月饼告别「礼赠时代」了吗？反映出怎样的消费趋势？](http://www.play.hengshemaoyi.cn/kongbu/4226628.htm)
-- [很多中层领导非常无能，水平极低、干啥啥不行、心眼子小、算计第一名，为什么大领导还任命他为中层领导呢？](http://www.play.hengshemaoyi.cn/xiju/1687476.htm)
-- [四连冠！中国队男子4×100米混接夺金](http://www.daogukj.com/7225995)
-- [医生坐诊2——pa大夫，你看我到底能不能红啊！](http://www.movie.hkepx.cn/xiju/2047156.htm)
-- [金建宇ins发了讣告](http://www.daogukj.com/9963303)
-- [伊朗外长与美特使在纽约会晤](http://www.play.hengshemaoyi.cn/kongbu/1215997.htm)
-- [《穷亲戚》](http://www.daogukj.com/ybrclrlt/)
-- [38 岁清华毕业生三战高考考上北大医学部，称「希望在热爱的领域做一点有意义的事」，如何看待他的选择？](http://www.play.hengshemaoyi.cn/xiju/1146323.htm)
-- [GPT-6 Sol和Luna发布 API价格降一半](http://www.daogukj.com/0361450)
-- [要是电池装在电车后备箱那，离人远一点会不会更安全啊？](http://www.daogukj.com/2827507)
-- [又准备单飞](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
-- [11岁男孩一口流利英语帮邻居谈下大单](http://www.movie.hkepx.cn/xiju/4072931.htm)
-- [《柯洁围棋入门课》](http://www.movie.hkepx.cn/movie/5903663.htm)
-- [男子称因超龄被当赠品卖进电诈园区](http://www.daogukj.com/vhjggfrk/)
-- [财神窦占龙 第8集 同舟【8月国创】](http://www.play.hengshemaoyi.cn/kongbu/3924344.htm)
-- [敬一丹个人账号“节气”系列继续更新](http://www.movie.hkepx.cn/movie/9473120.htm)
-- [赛枪证vs赛车证！在国内哪一个更难考？](http://www.play.hengshemaoyi.cn/kongbu/1478965.htm)
-- [孙尚香新皮肤双形态](http://www.daogukj.com/tfijfvel/)
-- [朱广权 秋天的秋到底是什么秋](http://www.daogukj.com/dazlebgh/)
-- [央视曝光「挂靠参保」骗社保，这一灰色产业链如何运作，将带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/6412162.htm)
-- [女子花3.9万相亲54岁男子实际63岁](http://www.play.hengshemaoyi.cn/kongbu/1040618.htm)
-- [男子4.5元网购“聚能环”致妻儿身亡](http://www.movie.hkepx.cn/xiju/5518395.htm)
-- [孙尚香新皮肤](http://www.play.hengshemaoyi.cn/kongbu/5070757.htm)
-- [中国死亡率最高徒步线鳌太线](http://www.movie.hkepx.cn/movie/5067570.htm)
-- [5G+6G 生产生活将有哪些变化](http://www.movie.hkepx.cn/xiju/7472860.htm)
-- [马斯克建议有时间一定要去中国](http://www.daogukj.com/wzbnsgim/)
-- [新华社：中国女排成功“纠错”](http://www.movie.hkepx.cn/movie/6034324.htm)
-- [【硬核】俄乌打了四年多，到底谁在买单？](http://www.daogukj.com/skozyuih/)
-- [为何说日本这届亚运会差到无法想象](http://www.play.hengshemaoyi.cn/kongbu/7371955.htm)
-- [日本已没有举办大型赛事的能力了吗](http://www.play.hengshemaoyi.cn/kongbu/2749128.htm)
-- [钟南山团队发现 73% 的肺癌病例来自非高危人群，为啥非高危人群占多数？传统肺癌筛查标准需要调整吗？](http://www.play.hengshemaoyi.cn/xiju/7990952.htm)
+- [推动北斗产业规模超1万亿元](http://www.play.hengshemaoyi.cn/xiju/7605701.htm)
+- [骁龙8 Elite Extreme Gen6前瞻上手：高通新旗舰手机来啦！](http://www.daogukj.com/7763134)
+- [自驾旅行的费用是全程AA，还是谁开车谁少出一点更合适？](http://www.movie.hkepx.cn/movie/9676418.htm)
+- [中国女排：23天破局续写女排精神](http://www.daogukj.com/glgoceuy/)
+- [多家银行存款利息涨了释放何信号](http://www.daogukj.com/orzdfsse/)
+- [沃尔玛中国、山姆中国首席采购官双双换人，美国山姆高管空降执掌山姆采购，这次人事调整释放了哪些战略信号？](http://www.play.hengshemaoyi.cn/xiju/8405399.htm)
+- [怎么看待《金融时报》报道俄罗斯已经摧毁了乌克兰全国超过一半，即210万平方米的仓储设施？](http://www.daogukj.com/eymflmzk/)
+- [台当局称小红书文化侵略 国台办回应](http://www.play.hengshemaoyi.cn/kongbu/7715467.htm)
+- [肖战要搞唱跳了](http://www.movie.hkepx.cn/movie/6971182.htm)
+- [刘纪鹏相信A股会重回4000点](http://www.movie.hkepx.cn/movie/4395855.htm)
+- [欧盟要求中国「自愿限制」汽车出口，会如何影响中欧贸易关系？](http://www.daogukj.com/qotrqcnx/)
+- [核载31吨装了123吨 司机叫冤](http://www.movie.hkepx.cn/movie/3034740.htm)
+- [中国民企500强彰显韧性活力](http://www.play.hengshemaoyi.cn/xiju/2234210.htm)
+- [这是啥户型啊？](http://www.play.hengshemaoyi.cn/xiju/4074352.htm)
+- [男子边走边看手机遭叉车碾压](http://www.daogukj.com/6535873)
+- [0添加等于更安全更健康？假的](http://www.play.hengshemaoyi.cn/kongbu/0771677.htm)
+- [当美院人玩涂鸦躲猫猫真人版](http://www.play.hengshemaoyi.cn/xiju/3926740.htm)
+- [高市早苗要求删除敌国条款](http://www.play.hengshemaoyi.cn/kongbu/0629663.htm)
+- [38 岁清华毕业生三战高考考上北大医学部，称「希望在热爱的领域做一点有意义的事」，如何看待他的选择？](http://www.movie.hkepx.cn/xiju/4618462.htm)
+- [新三国up锐评老三国19：袁公路冢中枯骨，何足道哉！](http://www.play.hengshemaoyi.cn/kongbu/4226628.htm)
+- [带着豆包去买瓜](http://www.play.hengshemaoyi.cn/xiju/1687476.htm)
+- [如何评价《生化危机：爆发夜》开分烂番茄98%，成了媒体评分最高的游戏改编电影？](http://www.daogukj.com/7225995)
+- [今日秋分](http://www.movie.hkepx.cn/xiju/2047156.htm)
+- [王楚钦孙颖莎混双晋级16强](http://www.daogukj.com/9963303)
+- [张家齐妈妈拒绝返还存款涉嫌违法](http://www.play.hengshemaoyi.cn/kongbu/1215997.htm)
+- [28岁韩国短道速滑名将金建宇离世](http://www.daogukj.com/ybrclrlt/)
+- [复仇者联盟](http://www.play.hengshemaoyi.cn/xiju/1146323.htm)
+- [李现张婧仪雾里青绑手吻](http://www.daogukj.com/0361450)
+- [狼王传奇系列1-11集合集【AI全民制作人】](http://www.daogukj.com/2827507)
+- [女子过敏就诊被护士公主抱进抢救室](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
+- [两京十五日官宣全阵容](http://www.movie.hkepx.cn/xiju/4072931.htm)
+- [马斯克给年轻人提建议](http://www.movie.hkepx.cn/movie/5903663.htm)
+- [隐翅虫](http://www.daogukj.com/vhjggfrk/)
+- [0添加等于更安全、更健康吗](http://www.play.hengshemaoyi.cn/kongbu/3924344.htm)
+- [如何评价崩铁4.6即将推出的“星际幻宠”？系统？](http://www.movie.hkepx.cn/movie/9473120.htm)
+- [黄大发被判死刑立即执行](http://www.play.hengshemaoyi.cn/kongbu/1478965.htm)
+- [泽连斯基：已准备好与俄实现能源停火](http://www.daogukj.com/tfijfvel/)
+- [白鹿回复呵呵你是我最好的礼物](http://www.daogukj.com/dazlebgh/)
+- [国庆将至 各地节日氛围陆续“上线”](http://www.play.hengshemaoyi.cn/kongbu/6412162.htm)
+- [我国接受过高等教育人口达2.7亿](http://www.play.hengshemaoyi.cn/kongbu/1040618.htm)
+- [琵琶曲‖ 决战重制版【re0】](http://www.movie.hkepx.cn/xiju/5518395.htm)
+- [恒力集团如何挤进民企500强前三](http://www.play.hengshemaoyi.cn/kongbu/5070757.htm)
+- [也门胡塞武装为何如此难打](http://www.movie.hkepx.cn/movie/5067570.htm)
+- [文化中国行秋分节气](http://www.movie.hkepx.cn/xiju/7472860.htm)
+- [刘宁卸任河南省委书记](http://www.daogukj.com/wzbnsgim/)
+- [为什么大家通常说的都是小猫统治世界，而不是小狗统治世界呢？](http://www.movie.hkepx.cn/movie/6034324.htm)
+- [马斯克感叹中国壮丽](http://www.daogukj.com/skozyuih/)
+- [周也《一瓯春》片段被群嘲出圈，演技遭质疑，不少观众觉得她很多表演观感别扭，问题根源在哪？](http://www.play.hengshemaoyi.cn/kongbu/7371955.htm)
+- [中秋国庆调休和高速政策提醒](http://www.play.hengshemaoyi.cn/kongbu/2749128.htm)
+- [酒店推出「月租房」抢租客，相较传统租房有何优劣？月租最低1500元起、配备品牌家电等，你会选择入住吗？](http://www.play.hengshemaoyi.cn/xiju/7990952.htm)
 
 </details>
 
 ## 原始来源
 
-- [男子不抽烟少饮酒坚持长跑突发心梗](https://www.toutiao.com/trending/7688265239157473323/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%226%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227688265239157473323%22%2C%22hot_board_impr_id%22%3A%2220260923083146DBF790878616E56C4E78%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [12306 回应国庆假期高铁涨价，「不同日期优惠折扣不同，并非涨价」，哪些信息值得关注？](https://www.zhihu.com/question/2084229555133461679)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 00527326f1d924add887 -->
+<!-- content-fingerprint: 18c551f0a56cff5bd2bc -->
