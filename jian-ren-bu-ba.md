@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 嚯！全自动高速运转流麻！！？
+# 苹果反复强调 iPhone Duo 的标准读音，中国人想读成「iPhone 多」不行吗？
 
-> 来源：哔哩哔哩热门 · 排名：第 16 位 · 热度：531327 · 分类：手工 · 更新：2026-09-25T17:48:40+08:00
+> 来源：知乎热榜 · 排名：第 16 位 · 热度：150 万热度 · 分类：问答 · 更新：2026-09-25T22:47:20+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“嚯！全自动高速运转流麻！！？”位列第 16 位，公开热度指标为 531327，榜单分类为“手工”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“苹果反复强调 iPhone Duo 的标准读音，中国人想读成「iPhone 多」不行吗？”位列第 16 位，公开热度指标为 150 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：-
+来源公开摘要显示：iPhone 折叠屏发布后，官方一直在强调 Duo 的标准发音，难道这个读音不拗口吗？叫做iPhone 多，顺口又好记，身边人也都听得懂。 往前数，早年 iPhone 被叫“爱疯”、iPad 被叫“爱派”，本土化读法从来都是常态。 苹果为什么非要特意纠正普通用户的读法呢？
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `手工`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [白宫欢迎宴会现场画面](zi-qiang-bu-xi.md)
-- [合肥一小区4栋楼悬挂800面国旗](fen-fa-tu-qiang.md)
-- [八月十五为啥叫中秋节](wang-yang-bu-lao.md)
-- [患者投保10年后患结肠癌，泰康人寿以「遗传性疾病」拒赔，合理吗？保险公司能仅凭家族患癌史认定遗传性吗？](xuan-liang-ci-gu.md)
+- [嚯！全自动高速运转流麻！！？](zi-qiang-bu-xi.md)
+- [特朗普赠送亲自参与设计白头鹰雕像](fen-fa-tu-qiang.md)
+- [护士抢救10天去世超48小时不予认定工伤](wang-yang-bu-lao.md)
+- [宫鲁鸣：会总结为什么三分颗粒无收](xuan-liang-ci-gu.md)
 
 ## 站内推荐
 
-- [王楚钦/孙颖莎 3-0 松岛辉空/张本美和，晋级亚运会混双四强，怎样评价本场比赛？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [如何评价曹盾执导，马伯庸编剧，章宇主演的电影《敦煌英雄》？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [【剧情】长生契（2026）02【方逸伦 / 谢可寅】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [2026 热 梗 年 度 总 结 ！！！【上】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [东部战区发布中秋节重磅海报](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [亚运女子100米短跑决赛，陈妤颉夺冠，跑出 11.06 秒​​​​刷新亚运会纪录，如何评价本场对决？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [王楚钦/孙颖莎 3-0 松岛辉空/张本美和，晋级亚运会混双四强，怎样评价本场比赛？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [如何看待 10 后学生走红的 「呆毛」发型，头顶剪一小撮炸起来像海胆？一代人有一代人的发型潮流吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [你拍过最美的月亮照片是怎样的？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [今年石油危机为何没毁灭世界？埋头苦干讲奉献还适应当代打工人吗？或许都得聊聊这座中国城市【笔行东北①】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [中美元首华盛顿会晤](http://www.movie.hkepx.cn/movie/1165692.htm)
-- [小猪佩奇解说《包青天》陈世美铡美案](http://www.movie.hkepx.cn/movie/1352170.htm)
-- [在家破解¥300一块的上海最贵炸鸡，成本只要...](http://www.play.hengshemaoyi.cn/kongbu/5123614.htm)
-- [古人是怎么知道月球很冷的，还取名为「广寒宫」？](http://www.daogukj.com/npyuporz/)
-- [在哪一刻，你意识到自己和千年前的人看的是同一个月亮？写月亮的一行字、一句诗、一首歌，你在哪个夜晚懂了？](http://www.daogukj.com/4148221)
-- [EP01 「琦逢对手」全新环节上线！8大国货品牌齐相聚！](http://www.play.hengshemaoyi.cn/kongbu/4994132.htm)
-- [警惕“双节礼品卡”骗局](http://www.movie.hkepx.cn/xiju/4577450.htm)
-- [“赛考斯”回应：我受宠若惊](http://www.play.hengshemaoyi.cn/kongbu/6059802.htm)
-- [白宫国宴主桌有谁](http://www.daogukj.com/6750296)
-- [张雨霏50蝶摘金](http://www.movie.hkepx.cn/xiju/1723341.htm)
-- [央视中秋晚会节目单](http://www.play.hengshemaoyi.cn/kongbu/5063278.htm)
-- [家长带孩子四处求医 病因就在家里](http://www.daogukj.com/6024053)
-- [【独家】《罗小黑战记 学前篇》定档10月30日](http://www.movie.hkepx.cn/movie/7510839.htm)
-- [八月十五为啥叫中秋节](http://www.movie.hkepx.cn/xiju/9043114.htm)
-- [央视中秋晚会节目单官宣](http://www.movie.hkepx.cn/xiju/3915788.htm)
-- [网友吐槽美团抽成太多，一份25元的外卖商家实际到手收入6.08元，是真的吗？其余的钱都花在了什么环节？](http://www.movie.hkepx.cn/xiju/4929128.htm)
-- [中国篮球各项均无缘亚运决赛](http://www.play.hengshemaoyi.cn/xiju/4714425.htm)
-- [特朗普：这是一次伟大的会晤](http://www.movie.hkepx.cn/xiju/1766582.htm)
-- [亚运女篮半决赛，中国女篮 80-85 韩国女篮，张子宇22分，如何评价本场比赛？](http://www.daogukj.com/ceejmjpq/)
-- [教室空调开20度，我的孩子觉得好冷，老师说「觉得冷的孩子就多穿点」，怎么跟老师沟通这件事情？](http://www.play.hengshemaoyi.cn/xiju/6574526.htm)
-- [新华社：男乒过度依赖王楚钦](http://www.play.hengshemaoyi.cn/kongbu/0685738.htm)
-- [【官方中字】尼古喵喵 第12集](http://www.daogukj.com/3829979)
-- [2026 热 梗 年 度 总 结 ！！！【上】](http://www.play.hengshemaoyi.cn/xiju/4225861.htm)
-- [鱼：什么打窝仙人！？ 叫榜一大哥！【AI全民制作人】](http://www.movie.hkepx.cn/movie/4560913.htm)
-- [孙颖莎把松岛辉空打得太难受了](http://www.daogukj.com/4062244)
-- [白宫公布国宴菜单与装饰](http://www.play.hengshemaoyi.cn/kongbu/4901914.htm)
-- [如何看待王皓回应男团丢金，称要把坏事变好事，给年轻运动员试错空间？](http://www.movie.hkepx.cn/xiju/8477603.htm)
-- [美方称中美「贸易休战」延长至明年 1 月，这对世界局势有何影响？](http://www.play.hengshemaoyi.cn/xiju/3986361.htm)
-- [时尚芭莎红毯](http://www.play.hengshemaoyi.cn/kongbu/1320737.htm)
-- [现在买月饼的是买来自己吃的人多，还是买来送人的多？](http://www.daogukj.com/oebzlmot/)
-- [糟糕！我的粮食被勋宗抢走了！【神奇组织54】](http://www.play.hengshemaoyi.cn/kongbu/4919916.htm)
-- [患者投保10年后患结肠癌，泰康人寿以「遗传性疾病」拒赔，合理吗？保险公司能仅凭家族患癌史认定遗传性吗？](http://www.daogukj.com/jenzjadv/)
-- [白宫欢迎宴会现场画面](http://www.daogukj.com/rjxwvatb/)
-- [青岛一烤羊店招牌被六旬师傅装反，变为 「没有手艺，都是科技」，店铺意外走红，为啥这样反而受到大家青睐？](http://www.daogukj.com/myetaccz/)
-- [习近平在欢迎宴会上的祝酒辞](http://www.play.hengshemaoyi.cn/xiju/4512617.htm)
-- [如何评价曹盾执导，马伯庸编剧，章宇主演的电影《敦煌英雄》？](http://www.daogukj.com/lqyabsmd/)
-- [【剧情】长生契（2026）02【方逸伦 / 谢可寅】](http://www.movie.hkepx.cn/xiju/2257347.htm)
-- [张雪机车继续冲冠](http://www.play.hengshemaoyi.cn/kongbu/6146556.htm)
-- [张继科说以前打日本队随便打](http://www.play.hengshemaoyi.cn/kongbu/2930988.htm)
-- [一撇一捺 中美青年“双向奔赴”](http://www.movie.hkepx.cn/movie/4794891.htm)
-- [中国女篮vs韩国女篮](http://www.movie.hkepx.cn/xiju/9142629.htm)
-- [【非AI】这可能是全网最全实拍冷兵器合集！](http://www.play.hengshemaoyi.cn/kongbu/7682672.htm)
-- [如何评价AI短剧《我的妹妹不可爱》？](http://www.daogukj.com/idlsclvt/)
-- [麦当劳多门店被举报售卖到期奶浆、无冷链运输，具体是咋回事？若属实会给麦当劳带来什么影响？](http://www.play.hengshemaoyi.cn/kongbu/8778582.htm)
-- [中秋坐在一起聊聊英皇歌手的幕后故事【霍汶希Manifest】先导｜B站音乐独家视频播客](http://www.play.hengshemaoyi.cn/kongbu/8593743.htm)
-- [有什么食物是「中国人吃，而外国人基本不怎么吃的」？](http://www.play.hengshemaoyi.cn/xiju/0951279.htm)
-- [张展硕 七金王](http://www.daogukj.com/hjqvdxzs/)
-- [张展硕400米金牌](http://www.play.hengshemaoyi.cn/kongbu/8650529.htm)
-- [神二十三乘组从天宫送来中秋祝福](http://www.play.hengshemaoyi.cn/xiju/5579870.htm)
-- [【黄强强】《开学匹配到宝藏舍友》](http://www.daogukj.com/7619632)
+- [中美两国元首夫妇茶叙](http://www.movie.hkepx.cn/movie/1165692.htm)
+- [员工态度好，但悟性差，长期业绩不达标，要不要辞退？](http://www.movie.hkepx.cn/movie/1352170.htm)
+- [亚运女篮半决赛，中国女篮 80-85 韩国女篮，张子宇22分，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/kongbu/5123614.htm)
+- [中国游泳队亚运会30金收官，创历史最好成绩，为何中国队游泳队这几年有如此强劲的上升势头？](http://www.daogukj.com/npyuporz/)
+- [白宫墙上悬挂中美元首握手照片](http://www.daogukj.com/4148221)
+- [特朗普致辞专门提到一个中文词](http://www.play.hengshemaoyi.cn/kongbu/4994132.htm)
+- [井柏然刘雯去看李荣浩演唱会](http://www.movie.hkepx.cn/xiju/4577450.htm)
+- [原来各大博主都是这么拍视频的啊？哈哈哈](http://www.play.hengshemaoyi.cn/kongbu/6059802.htm)
+- [再顶级的运动员也是人不是神](http://www.daogukj.com/6750296)
+- [芭莎之夜](http://www.movie.hkepx.cn/xiju/1723341.htm)
+- [弹 性 势 能 豌 豆](http://www.play.hengshemaoyi.cn/kongbu/5063278.htm)
+- [【官方中字】尼古喵喵 第12集](http://www.daogukj.com/6024053)
+- [王楚钦 4-2 战胜泰国选手普里查扬，晋级亚运会乒乓男单 16 强，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/7510839.htm)
+- [护士抢救10天去世超48小时不予认定工伤](http://www.movie.hkepx.cn/xiju/9043114.htm)
+- [评论员：中国在台湾问题上立场坚定](http://www.movie.hkepx.cn/xiju/3915788.htm)
+- [沙特如何绕过胡塞封锁出售1亿桶石油](http://www.movie.hkepx.cn/xiju/4929128.htm)
+- [中秋文案](http://www.play.hengshemaoyi.cn/xiju/4714425.htm)
+- [汶颂破苏炳添亚运纪录](http://www.movie.hkepx.cn/xiju/1766582.htm)
+- [特朗普赠中方雕像：我亲自参与设计](http://www.daogukj.com/ceejmjpq/)
+- [月饼和螃蟹一起吃会中毒？假](http://www.play.hengshemaoyi.cn/xiju/6574526.htm)
+- [国乒输球背后的陪练流失](http://www.play.hengshemaoyi.cn/kongbu/0685738.htm)
+- [为什么下雨时，鸭子不跑反而在雨中站着一动不动的？](http://www.daogukj.com/3829979)
+- [你拍过最美的月亮照片是怎样的？](http://www.play.hengshemaoyi.cn/xiju/4225861.htm)
+- [如何看待王皓回应男团丢金，称要把坏事变好事，给年轻运动员试错空间？](http://www.movie.hkepx.cn/movie/4560913.htm)
+- [每百年一次深渊血战，恶魔世界会如何发展？](http://www.daogukj.com/4062244)
+- [【独家】《罗小黑战记 学前篇》定档10月30日](http://www.play.hengshemaoyi.cn/kongbu/4901914.htm)
+- [月亮](http://www.movie.hkepx.cn/xiju/8477603.htm)
+- [中秋坐在一起聊聊英皇歌手的幕后故事【霍汶希Manifest】先导｜B站音乐独家视频播客](http://www.play.hengshemaoyi.cn/xiju/3986361.htm)
+- [第一批中秋月亮出片了](http://www.play.hengshemaoyi.cn/kongbu/1320737.htm)
+- [林诗栋晋级亚运男单16强](http://www.daogukj.com/oebzlmot/)
+- [韩国奥委会主席柳承敏「如果给本届亚运会打分，那只能是不及格，非常失望，组委会极其无能」，对此你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/4919916.htm)
+- [宫鲁鸣：会总结为什么三分颗粒无收](http://www.daogukj.com/jenzjadv/)
+- [嚯！全自动高速运转流麻！！？](http://www.daogukj.com/rjxwvatb/)
+- [美方称中美「贸易休战」延长至明年 1 月，这对世界局势有何影响？](http://www.daogukj.com/myetaccz/)
+- [习近平主席夫妇将同特朗普夫妇茶叙](http://www.play.hengshemaoyi.cn/xiju/4512617.htm)
+- [王楚钦/孙颖莎 3-0 松岛辉空/张本美和，晋级亚运会混双四强，怎样评价本场比赛？](http://www.daogukj.com/lqyabsmd/)
+- [如何看待 10 后学生走红的 「呆毛」发型，头顶剪一小撮炸起来像海胆？一代人有一代人的发型潮流吗？](http://www.movie.hkepx.cn/xiju/2257347.htm)
+- [曾辉韩雨彤太甜了](http://www.play.hengshemaoyi.cn/kongbu/6146556.htm)
+- [魏大勋一半一半好听](http://www.play.hengshemaoyi.cn/kongbu/2930988.htm)
+- [兰香如故真是虐麻了](http://www.movie.hkepx.cn/movie/4794891.htm)
+- [美媒记者绕圈参观中国红旗汽车](http://www.movie.hkepx.cn/xiju/9142629.htm)
+- [【黄强强】《开学匹配到宝藏舍友》](http://www.play.hengshemaoyi.cn/kongbu/7682672.htm)
+- [中国篮球从亚运4金到全军覆没](http://www.daogukj.com/idlsclvt/)
+- [邓亚萍：林诗栋蒯曼打得非常好](http://www.play.hengshemaoyi.cn/kongbu/8778582.htm)
+- [《振乾坤》 | 张杰 x《永劫无间》夺金战歌](http://www.play.hengshemaoyi.cn/kongbu/8593743.htm)
+- [全国牛肉批发均价涨至一公斤 71 元，创两年来新高，受哪些因素影响？](http://www.play.hengshemaoyi.cn/xiju/0951279.htm)
+- [亚运会游泳](http://www.daogukj.com/hjqvdxzs/)
+- [93岁太姥爷辅导作业被气得文思泉涌](http://www.play.hengshemaoyi.cn/kongbu/8650529.htm)
+- [平陆运河首条外贸航线首艘货船抵越](http://www.play.hengshemaoyi.cn/xiju/5579870.htm)
+- [今天抄家 人民的兔娘](http://www.daogukj.com/7619632)
 
 </details>
 
 ## 原始来源
 
-- [嚯！全自动高速运转流麻！！？](https://b23.tv/BV1F8ac6pEaA)
+- [苹果反复强调 iPhone Duo 的标准读音，中国人想读成「iPhone 多」不行吗？](https://www.zhihu.com/question/2084425616397426894)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f95fb3bb968c721b3de9 -->
+<!-- content-fingerprint: 767e70b6adcebf2de977 -->
