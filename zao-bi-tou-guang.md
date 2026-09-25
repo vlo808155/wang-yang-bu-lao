@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待清华校长说的「AI越会走捷径，人越要下笨功夫」？
+# 《小杨有约30#》：杨迪
 
-> 来源：知乎热榜 · 排名：第 16 位 · 热度：79 万热度 · 分类：问答 · 更新：2026-09-25T12:44:44+08:00
+> 来源：哔哩哔哩热门 · 排名：第 13 位 · 热度：327800 · 分类：搞笑 · 更新：2026-09-25T17:48:40+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待清华校长说的「AI越会走捷径，人越要下笨功夫」？”位列第 16 位，公开热度指标为 79 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“《小杨有约30#》：杨迪”位列第 13 位，公开热度指标为 327800，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：小杨有约第三十期！ 视频内容纯属娱乐，不要当真～ 你希望在节目里看到谁呢？ 欢迎关注！一键三连也拜托了！！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
 
 ## 相关热点
 
-- [希望你们也可以吃到月饼](nang-ying-ying-xue.md)
-- [肖战粉丝是真的过节了](cheng-men-li-xue.md)
-- [孙颖莎等体育健儿祝大家中秋快乐](shou-bu-shi-juan.md)
-- [如何看待王皓回应男团丢金，称要把坏事变好事，给年轻运动员试错空间？](xue-fu-wu-che.md)
+- [中国女足1比0击败越南女足 晋级四强](nang-ying-ying-xue.md)
+- [李治廷当爸](cheng-men-li-xue.md)
+- [张雪机车继续冲冠](shou-bu-shi-juan.md)
+- [曝多家公司、学校的月饼疑因糖醇超标致吃完后腹泻，有必要出台糖醇添加的相关法规吗？划定标准应该是怎样的？](xue-fu-wu-che.md)
 
 ## 站内推荐
 
-- [央视中秋晚会节目单官宣](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [王楚钦孙颖莎vs松岛辉空张本美和](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [新加坡控糖和控烟草一个级别](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [盛李豪亚运第四金](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [张本智和说以前国乒场下还3位高手](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [青岛一烤羊店招牌被六旬师傅装反，变为 「没有手艺，都是科技」，店铺意外走红，为啥这样反而受到大家青睐？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [今天抄家 人民的兔娘](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [糟糕！我的粮食被勋宗抢走了！【神奇组织54】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [【官方中字】尼古喵喵 第12集](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [白宫公布国宴菜单与装饰](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [上班被叫微信名字说不清楚](http://www.movie.hkepx.cn/movie/7696059.htm)
-- [我把 雀巢 变成美少女 ？？？](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
-- [孔子为什么少谈鬼神，却重视祭祀礼仪？](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
-- [猫不理咖啡《史诗级加强》](http://www.daogukj.com/xbqcnyun/)
-- [孙颖莎把松岛辉空打的太难受了](http://www.daogukj.com/3076909)
-- [【独家】时光代理人 第三季 PartOne 第8集 血色风浪【8月国创】](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
-- [平澜起风波 | 书院同窗们，开学啦！](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
-- [盛李豪亚运第四金](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
-- [今年的中秋你会怎么度过？出去旅游吗？](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
-- [为什么很多外地网友都在夸河南](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
-- [叮咚，您的好友发来语音——真珠的「金嗓子生成器」](http://www.daogukj.com/7832374)
-- [当MC生物都变成了宝宝，生存会变成什么样子？](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
-- [我记录下了妹妹的最后7天...【自制伪纪录片电影】](http://www.movie.hkepx.cn/movie/5380543.htm)
-- [你怎么舍得让我的泪流向海](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
-- [张本智和说以前国乒场下还3位高手](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
-- [如何看待王皓回应男团丢金，称要把坏事变好事，给年轻运动员试错空间？](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
-- [《缅北讲师》](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
-- [媒体：中国篮球需触底求变](http://www.daogukj.com/whdogfom/)
-- [【纪录片】生命奇观2 02 黄渤海湿地](http://www.daogukj.com/owjemlxs/)
-- [日本上半年出口额小于韩国台湾香港，甚至低于广东省，日本到底怎么了？](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
-- [希望你们也可以吃到月饼](http://www.movie.hkepx.cn/xiju/8272307.htm)
-- [马斯克黄仁勋苏世民等参加白宫欢迎宴会](http://www.movie.hkepx.cn/xiju/5503803.htm)
+- [苹果反复强调 iPhone Duo 的标准读音，中国人想读成「iPhone 多」不行吗？](http://www.movie.hkepx.cn/movie/7696059.htm)
+- [如何解读教育司司长介绍「将在全国推行每周至少半天校外实践教学」？该政策能否落实？学校，家长该怎样配合？](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
+- [为什么只有中秋没有中春中夏中冬](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
+- [东部战区发布中秋节重磅海报](http://www.daogukj.com/xbqcnyun/)
+- [EP01 「琦逢对手」全新环节上线！8大国货品牌齐相聚！](http://www.daogukj.com/3076909)
+- [特朗普外孙女18个月大就开始学中文](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
+- [教室空调开20度，我的孩子觉得好冷，老师说「觉得冷的孩子就多穿点」，怎么跟老师沟通这件事情？](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
+- [【官方中字】尼古喵喵 第12集](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
+- [白宫欢迎宴会现场画面](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
+- [兰香如故兰香遗憾而终](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
+- [【独家】《罗小黑战记 学前篇》定档10月30日](http://www.daogukj.com/7832374)
+- [新华社：男乒过度依赖王楚钦](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
+- [王楚钦/孙颖莎 3-0 松岛辉空/张本美和，晋级亚运会混双四强，怎样评价本场比赛？](http://www.movie.hkepx.cn/movie/5380543.htm)
+- [国乒女团夺冠背后的传承与坚持](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
+- [白宫公布国宴菜单与装饰](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
+- [曝多家公司、学校的月饼疑因糖醇超标致吃完后腹泻，有必要出台糖醇添加的相关法规吗？划定标准应该是怎样的？](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
+- [如何评价曹盾执导，马伯庸编剧，章宇主演的电影《敦煌英雄》？](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
+- [特朗普展示白宫翻修成果](http://www.daogukj.com/whdogfom/)
+- [张继科说以前打日本队随便打](http://www.daogukj.com/owjemlxs/)
+- [樊振东 亚运会](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
+- [中国女足1比0击败越南女足 晋级四强](http://www.movie.hkepx.cn/xiju/8272307.htm)
+- [我记录下了妹妹的最后7天...【自制伪纪录片电影】](http://www.movie.hkepx.cn/xiju/5503803.htm)
 - [【非AI】这可能是全网最全实拍冷兵器合集！](http://www.movie.hkepx.cn/movie/5517829.htm)
-- [新加坡控糖和控烟草一个级别](http://www.daogukj.com/kfcenimf/)
-- [准备了两个月的视频有点长，没刀](http://www.movie.hkepx.cn/xiju/1284306.htm)
-- [世界技能大赛 为了更好的未来](http://www.movie.hkepx.cn/movie/9628674.htm)
-- [白宫墙上悬挂中美元首握手照片](http://www.daogukj.com/1857926)
-- [如何解读教育司司长介绍「将在全国推行每周至少半天校外实践教学」？该政策能否落实？学校，家长该怎样配合？](http://www.daogukj.com/dauszqqt/)
-- [【剧情】长生契（2026）01【方逸伦 / 谢可寅】](http://www.movie.hkepx.cn/movie/0907691.htm)
-- [我买下了15万的船票，踏上了前往世界尽头的旅行…..](http://www.daogukj.com/5817227)
-- [教室空调开20度，我的孩子觉得好冷，老师说「觉得冷的孩子就多穿点」，怎么跟老师沟通这件事情？](http://www.daogukj.com/wotljoso/)
-- [古人是怎么知道月球很冷的，还取名为「广寒宫」？](http://www.daogukj.com/8049323)
-- [游本昌去世 他这一生守拙守正守常](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
-- [糟糕！我的粮食被勋宗抢走了！【神奇组织54】](http://www.movie.hkepx.cn/xiju/0261792.htm)
-- [白宫响起《月亮代表我的心》](http://www.movie.hkepx.cn/movie/6726833.htm)
-- [拼多多雄安三个多月入职五千人](http://www.movie.hkepx.cn/xiju/1828380.htm)
-- [真的会发生“日本大撤资”吗](http://www.movie.hkepx.cn/xiju/1222939.htm)
-- [樊振东回来就能拯救国乒男团吗](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
-- [为啥很多国家神话的太阳神、月亮神出场率很高，我们的神话里这类神明的出场率不高？](http://www.daogukj.com/2594309)
-- [张本智和 高调发声](http://www.daogukj.com/qdasdjom/)
-- [王楚钦孙颖莎vs松岛辉空张本美和](http://www.daogukj.com/3136388)
-- [在每一个集体中都被排挤的那个同学，你好（阿晴教学篇op/ed）【27】](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
-- [央视中秋晚会节目单官宣](http://www.daogukj.com/4275576)
-- [加了很多人却成了无效社交，你在职场中遇到过这种情况吗？工作中，如何建立有效的「朋友圈」？](http://www.daogukj.com/lpknevub/)
-- [浪姐中秋聚餐照](http://www.daogukj.com/3012939)
-- [合肥一小区4栋楼悬挂800面国旗](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
-- [美方称中美「贸易休战」延长至明年 1 月，这对世界局势有何影响？](http://www.movie.hkepx.cn/xiju/9870181.htm)
-- [当顾客说我的饭难以下咽](http://www.movie.hkepx.cn/movie/2656535.htm)
-- [小区门禁 App 开门要先看广告，想免广告就得花钱充会员，这种模式合理吗？业主如何维权？](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
-- [特朗普听到大熊猫将落户美国笑了](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
+- [糟糕！我的粮食被勋宗抢走了！【神奇组织54】](http://www.daogukj.com/kfcenimf/)
+- [【剧情】长生契（2026）02【方逸伦 / 谢可寅】](http://www.movie.hkepx.cn/xiju/1284306.htm)
+- [特斯拉 尾款减5000](http://www.movie.hkepx.cn/movie/9628674.htm)
+- [中美元首华盛顿会晤](http://www.daogukj.com/1857926)
+- [现在买月饼的是买来自己吃的人多，还是买来送人的多？](http://www.daogukj.com/dauszqqt/)
+- [合肥一小区4栋楼悬挂800面国旗](http://www.movie.hkepx.cn/movie/0907691.htm)
+- [李泽锋给站姐买苹果18pm](http://www.daogukj.com/5817227)
+- [超长出行窗口催热中秋国庆游](http://www.daogukj.com/wotljoso/)
+- [全球期待中美元首会晤为世界注入正能量](http://www.daogukj.com/8049323)
+- [白宫响起《月亮代表我的心》](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
+- [美方称中美「贸易休战」延长至明年 1 月，这对世界局势有何影响？](http://www.movie.hkepx.cn/xiju/0261792.htm)
+- [“赛考斯”回应：我受宠若惊](http://www.movie.hkepx.cn/movie/6726833.htm)
+- [张雪带近200名员工飞意大利秋游](http://www.movie.hkepx.cn/xiju/1828380.htm)
+- [嚯！全自动高速运转流麻！！？](http://www.movie.hkepx.cn/xiju/1222939.htm)
+- [在哪一刻，你意识到自己和千年前的人看的是同一个月亮？写月亮的一行字、一句诗、一首歌，你在哪个夜晚懂了？](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
+- [央视中秋晚会节目单官宣](http://www.daogukj.com/2594309)
+- [如何看待王皓回应男团丢金，称要把坏事变好事，给年轻运动员试错空间？](http://www.daogukj.com/qdasdjom/)
+- [今天抄家 人民的兔娘](http://www.daogukj.com/3136388)
+- [新华社评中国男乒决赛失利](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
+- [青岛一烤羊店招牌被六旬师傅装反，变为 「没有手艺，都是科技」，店铺意外走红，为啥这样反而受到大家青睐？](http://www.daogukj.com/4275576)
+- [警惕“双节礼品卡”骗局](http://www.daogukj.com/lpknevub/)
+- [国乒男团 36 年来首次无缘亚运会金牌，客观来看，你认为最大的问题出在哪？](http://www.daogukj.com/3012939)
+- [家长带孩子四处求医 病因就在家里](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
+- [【纪录片】生命奇观2 02 黄渤海湿地](http://www.movie.hkepx.cn/xiju/9870181.htm)
+- [麦当劳多门店被举报售卖到期奶浆、无冷链运输，具体是咋回事？若属实会给麦当劳带来什么影响？](http://www.movie.hkepx.cn/movie/2656535.htm)
+- [松岛辉空向孙颖莎竖大拇指](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
+- [【黄强强】《开学匹配到宝藏舍友》](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待清华校长说的「AI越会走捷径，人越要下笨功夫」？](https://www.zhihu.com/question/2076658002954929781)
+- [《小杨有约30#》：杨迪](https://b23.tv/BV1JFaN6hEL9)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ef1445e5e764b4f69c1e -->
+<!-- content-fingerprint: 083d6b15cde34eeba6e2 -->
