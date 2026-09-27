@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 次元大乱斗！崩玉蓝染VS六道斑！埼玉勇闯地狱！
+# 【立志成为恶兽】05 我有一个拯救村庄的计划【UP动画】【HiShorts! × updream AI短片大赛-剧情单元】
 
-> 来源：哔哩哔哩热门 · 排名：第 13 位 · 热度：923316 · 分类：MAD·AMV · 更新：2026-09-27T09:26:11+08:00
+> 来源：哔哩哔哩热门 · 排名：第 13 位 · 热度：856904 · 分类：小剧场 · 更新：2026-09-27T14:48:07+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“次元大乱斗！崩玉蓝染VS六道斑！埼玉勇闯地狱！”位列第 13 位，公开热度指标为 923316，榜单分类为“MAD·AMV”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【立志成为恶兽】05 我有一个拯救村庄的计划【UP动画】【HiShorts! × updream AI短片大赛-剧情单元】”位列第 13 位，公开热度指标为 856904，榜单分类为“小剧场”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：崩玉蓝染VS六道斑，埼玉因为兴趣被蓝染封印前往地狱？ 王哈登场VS蓝染，埼玉勇闯地狱VS地狱意志。
+哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `MAD·AMV`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `小剧场`
 
 ## 相关热点
 
-- [央视曝光吃作业隐患](shou-bu-shi-juan.md)
-- [胡歌3岁女儿近照](xue-fu-wu-che.md)
-- [刘欢离世前太太曾联系甄嬛传编曲](bo-wen-qiang-ji.md)
-- [为什么这次名古屋亚运会，围棋象棋这些棋类项目全部都取消了？](wen-gu-zhi-xin.md)
+- [邓亚萍谈日本男单全军覆没](shou-bu-shi-juan.md)
+- [袁娅维把微博发到了萨顶顶超话](xue-fu-wu-che.md)
+- [刘欢生前打算推出专辑《忘记刘欢》](bo-wen-qiang-ji.md)
+- [时隔 7 年，在大银幕重看《复仇者联盟 4：终局之战》，你有哪些新的感受？](wen-gu-zhi-xin.md)
 
 ## 站内推荐
 
-- [【独家】《凡人修仙传之慕兰之战》第17集【总第193集】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [时间不多喽](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [【立志成为恶兽】05 我有一个拯救村庄的计划【UP动画】【HiShorts! × updream AI短片大赛-剧情单元】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [《绝区零》洛克茜角色展示 | 神秘负棺人](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [一猫哈气万狗哭！我把哈基米做成了肉鸽游戏！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [溶酶体：细胞里为什么藏着一颗自毁炸弹？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [《三角洲行动》群星计划—代号：威龙](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [中国古代陵墓物理防盗的巅峰之作](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [《 假 期 热 梗 现 状 》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [《以片换物- -洗剪吹》 再不疯狂就老了 借一场大笑，释放藏起来的自己。](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【招笑版】新植物14:"魅惑"菇](http://www.movie.hkepx.cn/movie/8315527.htm)
-- [三大运营商为何全面暂停0元购机](http://www.movie.hkepx.cn/xiju/9744003.htm)
-- [人民日报用歌词送别刘欢](http://www.play.hengshemaoyi.cn/kongbu/2167324.htm)
-- [林诗栋疯狂庆祝国乒一人超淡定](http://www.movie.hkepx.cn/movie/0598458.htm)
-- [王楚钦感谢孙颖莎一起守住了混双金牌](http://www.movie.hkepx.cn/movie/1195486.htm)
-- [美国罕见超规格接待在日引巨大关注](http://www.movie.hkepx.cn/movie/1040288.htm)
-- [0元购机全面叫停](http://www.movie.hkepx.cn/xiju/1529442.htm)
-- [伊朗选手打赢张本冲日本教练面前庆祝](http://www.daogukj.com/9990647)
-- [黄健翔希望国足回到亚洲一流](http://www.daogukj.com/vuidxsxb/)
-- [【立志成为恶兽】05 我有一个拯救村庄的计划【UP动画】【HiShorts! × updream AI短片大赛-剧情单元】](http://www.movie.hkepx.cn/xiju/2812834.htm)
-- [刘欢常跟人喝酒聊天到天亮](http://www.movie.hkepx.cn/movie/0453152.htm)
-- [林诗栋单打击败松岛，张本负于伊朗大叔，这是否说明男团教练王皓在决赛排兵布阵太怂了，自己把自己安排输了？](http://www.play.hengshemaoyi.cn/xiju/3141529.htm)
-- [甜瓜琵琶曲#高质量手搓 🤓](http://www.play.hengshemaoyi.cn/kongbu/3227732.htm)
-- [重庆轻轨出现瞬间科幻感满满](http://www.daogukj.com/lttpjdfd/)
-- [“赛考斯”还有一个“中国女儿”](http://www.play.hengshemaoyi.cn/xiju/8191525.htm)
-- [李在明谴责乌方泄露朝鲜战俘移送韩国](http://www.daogukj.com/zjpmceko/)
-- [为什么现在不谈论可燃冰了？](http://www.play.hengshemaoyi.cn/xiju/6169098.htm)
-- [丘成桐等人利用ai辅助为所有 7 维奇异球构造了正截面曲率度量，这个结果意味着什么？](http://www.movie.hkepx.cn/xiju/0248646.htm)
-- [刘欢离世前太太曾联系甄嬛传编曲](http://www.daogukj.com/8328518)
-- [被它撞到脸 看不到伤口也要就医](http://www.play.hengshemaoyi.cn/xiju/8682512.htm)
-- [东北秋天的“小咬”到底是啥](http://www.play.hengshemaoyi.cn/kongbu/6784091.htm)
-- [杨过 郭芙](http://www.daogukj.com/kcmcfwfy/)
-- [2026 热 梗 年 度 总 结 ！！！【上】](http://www.daogukj.com/pqcczpwj/)
-- [【短的发布会】AI大爆发！第六代骁龙8至尊双旗舰来了！](http://www.movie.hkepx.cn/xiju/5113891.htm)
-- [央视曝光吃作业隐患](http://www.play.hengshemaoyi.cn/kongbu/6074356.htm)
-- [怀念刘欢：音乐永不消逝](http://www.play.hengshemaoyi.cn/xiju/7952053.htm)
+- [硬核，不是说说而已](http://www.movie.hkepx.cn/movie/8315527.htm)
+- [北京天空出现丁达尔光瀑](http://www.movie.hkepx.cn/xiju/9744003.htm)
+- [刘欢走了 我们怀念的何止是他的歌](http://www.play.hengshemaoyi.cn/kongbu/2167324.htm)
+- [侯英超目睹9比3遭逆转愤然离场](http://www.movie.hkepx.cn/movie/0598458.htm)
+- [九岁儿子护母推倒奶奶尾骨摔折](http://www.movie.hkepx.cn/movie/1195486.htm)
+- [吴艳妮比赛开始前在检录处补妆](http://www.movie.hkepx.cn/movie/1040288.htm)
+- [孙颖莎vs早田希娜](http://www.movie.hkepx.cn/xiju/1529442.htm)
+- [邓亚萍谈日本男单全军覆没：兴奋过头](http://www.daogukj.com/9990647)
+- [瓷砖贴面项目唯一女选手笑着笑着哭了](http://www.daogukj.com/vuidxsxb/)
+- [中国古代陵墓物理防盗的巅峰之作](http://www.movie.hkepx.cn/xiju/2812834.htm)
+- [人民日报用歌词送别刘欢](http://www.movie.hkepx.cn/movie/0453152.htm)
+- [如何评价文章「让本科生做回本科生」？](http://www.play.hengshemaoyi.cn/xiju/3141529.htm)
+- [【独家】牧神记 第102集 大尊](http://www.play.hengshemaoyi.cn/kongbu/3227732.htm)
+- [五仁月饼成回收香饽饽 1000元一吨](http://www.daogukj.com/lttpjdfd/)
+- [河南一技校101名毕业生入职北大](http://www.play.hengshemaoyi.cn/xiju/8191525.htm)
+- [亚运颁奖现场升起两面五星红旗](http://www.daogukj.com/zjpmceko/)
+- [多位网友称被手机钢化膜扎伤，且碎渣很难处理，钢化膜真的这么危险吗？有哪些好的碎渣清理办法？](http://www.play.hengshemaoyi.cn/xiju/6169098.htm)
+- [如何看待厦门一公司宣布中秋国庆连放13.5天假，发放最高2000元旅游基金，并保障员工离线权？](http://www.movie.hkepx.cn/xiju/0248646.htm)
+- [刘欢生前打算推出专辑《忘记刘欢》](http://www.daogukj.com/8328518)
+- [婚后9年发现喜褥里有对棉花小人](http://www.play.hengshemaoyi.cn/xiju/8682512.htm)
+- [茅台新品1分钟售罄 定价2199元](http://www.play.hengshemaoyi.cn/kongbu/6784091.htm)
+- [交强险经营亏损两百多亿](http://www.daogukj.com/kcmcfwfy/)
+- [“后来我们恶语相向，却忘了我们曾经是最相爱的人”](http://www.daogukj.com/pqcczpwj/)
+- [戒赌吧覆灭！1400万赌徒抱团救赎，吧主将他们卖给赌场！【神奇组织17】](http://www.movie.hkepx.cn/xiju/5113891.htm)
+- [邓亚萍谈日本男单全军覆没](http://www.play.hengshemaoyi.cn/kongbu/6074356.htm)
+- [刘欢夫妇十年间多次组织学员六一聚会](http://www.play.hengshemaoyi.cn/xiju/7952053.htm)
 - [中美八项成果为何未提台湾问题](http://www.movie.hkepx.cn/movie/9150107.htm)
-- [特斯拉一个月降价两次惹怒新车主](http://www.movie.hkepx.cn/movie/7359364.htm)
-- [戒赌吧覆灭！1400万赌徒抱团救赎，吧主将他们卖给赌场！【神奇组织17】](http://www.movie.hkepx.cn/xiju/0518845.htm)
-- [中美元首会晤引发热烈国际反响](http://www.play.hengshemaoyi.cn/kongbu/9268198.htm)
-- [伊朗提重开霍尔木兹海峡方案遭美拒绝](http://www.play.hengshemaoyi.cn/kongbu/3268208.htm)
-- [李在明：对乌方感到遗憾](http://www.play.hengshemaoyi.cn/kongbu/0525872.htm)
-- [打破苏炳添纪录的亚洲新飞人是谁](http://www.play.hengshemaoyi.cn/kongbu/3907054.htm)
-- [蔡磊确诊渐冻症后夫妻俩第7个中秋](http://www.daogukj.com/immmcdpl/)
-- [比尔·盖茨警告AI或致十亿人死亡](http://www.daogukj.com/cudoryjd/)
-- [英格兰2比3西班牙](http://www.movie.hkepx.cn/xiju/5435793.htm)
-- [Claude刷新物理学世界纪录](http://www.daogukj.com/7199504)
+- [升糖最快的主食不是米饭而是这6种](http://www.movie.hkepx.cn/movie/7359364.htm)
+- [当你遇到两年前的自己.......](http://www.movie.hkepx.cn/xiju/0518845.htm)
+- [专家：机器人也失业了](http://www.play.hengshemaoyi.cn/kongbu/9268198.htm)
+- [伊朗选手打赢张本冲日本教练面前庆祝](http://www.play.hengshemaoyi.cn/kongbu/3268208.htm)
+- [天安门看升旗 香港女孩写下8个震惊](http://www.play.hengshemaoyi.cn/kongbu/0525872.htm)
+- [王曼昱4比1张本美和](http://www.play.hengshemaoyi.cn/kongbu/3907054.htm)
+- [网友用一卷胶带就解决了隐翅虫](http://www.daogukj.com/immmcdpl/)
+- [邱毅：“解放军驻台”能震慑分裂势力](http://www.daogukj.com/cudoryjd/)
+- [豆包回答70岁前去世占比](http://www.movie.hkepx.cn/xiju/5435793.htm)
+- [蔡磊夫妇分居共战渐冻症](http://www.daogukj.com/7199504)
 - [中美达成八点成果共识，达成「300亿美元」对等降税安排，哪些信息值得重点关注？](http://www.movie.hkepx.cn/xiju/2980488.htm)
-- [媒体评林诗栋蒯曼混双金牌](http://www.daogukj.com/6407743)
-- [王楚钦叫孙颖莎豆包](http://www.daogukj.com/2117875)
-- [周深演唱会嘴巴里都是雨水](http://www.play.hengshemaoyi.cn/xiju/5776596.htm)
-- [【纪录片】中国救护2 02 向未明处去](http://www.movie.hkepx.cn/movie/1934338.htm)
-- [为什么像刘欢这样「国民级」的音乐人越来越难出现？](http://www.play.hengshemaoyi.cn/xiju/5489202.htm)
-- [林诗栋/蒯曼4-0王楚钦/孙颖莎后，为啥很多人在喊求莎头组合解绑？客观来看，解绑会更有益于两位选手吗？](http://www.movie.hkepx.cn/xiju/8773959.htm)
-- [如何评价文章「让本科生做回本科生」？](http://www.movie.hkepx.cn/xiju/0337841.htm)
-- [亚运乒乓球女单](http://www.movie.hkepx.cn/movie/9024789.htm)
-- [交个朋友为「售卖的网红溜溜凳被曝用发霉木板、废旧海绵」道歉，称启动退赔，如何看待此事？](http://www.play.hengshemaoyi.cn/xiju/0811131.htm)
-- [中国驻泰国大使馆重要提醒](http://www.daogukj.com/9668698)
-- [三角洲行动 瓦尔基里玩法爆料！靶场扩建！新图海啸展示！二周年更新计划爆料解析！](http://www.play.hengshemaoyi.cn/xiju/2169319.htm)
-- [【独家】《凡人修仙传之慕兰之战》第17集【总第193集】](http://www.daogukj.com/3876959)
+- [台湾社会要读懂中美元首会晤意义](http://www.daogukj.com/6407743)
+- [井柏然 恨我的继续爱我的别停](http://www.daogukj.com/2117875)
+- [王一博采访道歉](http://www.play.hengshemaoyi.cn/xiju/5776596.htm)
+- [【剧情】长生契（2026）07【方逸伦 / 谢可寅】](http://www.movie.hkepx.cn/movie/1934338.htm)
+- [男子因长期食用生鱼片，感染阔节裂头绦虫，体内排出 4.5 米长虫，为什么能这么长？对身体危害有多大？](http://www.play.hengshemaoyi.cn/xiju/5489202.htm)
+- [亚运会乒乓球男双半决赛，温瑞博/向鹏 3-4 张本智和/篠塚大登，无缘决赛，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/8773959.htm)
+- [安东尼奥带领的U23国足向来是防守强进攻弱，为何他们能在亚运会淘汰赛压着泰国打，取得酣畅胜利？](http://www.movie.hkepx.cn/xiju/0337841.htm)
+- [国乒男双无缘会师决赛](http://www.movie.hkepx.cn/movie/9024789.htm)
+- [亚运会乒乓球男双半决赛，黄友政/林诗栋 4-1 战胜松岛辉空/户上隼辅，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/0811131.htm)
+- [人均百元的老年人“一日聚”火了](http://www.daogukj.com/9668698)
+- [【侯绿萝】更新啦，赶紧来围观吧！](http://www.play.hengshemaoyi.cn/xiju/2169319.htm)
+- [溶酶体：细胞里为什么藏着一颗自毁炸弹？](http://www.daogukj.com/3876959)
 
 </details>
 
 ## 原始来源
 
-- [次元大乱斗！崩玉蓝染VS六道斑！埼玉勇闯地狱！](https://b23.tv/BV1K3h16HEpn)
+- [【立志成为恶兽】05 我有一个拯救村庄的计划【UP动画】【HiShorts! × updream AI短片大赛-剧情单元】](https://b23.tv/BV1j3hd6wE1w)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 8a2ade3c5cd24bf4cbc0 -->
+<!-- content-fingerprint: 31dfe0d50bfb8f6bfd54 -->
