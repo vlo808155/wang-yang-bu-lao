@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 既然国人嫌弃月饼高油高糖，为啥不把月饼出口到喜爱糖油混合物的美国呢？
+# 刘欢去世前曾被偶遇 网友晒现场视频
 
-> 来源：知乎热榜 · 排名：第 13 位 · 热度：97 万热度 · 分类：问答 · 更新：2026-09-28T07:02:20+08:00
+> 来源：百度热搜 · 排名：第 13 位 · 热度：6561634 · 更新：2026-09-28T09:32:19+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“既然国人嫌弃月饼高油高糖，为啥不把月饼出口到喜爱糖油混合物的美国呢？”位列第 13 位，公开热度指标为 97 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“刘欢去世前曾被偶遇 网友晒现场视频”位列第 13 位，公开热度指标为 6561634。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-知乎热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：9月25日，音乐家刘欢在上海病逝，享年63岁。近日有网友发文，曾于8月29日在杭州偶遇刘欢，当时状态良好的他，还即兴演唱了《好汉歌》。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [快问快答：历史性时间窗口！中国在华盛顿主动出牌](nang-ying-ying-xue.md)
-- [黄友政林诗栋4比2战胜日本夺金](cheng-men-li-xue.md)
-- [王祖贤 复出](shou-bu-shi-juan.md)
-- [王祖贤回应“容貌变样”](xue-fu-wu-che.md)
+- [肖战第1次上热搜涨粉130万](nang-ying-ying-xue.md)
+- [升糖最快的主食不是米饭而是这6种](cheng-men-li-xue.md)
+- [既然国人嫌弃月饼高油高糖，为啥不把月饼出口到喜爱糖油混合物的美国呢？](shou-bu-shi-juan.md)
+- [快问快答：历史性时间窗口！中国在华盛顿主动出牌](xue-fu-wu-che.md)
 
 ## 站内推荐
 
-- [交强险2025年经营亏损230亿元，3.86亿辆机动车参保，赔付支出2524亿元，哪些信息值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [亚运男子 110 米栏，陈圆将 13 秒 15 夺金，如何评价他的表现？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [交个朋友直播间被曝卖病死鱼，罗永浩连发 16 条内容辟谣，具体是怎么回事？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [有没有一种可能，岳不群才是《笑傲江湖》里最想“救”华山派的人，而令狐冲其实是个不负责任的“败家子”？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [子弹连钢板都能打穿，为何打不穿麻沙袋？这是什么原理？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [我的新能源男友](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [中方：特奥多罗极端反华](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [吴艳妮决赛起跑倒数第一](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [孙颖莎说中日乒乓对决或将更激烈](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [微微一笑很倾城AI换脸后](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [新能源汽车仍然“买得起修不起”吗](http://www.movie.hkepx.cn/movie/7696059.htm)
-- [小米18Pro 防窥屏](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
-- [12306回应为抢高铁票连下5个候补订单](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
-- [为什么中文里堂兄弟姐妹和表兄弟姐妹要分开称呼？](http://www.daogukj.com/xbqcnyun/)
-- [挑战自助餐最亏本的十类食物！通通吃一遍！](http://www.daogukj.com/3076909)
-- [我们尝试用AI造了一个时空](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
-- [升糖最快的主食不是米饭而是这6种](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
-- [有没有一种可能，岳不群才是《笑傲江湖》里最想“救”华山派的人，而令狐冲其实是个不负责任的“败家子”？](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
-- [【说唱】不是，酒保怎么比我先醉啊…](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
-- [豆包手机助手致歉](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
-- [怀念刘欢：好汉先走歌声长流](http://www.daogukj.com/7832374)
-- [张家齐妈妈走700米打车觉得狼狈](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
-- [吴艳妮女子100米栏摘铜](http://www.movie.hkepx.cn/movie/5380543.htm)
-- [金鹰节致敬游本昌刘欢](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
-- [子弹连钢板都能打穿，为何打不穿麻沙袋？这是什么原理？](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
-- [王祖贤回应“容貌变样”](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
-- [亚运会女子 100 米栏决赛，福部真子夺冠，吴艳妮铜牌，如何评价她们的表现和本场比赛？](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
-- [微微一笑很倾城AI换脸后](http://www.daogukj.com/whdogfom/)
-- [电子竞技项目将退出亚运](http://www.daogukj.com/owjemlxs/)
-- [消失的队友二](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
-- [快问快答：历史性时间窗口！中国在华盛顿主动出牌](http://www.movie.hkepx.cn/xiju/8272307.htm)
-- [我的新能源男友](http://www.movie.hkepx.cn/xiju/5503803.htm)
-- [《崩坏：星穹铁道》真珠角色PV——「如何描绘一种希望」](http://www.movie.hkepx.cn/movie/5517829.htm)
-- [交个朋友直播间被曝卖病死鱼，罗永浩连发 16 条内容辟谣，具体是怎么回事？](http://www.daogukj.com/kfcenimf/)
-- [集采药都很劣质吗？我能不能加钱用更好的药？](http://www.movie.hkepx.cn/xiju/1284306.htm)
-- [《三角洲行动》群星计划—代号：威龙](http://www.movie.hkepx.cn/movie/9628674.htm)
-- [贷款中介集体删除朋友圈](http://www.daogukj.com/1857926)
-- [程靖淇谈孙颖莎体力透支](http://www.daogukj.com/dauszqqt/)
-- [医院紧急提醒不建议模仿闪身步](http://www.movie.hkepx.cn/movie/0907691.htm)
-- [医院收费员称“当官的挂号不要钱”](http://www.daogukj.com/5817227)
-- [没人会记得神作之下的第二名，除非那一年都是逆天神梗！](http://www.daogukj.com/wotljoso/)
-- [美民众热烈期盼大熊猫重返亚特兰大](http://www.daogukj.com/8049323)
-- [中国连续5届世赛金牌第一](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
-- [亚运会乒乓球男双决赛，林诗栋/黄友政 4-2 张本智和/篠塚大登，获男双金牌，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/0261792.htm)
-- [亚运会女子标枪决赛，严子怡夺金，投出 70 米 46 刷新亚运纪录，如何评价她的个人表现以及本场比赛？](http://www.movie.hkepx.cn/movie/6726833.htm)
-- [抄袭者如何把原创者熬成山寨？奥利奥：这事儿我熟](http://www.movie.hkepx.cn/xiju/1828380.htm)
-- [乒乓解说员高菡被指偏向性明显、情绪烘托过多，客观评价她的解说能力如何？不偏袒、中立的解说员应是怎样的？](http://www.movie.hkepx.cn/xiju/1222939.htm)
-- [拾荒21年男子领到42万养老金](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
-- [王曼昱女单夺冠](http://www.daogukj.com/2594309)
-- [刘宇宁世赛法拉利](http://www.daogukj.com/qdasdjom/)
-- [亚运男子 110 米栏，陈圆将 13 秒 15 夺金，如何评价他的表现？](http://www.daogukj.com/3136388)
-- [没有海却出海鲜 中国人怎么做到的](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
-- [交强险2025年经营亏损230亿元，3.86亿辆机动车参保，赔付支出2524亿元，哪些信息值得关注？](http://www.daogukj.com/4275576)
-- [孙千工作室 烦心事够多了](http://www.daogukj.com/lpknevub/)
-- [陈圆将110米栏摘金](http://www.daogukj.com/3012939)
-- [蛙跳爬泰山](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
-- [【独家】牧神记 第102集 大尊](http://www.movie.hkepx.cn/xiju/9870181.htm)
-- [中美见面同期美企在华开启量产](http://www.movie.hkepx.cn/movie/2656535.htm)
-- [父子“手搓”多个微缩版大国重器](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
-- [《纯粹の体育精神》](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
+- [父子“手搓”多个微缩版大国重器](http://www.movie.hkepx.cn/movie/7696059.htm)
+- [《五金月饼：月饼传三代，人走饼还在！》](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
+- [「薛甄珠找小三」最近被 AI 二创出了好多个版本，这段剧情有啥魔力，能让大家有源源不断的创作灵感？](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
+- [内娱正式迈入3w4时代](http://www.daogukj.com/xbqcnyun/)
+- [背屏能替代手机App吗？100张背屏应用卡实测排位赛](http://www.daogukj.com/3076909)
+- [蔚来吉利充换电合作](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
+- [泽连斯基联合国直播给李在明送上究极大麻烦](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
+- [孙颖莎说中日乒乓对决或将更激烈](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
+- [国足0-3不敌新西兰](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
+- [有人说「青少年的痛苦被曲解，中老年的被嘲笑，老年人的被忽视」，你怎么看待这一说法？](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
+- [中国连续5届世赛金牌第一](http://www.daogukj.com/7832374)
+- [男子8万救命钱被盗刷并称银行 1 条提醒短信都没发，银行称责任划分需司法机构裁决，银行到底该不该担责？](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
+- [中美达成八点成果共识，达成「300亿美元」对等降税安排，哪些信息值得重点关注？](http://www.movie.hkepx.cn/movie/5380543.htm)
+- [交个朋友为「售卖的网红溜溜凳被曝用发霉木板、废旧海绵」道歉，称启动退赔，如何看待此事？](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
+- [微微一笑很倾城AI换脸后](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
+- [快问快答：历史性时间窗口！中国在华盛顿主动出牌](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
+- [武契奇宣布辞职](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
+- [为什么感觉这几年刑侦剧特别多，是因为刑侦剧的观众群体很稳定吗？](http://www.daogukj.com/whdogfom/)
+- [交强险2025年经营亏损230亿元，3.86亿辆机动车参保，赔付支出2524亿元，哪些信息值得关注？](http://www.daogukj.com/owjemlxs/)
+- [钧正平：南海不是菲肆意表演的戏台](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
+- [肖战第1次上热搜涨粉130万](http://www.movie.hkepx.cn/xiju/8272307.htm)
+- [张家齐妈妈走700米打车觉得狼狈](http://www.movie.hkepx.cn/xiju/5503803.htm)
+- [iPhone18Pro系列国内销量曝光](http://www.movie.hkepx.cn/movie/5517829.htm)
+- [吴艳妮决赛起跑倒数第一](http://www.daogukj.com/kfcenimf/)
+- [12306辟谣给公众号发信息能抢到票](http://www.movie.hkepx.cn/xiju/1284306.htm)
+- [原研药和仿制药买对了吗](http://www.movie.hkepx.cn/movie/9628674.htm)
+- [王楚钦 男单](http://www.daogukj.com/1857926)
+- [TES在VCTCN都算战神！无畏契约上海冠军赛门全员光头，一把不赢！【1酱赛评】](http://www.daogukj.com/dauszqqt/)
+- [花少二里面，到底谁的问题更严重？](http://www.movie.hkepx.cn/movie/0907691.htm)
+- [无糖月饼可敞开吃？小心误区](http://www.daogukj.com/5817227)
+- [C罗赛后直接回更衣室未参与全队庆祝](http://www.daogukj.com/wotljoso/)
+- [中美建立推进贸易理事会等机制](http://www.daogukj.com/8049323)
+- [《潜伏》中吕宗方是怎么发现潜伏在延安的“佛龛”就是李涯？](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
+- [小米18系列硬件防窥屏线下实测被指可视角度差、侧看偏色，这是翻车了吗？是硬件方案固有缺陷还是调校问题？](http://www.movie.hkepx.cn/xiju/0261792.htm)
+- [罗永浩遭实名举报偷税漏税](http://www.movie.hkepx.cn/movie/6726833.htm)
+- [王曼昱总共就参加过两次亚运会](http://www.movie.hkepx.cn/xiju/1828380.htm)
+- [王祖贤 复出](http://www.movie.hkepx.cn/xiju/1222939.htm)
+- [我们尝试用AI造了一个时空](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
+- [我给机器人接入10万个技能，它直接膨胀了？！](http://www.daogukj.com/2594309)
+- [戒赌吧覆灭！1400万赌徒抱团救赎，吧主将他们卖给赌场！【神奇组织17】](http://www.daogukj.com/qdasdjom/)
+- [中方：特奥多罗极端反华](http://www.daogukj.com/3136388)
+- [中美见面同期美企在华开启量产](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
+- [我的新能源男友](http://www.daogukj.com/4275576)
+- [如何看待张家齐妈妈在女儿面前开念家书，公开批评张家齐缺点不少、爱吃零食，指责其反复辜负家人信任？](http://www.daogukj.com/lpknevub/)
+- [没人会记得神作之下的第二名，除非那一年都是逆天神梗！](http://www.daogukj.com/3012939)
+- [张家齐妈妈评论区](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
+- [贷款中介集体删除朋友圈](http://www.movie.hkepx.cn/xiju/9870181.htm)
+- [抄袭者如何把原创者熬成山寨？奥利奥：这事儿我熟](http://www.movie.hkepx.cn/movie/2656535.htm)
+- [电竞项目将退出亚运](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
+- [武契奇正式辞职](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
 
 </details>
 
 ## 原始来源
 
-- [既然国人嫌弃月饼高油高糖，为啥不把月饼出口到喜爱糖油混合物的美国呢？](https://www.zhihu.com/question/2084270983846875442)
+- [刘欢去世前曾被偶遇 网友晒现场视频](https://www.baidu.com/s?wd=%E5%88%98%E6%AC%A2%E5%8E%BB%E4%B8%96%E5%89%8D%E6%9B%BE%E8%A2%AB%E5%81%B6%E9%81%87+%E7%BD%91%E5%8F%8B%E6%99%92%E7%8E%B0%E5%9C%BA%E8%A7%86%E9%A2%91&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 46b51773b6554b74e042 -->
+<!-- content-fingerprint: 80c66abeb7fed3607fbd -->
