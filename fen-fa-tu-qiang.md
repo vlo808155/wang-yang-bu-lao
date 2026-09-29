@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 生万物
+# 充电器忘拔烧毁整个家
 
-> 来源：微博热搜 · 排名：第 17 位 · 热度：72148 · 分类：剧集 · 更新：2026-09-30T02:45:38+08:00
+> 来源：百度热搜 · 排名：第 16 位 · 热度：6279706 · 更新：2026-09-30T06:39:36+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“生万物”位列第 17 位，公开热度指标为 72148，榜单分类为“剧集”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“充电器忘拔烧毁整个家”位列第 16 位，公开热度指标为 6279706。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，福建泉州一民房因手机充电器长期不拔产生电火花引发火灾。今年7月底，湖南益阳沅江市也曾因该原因发生火灾，致房屋烧毁。消防部门实测发现，充电器未连手机仍持续带电，空载时表面温度升高，短路会产生电火花引燃易燃物。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `剧集`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [邓亚萍直言输球不要找借口](wang-yang-bu-lao.md)
-- [陈芋汐赛后落泪：跳水是生命重要部分](xuan-liang-ci-gu.md)
-- [于和伟、宋佳分封视帝、视后，如何评价第 33 届中国电视金鹰奖获奖名单？](zao-bi-tou-guang.md)
-- [溶洞里动植物鲜活的秘密，藏着好空气的标准](nang-ying-ying-xue.md)
+- [周深唱了70首歌](wang-yang-bu-lao.md)
+- [杨紫张一山同框](xuan-liang-ci-gu.md)
+- [怎么看媒体曝 Anthropic 提交 IPO 招股书，25年营收增长12倍，净亏损420亿美元？](zao-bi-tou-guang.md)
+- [你管这叫只会一点点？？？](nang-ying-ying-xue.md)
 
 ## 站内推荐
 
-- [拥有一块2000nits好屏的全新一代华为MatePad Air体验会如何？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [艺术斗法](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
 - [“小孩姐”陈妤颉极限逆转](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
 - [网传“电竞将退出亚运会”不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [“独居男孩”母亲质问房东曝光目的](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [陈妤颉领先泰国队0.09秒](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [李现单膝跪地给李一桐拍照](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [生万物](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [芒果的策划又封神了](http://www.movie.hkepx.cn/xiju/4248389.htm)
-- [朋友圈的贷款广告 为啥突然没了](http://www.daogukj.com/8479586)
-- [这个量筒里到底有几毫升水？别笑，你也答不上来！](http://www.movie.hkepx.cn/xiju/6912788.htm)
-- [梅婷获金鹰奖最佳女配角奖](http://www.movie.hkepx.cn/movie/7872338.htm)
-- [【矢量突破#3】拟生态全关卡 摆完挂机 简单好抄 核心突破/特别战线](http://www.play.hengshemaoyi.cn/xiju/9839884.htm)
+- [北京办抓“毛毛虫”大赛 2天抓7万条](http://www.daogukj.com/8479586)
+- [手机的研究](http://www.movie.hkepx.cn/xiju/6912788.htm)
+- [混合4×100中国夺冠 陈妤颉再添1金](http://www.movie.hkepx.cn/movie/7872338.htm)
+- [自学动画 爆肝俩月 自创一集《猫和老鼠》【手搓动画大赛】](http://www.play.hengshemaoyi.cn/xiju/9839884.htm)
 - [于和伟2026白玉兰金鹰双料视帝](http://www.play.hengshemaoyi.cn/xiju/1600527.htm)
 - [李想回应“去XX化”争议](http://www.movie.hkepx.cn/movie/5531579.htm)
-- [充电器忘拔烧毁整个家](http://www.daogukj.com/3390513)
-- [拥有一块2000nits好屏的全新一代华为MatePad Air体验会如何？](http://www.daogukj.com/6886049)
+- [老人报警丢4万民警找出23万](http://www.daogukj.com/3390513)
+- [艺术斗法](http://www.daogukj.com/6886049)
 - [陕西醉驾碾压教师并拖行5.9公里致死案提级审理，罪名变更为故意杀人，法律上如何分析？](http://www.movie.hkepx.cn/xiju/1482774.htm)
-- [⚡️她连唐笑都在调上⚡️](http://www.daogukj.com/9420831)
-- [朱亚文获金鹰最佳男配宋佳哭了](http://www.play.hengshemaoyi.cn/kongbu/5724095.htm)
-- [北京办抓“毛毛虫”大赛 2天抓7万条](http://www.play.hengshemaoyi.cn/kongbu/1788236.htm)
-- [怎么看媒体曝 Anthropic 提交 IPO 招股书，25年营收增长12倍，净亏损420亿美元？](http://www.daogukj.com/5545756)
+- [那个夺走“五一黄金周”的教授，又盯上了农民的宅基地【解读中国经济25】](http://www.daogukj.com/9420831)
+- [陈妤颉最后一棒上演惊天逆转](http://www.play.hengshemaoyi.cn/kongbu/5724095.htm)
+- [泰国洪灾大量蛇和鳄鱼出现在街道](http://www.play.hengshemaoyi.cn/kongbu/1788236.htm)
+- [于和伟、宋佳分封视帝、视后，如何评价第 33 届中国电视金鹰奖获奖名单？](http://www.daogukj.com/5545756)
 - [购房贴息 150万](http://www.movie.hkepx.cn/movie/5270539.htm)
-- [东京奥运前夕，张家齐母亲写了一封满是训诫内容的家书，但教练没有把家书给张家齐，怎样看待教练的做法？](http://www.daogukj.com/3116329)
-- [国家首次对个人商贷贴息](http://www.play.hengshemaoyi.cn/xiju/9707342.htm)
-- [参数天花乱坠，实测原形毕露！12款热门空气炸锅，谁是不虚标实力派？](http://www.movie.hkepx.cn/xiju/0541259.htm)
-- [陈梦福原爱第4次交手](http://www.movie.hkepx.cn/xiju/2275697.htm)
+- [曾风靡全国的五笔为什么逐渐被拼音输入法取代了？](http://www.daogukj.com/3116329)
+- [脑梗真的和洗澡有关吗](http://www.play.hengshemaoyi.cn/xiju/9707342.htm)
+- [小米澎程N90：这种车我真的开够了！！](http://www.movie.hkepx.cn/xiju/0541259.htm)
+- [家有儿女小雪刘星合体](http://www.movie.hkepx.cn/xiju/2275697.htm)
 - [网传“电竞将退出亚运会”不实](http://www.play.hengshemaoyi.cn/xiju/6577034.htm)
-- [“独居男孩”母亲质问房东曝光目的](http://www.movie.hkepx.cn/xiju/4577281.htm)
-- [三幻魔集结！超越神的力量！【水无月菌】](http://www.movie.hkepx.cn/xiju/2665258.htm)
+- [李现单膝跪地给李一桐拍照](http://www.movie.hkepx.cn/xiju/4577281.htm)
+- [动态视频｜泳池里究竟有多少尿？](http://www.movie.hkepx.cn/xiju/2665258.htm)
 - [8.59 元香菜遭「仅退款」，商家驱车千里跨省讨回，如何评价？电商商家维权成本这么高，症结在哪？](http://www.daogukj.com/5555418)
-- [子怡一枪打破亚洲记录亚运会标枪夺冠！](http://www.play.hengshemaoyi.cn/xiju/3747188.htm)
-- [有运动员称亚运金牌有「瑕疵」，边缘区域存在色差，组委会连夜更换，为什么会这样？可能是哪些环节出现问题？](http://www.daogukj.com/6942144)
+- [第一视角带你沉浸式体验修家电师傅的一天](http://www.play.hengshemaoyi.cn/xiju/3747188.htm)
+- [手机内置广告一直被骂，为什么没有一个厂商出一款纯净无广告的手机，是给得太多了吗？](http://www.daogukj.com/6942144)
 - [鸣潮优化性能啦！居然流畅了这么多？！](http://www.movie.hkepx.cn/movie/5277782.htm)
-- [周围吵成一片时，我怎么还能一下听见有人叫我的名字？](http://www.movie.hkepx.cn/movie/8593003.htm)
+- [假如我在GPT3.5发布的第三天立刻上线性能对标DeepSeekV4.1的模型会怎么样？](http://www.movie.hkepx.cn/movie/8593003.htm)
 - [于和伟获金鹰奖最佳男主角](http://www.daogukj.com/8549389)
-- [周深唱了70首歌](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
-- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](http://www.movie.hkepx.cn/movie/3709798.htm)
-- [六耳单曲《金钵之下》：真假皆由方寸起，阴阳只在一念间](http://www.daogukj.com/bybxufrl/)
-- [刘学义不认识杨迪何炅](http://www.play.hengshemaoyi.cn/kongbu/3402530.htm)
-- [杨紫张一山同框](http://www.play.hengshemaoyi.cn/kongbu/9522548.htm)
-- [张家齐说陈芋汐21岁状态可怕](http://www.daogukj.com/8485976)
+- [张家齐说陈芋汐21岁状态可怕](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
+- [风声1](http://www.movie.hkepx.cn/movie/3709798.htm)
+- [欧洲扒手猖獗横行，这才是文明的底蕴？](http://www.daogukj.com/bybxufrl/)
+- [林大爷死在兰香怀里](http://www.play.hengshemaoyi.cn/kongbu/3402530.htm)
+- [谁能享受房贷贴息](http://www.play.hengshemaoyi.cn/kongbu/9522548.htm)
+- [张家齐妈妈说不能和男孩子开玩笑](http://www.daogukj.com/8485976)
 - [于和伟：奖项应该给吴石将军](http://www.movie.hkepx.cn/movie/7956729.htm)
 - [华为 Mate90 系列旗舰定档 10 月 1 日发售，有哪些亮点值得关注？](http://www.daogukj.com/ipvwmaiv/)
-- [深蓝董事长称车载冰箱使用率 5%，娱乐屏全年使用不足10次，这些配置真的鸡肋吗？那为啥行业在狂卷配置？](http://www.play.hengshemaoyi.cn/kongbu/7538769.htm)
-- [亚运会男女混4×100米接力决赛，中国队以40秒78夺金，拿下该项目亚运会历史首金，如何评价这场比赛？](http://www.movie.hkepx.cn/xiju/3982276.htm)
+- [如何评价OpenAI发布的GPT-6.1 Sol？](http://www.play.hengshemaoyi.cn/kongbu/7538769.htm)
+- [神雕侠侣到底是一部拙劣的言情武侠，还是一部高级的隐喻神作？](http://www.movie.hkepx.cn/xiju/3982276.htm)
 - [居民房贷贴息政策10月1日起实施，年化贴息1%、最长补贴5年，限定房价150万以内，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/0351825.htm)
-- [国乒亚运会参加7项，拿下6金4银，仅男团未能夺金，如何评价本届亚运会国乒战绩？](http://www.movie.hkepx.cn/movie/9051024.htm)
+- [媒体追问那英临时加唱是否罚款引热议，「举报式采访」为啥引发争议？媒体这样报道合理吗？](http://www.movie.hkepx.cn/movie/9051024.htm)
 - [人民英雄 永垂不朽](http://www.movie.hkepx.cn/movie/1479042.htm)
-- [买新房贷款超一百万可获一万补贴](http://www.movie.hkepx.cn/xiju/7703550.htm)
+- [陈梦福原爱时隔13年再度交手](http://www.movie.hkepx.cn/xiju/7703550.htm)
 - [房贷贴息](http://www.play.hengshemaoyi.cn/xiju/4193543.htm)
-- [如何看待 AMD 收购李飞飞创立的World Labs，李飞飞将任AMD执行副总裁兼首席科学家？](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
+- [深蓝董事长称车载冰箱使用率 5%，娱乐屏全年使用不足10次，这些配置真的鸡肋吗？那为啥行业在狂卷配置？](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
 - [中国已建成世界规模最大的教育体系](http://www.daogukj.com/jzemyffu/)
-- [陈芋汐赛后落泪：跳水是生命重要部分](http://www.movie.hkepx.cn/movie/7933914.htm)
-- [房贷贴息后100万房贷月供能省多少](http://www.play.hengshemaoyi.cn/xiju/3481756.htm)
+- [杨紫张一山同框](http://www.movie.hkepx.cn/movie/7933914.htm)
+- [特朗普评中美会晤：满分10分我打12分](http://www.play.hengshemaoyi.cn/xiju/3481756.htm)
 - [电竞将退出亚运会？不实](http://www.daogukj.com/0746616)
-- [于和伟、宋佳分封视帝、视后，如何评价第 33 届中国电视金鹰奖获奖名单？](http://www.play.hengshemaoyi.cn/kongbu/7714631.htm)
-- [龙泉印泥](http://www.movie.hkepx.cn/movie/4117269.htm)
+- [怎么看媒体曝 Anthropic 提交 IPO 招股书，25年营收增长12倍，净亏损420亿美元？](http://www.play.hengshemaoyi.cn/kongbu/7714631.htm)
+- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](http://www.movie.hkepx.cn/movie/4117269.htm)
 
 </details>
 
 ## 原始来源
 
-- [生万物](https://s.weibo.com/weibo?q=%E7%94%9F%E4%B8%87%E7%89%A9)
+- [充电器忘拔烧毁整个家](https://www.baidu.com/s?wd=%E5%85%85%E7%94%B5%E5%99%A8%E5%BF%98%E6%8B%94%E7%83%A7%E6%AF%81%E6%95%B4%E4%B8%AA%E5%AE%B6&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 17bdf0a90ddc2b63ba11 -->
+<!-- content-fingerprint: a577cde3b463b61c597a -->
