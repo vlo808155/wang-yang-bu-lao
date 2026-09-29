@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 媒体：中国篮球病了病得很重
+# Tiffany中国区负责人致歉
 
-> 来源：今日头条热榜 · 排名：第 13 位 · 热度：5104425 · 更新：2026-09-29T09:05:55+08:00
+> 来源：微博热搜 · 排名：第 13 位 · 热度：399756 · 分类：民生新闻,时尚 · 更新：2026-09-29T14:49:05+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“媒体：中国篮球病了病得很重”位列第 13 位，公开热度指标为 5104425。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“Tiffany中国区负责人致歉”位列第 13 位，公开热度指标为 399756，榜单分类为“民生新闻,时尚”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `民生新闻,时尚`
 
 ## 相关热点
 
-- [真实历史上的瞎子阿炳是怎样的人？](zao-bi-tou-guang.md)
-- [⚡️孙悟空 三界巡演⚡️](nang-ying-ying-xue.md)
-- [中介带看三个月得知买卖双方已成交](cheng-men-li-xue.md)
-- [肖战粉丝就这样每天吃好的](shou-bu-shi-juan.md)
+- [10月1日起安眠药开药新规将实施](zao-bi-tou-guang.md)
+- [如何看待我的世界（minecraft）加入了最新的第四个维度：the SIFT？](nang-ying-ying-xue.md)
+- [《绝区零》洛克茜角色PV | 发条骑士](cheng-men-li-xue.md)
+- [乌合之众](shou-bu-shi-juan.md)
 
 ## 站内推荐
 
-- [平平福双已运至亚特兰大动物园](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [中国队男女4×100米接力双双卫冕](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [张本美和四项全输给中国队](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [专家热议养老保险制度优化](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [网上都说计算机炸了，为什么现实中一堆转专业到计算机的？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [看看青春的模样](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [叶信之 二婚](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [水谷隼称中国曾有五六个王楚钦](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [伊朗最高领袖：伊朗已变得独立强大](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [名嘴：菲若真敢硬闯黄岩岛那就试试看](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [如何看待常德一老人因误解养老金政策拾荒 21 年，最终领到 42 万养老金？暴露了背后哪些问题？](http://www.movie.hkepx.cn/xiju/1653219.htm)
-- [羽毛球选手吐槽亚运会：要运动员的命](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
-- [年轻人“目的地婚礼”走红](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
-- [美民众热切期待见到“平平”“福双”](http://www.daogukj.com/ceegkpfb/)
-- [你管这叫只会一点点？？？](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
-- [深圳一街道办深夜打麻将实为视觉误差](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
-- [9种面相提示心脏出问题了](http://www.movie.hkepx.cn/xiju/2935808.htm)
-- [“干饭哥”亚运4金后 子弹还在飞](http://www.movie.hkepx.cn/movie/6067835.htm)
-- [2026年10-12月国创秋季导视-哔哩哔哩版权国创](http://www.movie.hkepx.cn/movie/1919789.htm)
-- [中国队男女4×100米接力双双卫冕](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
-- [真实历史上的瞎子阿炳是怎样的人？](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
-- [日本 地震](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
-- [女子回应花1分钱买5人票逛景区还中奖](http://www.movie.hkepx.cn/xiju/8738765.htm)
-- [张本美和四项全输给中国队](http://www.play.hengshemaoyi.cn/xiju/4131259.htm)
-- [网购香菜仅退款 商家驾车上门要回](http://www.daogukj.com/5961107)
-- [迈克尔.韩立 《不凡》天南巡回演唱会【AI MV大赛】](http://www.daogukj.com/4005019)
-- [陈妤颉再添一金](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
-- [😨“后室里的乌鲁鲁2”😰](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
-- [2026亚运会乒乓球男单决赛，林诗栋 4-0 王楚钦夺得金牌，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/3802162.htm)
-- [专家：菲欲借域外势力挑事打错算盘](http://www.daogukj.com/4160322)
-- [专家热议养老保险制度优化](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
-- [“钻玉米地”不划脸教程](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
-- [“这三天谁能有心思上班”](http://www.movie.hkepx.cn/movie/5796961.htm)
-- [女孩中秋节离世 母亲称不愿再过中秋](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
-- [涨薪意识](http://www.daogukj.com/6018961)
-- [Tiffany散装桃酥致歉](http://www.daogukj.com/efehcbta/)
-- [怎样看待王楚钦称不知道为什么就是感觉累，找不太到之前打球的感觉？他要怎样才能找回之前的状态？](http://www.daogukj.com/7846527)
-- [网上都说计算机炸了，为什么现实中一堆转专业到计算机的？](http://www.movie.hkepx.cn/movie/2779517.htm)
-- [2岁娃疑连吃8个月银鳕鱼汞中毒](http://www.daogukj.com/5137842)
-- [中疾控：南方流感阳性率高达近25%](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
-- [假如🤔...全世界发量下降一万倍，而俺不变！](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
-- [“给12306发信息能抢到票”不实](http://www.daogukj.com/2275454)
-- [肖战粉丝就这样每天吃好的](http://www.movie.hkepx.cn/movie/8955518.htm)
-- [平平福双已运至亚特兰大动物园](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
-- [新政后全国多个楼盘启动涨价](http://www.daogukj.com/3040545)
-- [网友吐槽「毫无人性关怀的大厂却总致力于打造出充满人性光辉的产品」，你怎么看待这个观点？](http://www.movie.hkepx.cn/movie/0072136.htm)
-- [13岁男孩独居后洗手池全是霉菌](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
-- [⚡️孙悟空 三界巡演⚡️](http://www.movie.hkepx.cn/xiju/2548466.htm)
-- [多地贷款中介集体解散群聊、删除朋友圈，背后原因是什么？会带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
-- [鲍师傅超长蛋挞 全是皮没蛋液](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
-- [何猷君奚梦瑶婚礼答谢宴现场](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
-- [程靖淇说舆论对王楚钦是种消耗](http://www.movie.hkepx.cn/movie/0563740.htm)
-- [【剧情】终极恶女（2014）01【那维勋 / 蔡函岑】](http://www.play.hengshemaoyi.cn/xiju/5085308.htm)
-- [要检查孩子作业，孩子回应「老师要求做完，又没要求做对」来回避检查作业，怎么纠正孩子更好呢？](http://www.movie.hkepx.cn/xiju/6484379.htm)
-- [面对「过紧日子」的要求，大学预算中哪些开支「该紧」，哪些「不该紧」？](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
-- [兰香如故被指不把女配当人看](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
-- [李现澳网明星赛晋级四强](http://www.movie.hkepx.cn/movie/4954417.htm)
-- [日方官员称特朗普表态让日本不舒服](http://www.daogukj.com/8556378)
-- [为什么父母总爱说「我都是为了你好」，但我们这代人却最害怕听到这句话？](http://www.daogukj.com/0551116)
-- [美联社：中国在亚运会持续占主导地位](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
+- [日本经贸代表团访华有何意图](http://www.movie.hkepx.cn/xiju/1653219.htm)
+- [成都文旅通报那英唱《弯弯的月亮》](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
+- [【新宿决战】悟空VS如来](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
+- [中国制图将还原火星前世今生](http://www.daogukj.com/ceegkpfb/)
+- [怎么看待超长蛋挞的爆红？](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
+- [肖战歌词海报](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
+- [擦边剧本杀将“杀死”这个行业](http://www.movie.hkepx.cn/xiju/2935808.htm)
+- [女子每天5点起床从杭州到上海上班](http://www.movie.hkepx.cn/movie/6067835.htm)
+- [天山深处崛起「世界最高坝」大石峡水利枢纽，为什么要在干旱缺水的新疆戈壁中截流造个大水库？建起来有多难？](http://www.movie.hkepx.cn/movie/1919789.htm)
+- [叶信之 二婚](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
+- [10月1日起安眠药开药新规将实施](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
+- [《无敌超人》当你拥有无限增强的超能力，会做什么？【Hishorts! × updream AI短片大赛+剧情单元】](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
+- [【星球大战：曼达洛人与古古】古爱玲又出新素材了！](http://www.movie.hkepx.cn/xiju/8738765.htm)
+- [水谷隼称中国曾有五六个王楚钦](http://www.play.hengshemaoyi.cn/xiju/4131259.htm)
+- [披床单长大的人在横店各自入戏](http://www.daogukj.com/5961107)
+- [怎样看待王楚钦称不知道为什么就是感觉累，找不太到之前打球的感觉？他要怎样才能找回之前的状态？](http://www.daogukj.com/4005019)
+- [媒体：国乒男队每个人的课题各不相同](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
+- [网友称Tiffany销售承诺送月饼后将其寄错给他人，吐槽后账号被举报，相关负责人致歉，具体怎么回事？](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
+- [从本届亚运会来看，林诗栋夺得 3 金 1 银要成为国乒一哥了吗？](http://www.movie.hkepx.cn/xiju/3802162.htm)
+- [福原爱说王楚钦更想拿冠军](http://www.daogukj.com/4160322)
+- [伊朗最高领袖：伊朗已变得独立强大](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
+- [二洲年音乐会｜†TAKEDISKRUSH!†](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
+- [让百姓安心 不需要“存领导号码”](http://www.movie.hkepx.cn/movie/5796961.htm)
+- [66岁大爷考入大学 大一绩点全班前三](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
+- [女教师遭拖行致死案5人被控故意杀人](http://www.daogukj.com/6018961)
+- [“火车票候补妙招”是假的](http://www.daogukj.com/efehcbta/)
+- [如何评价 9 月 28 日发布的Claude Sonnet 5.5？](http://www.daogukj.com/7846527)
+- [名嘴：菲若真敢硬闯黄岩岛那就试试看](http://www.movie.hkepx.cn/movie/2779517.htm)
+- [男子被狗咬伤为省钱没打疫苗离世](http://www.daogukj.com/5137842)
+- [特朗普评中美会晤：满分10分我打12分](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
+- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
+- [2026年10-12月国创秋季导视-哔哩哔哩版权国创](http://www.daogukj.com/2275454)
+- [乌合之众](http://www.movie.hkepx.cn/movie/8955518.htm)
+- [看看青春的模样](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
+- [仅退款被拒男子900家店下单2700次](http://www.daogukj.com/3040545)
+- [旅途中，有哪些古建筑真正配得上「叹为观止」四个字？](http://www.movie.hkepx.cn/movie/0072136.htm)
+- [仅退款把商家逼成什么程度了](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
+- [如何看待我的世界（minecraft）加入了最新的第四个维度：the SIFT？](http://www.movie.hkepx.cn/xiju/2548466.htm)
+- [手机内置广告一直被骂，为什么没有一个厂商出一款纯净无广告的手机，是给的太多了吗？](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
+- [【补档】CN零杠八单曲《大家一起十六强》完整版](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
+- [“苦 命 双 鸡 锅”](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
+- [李亚鹏回应息影真实原因](http://www.movie.hkepx.cn/movie/0563740.htm)
+- [【剧情】长生契（2026）11【方逸伦 / 谢可寅】](http://www.play.hengshemaoyi.cn/xiju/5085308.htm)
+- [网友吐槽「毫无人性关怀的大厂却总致力于打造出充满人性光辉的产品」，你怎么看待这个观点？](http://www.movie.hkepx.cn/xiju/6484379.htm)
+- [亚运中国小孩哥小孩姐掀起青春风暴](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
+- [林诗栋颁奖现场被观众挑衅](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
+- [泰国“羽毛球女神”药检阳性](http://www.movie.hkepx.cn/movie/4954417.htm)
+- [张本智和看到妹妹输球仰天翻白眼](http://www.daogukj.com/8556378)
+- [媒体：国乒需重新找回快乐](http://www.daogukj.com/0551116)
+- [接力夺冠姑娘们把国旗叠得方方正正](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
 
 </details>
 
 ## 原始来源
 
-- [媒体：中国篮球病了病得很重](https://www.toutiao.com/trending/7690473330536907310/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2215%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227690473330536907310%22%2C%22hot_board_impr_id%22%3A%2220260929090553E732517BF323F82CCFF5%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
+- [Tiffany中国区负责人致歉](https://s.weibo.com/weibo?q=Tiffany%E4%B8%AD%E5%9B%BD%E5%8C%BA%E8%B4%9F%E8%B4%A3%E4%BA%BA%E8%87%B4%E6%AD%89)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 348e792ffde846fa67a1 -->
+<!-- content-fingerprint: 3771036285a010d91b6e -->
