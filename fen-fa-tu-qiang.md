@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 楼盘每隔两层配一个超300平米大平台
+# 多位艺人巴黎遭盗抢
 
-> 来源：百度热搜 · 排名：第 16 位 · 热度：6278729 · 更新：2026-09-30T15:20:52+08:00
+> 来源：微博热搜 · 排名：第 17 位 · 热度：396405 · 分类：艺人 · 更新：2026-09-30T21:55:42+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“楼盘每隔两层配一个超300平米大平台”位列第 16 位，公开热度指标为 6278729。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“多位艺人巴黎遭盗抢”位列第 17 位，公开热度指标为 396405，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，有网友发视频称，山西临汾一楼盘每隔两层配有一个超大空中平台，面积堪比一个羽毛球场，还有人在上面办酒席。9月29日，销售人员表示，近期确有业主在平台上办婚宴，最少可摆十几桌，以提升入住体验。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `艺人`
 
 ## 相关热点
 
-- [25岁抗癌博主去世 常熬夜12点到2点](wang-yang-bu-lao.md)
-- [胡歌陈龙都哭了](xuan-liang-ci-gu.md)
-- [闫妮又在金鹰奖微醺上了](zao-bi-tou-guang.md)
-- [媒体称有欧盟成员国呼吁加快制定欧版301工具，商务部回应若属实中方必将坚决予以回应，哪些信息值得关注？](nang-ying-ying-xue.md)
+- [中科大博士涌向体制内](wang-yang-bu-lao.md)
+- [成都大学一学院党委书记抄袭被免职](xuan-liang-ci-gu.md)
+- [如何评价 OpenAI 推出个人 AI 助理Dot，可全天候自主执行任务并连接 4000 多款应用？](zao-bi-tou-guang.md)
+- [当道士下山上大学](nang-ying-ying-xue.md)
 
 ## 站内推荐
 
-- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [面具比命还重要？墨西哥摔跤手的生活，有多疯狂？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
 - [跟我一起在农场度过一天](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
 - [【剧情】长生契（2026）08【方逸伦 / 谢可寅】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [什么叫勇者跟被救的公主二阶段打起来了？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [广州楼市新政](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [美股开盘集体高开 半导体权重股普涨](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [张家齐夹在她父母中间只能自已长大](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [空姐下跪道歉事件目击者再发声](http://www.movie.hkepx.cn/xiju/4248389.htm)
-- [《最绝望の小兵》](http://www.daogukj.com/8479586)
-- [为啥到底谁是中上985，谁是中下985，吵得不可开交，但几乎没人吵谁是中上211，谁是中下211？](http://www.movie.hkepx.cn/xiju/6912788.htm)
-- [东方甄选回应劣质溜溜凳事件](http://www.movie.hkepx.cn/movie/7872338.htm)
-- [手机的研究](http://www.play.hengshemaoyi.cn/xiju/9839884.htm)
-- [董子健看孙怡获奖的眼神](http://www.play.hengshemaoyi.cn/xiju/1600527.htm)
-- [【品城记】脾气越火爆手艺越好？带你了解“顺德炒王”是怎么练成的！](http://www.movie.hkepx.cn/movie/5531579.htm)
-- [【矢量突破#3】拟生态全关卡 摆完挂机 简单好抄 核心突破/特别战线](http://www.daogukj.com/3390513)
-- [手绘465张！One Last Kiss【EVA30周年回忆重逢计划】](http://www.daogukj.com/6886049)
-- [如何看待张继科评男单最强三人「横板是樊振东、马龙和我，直板也是我们三个 」？你心目中男单前三选手有谁？](http://www.movie.hkepx.cn/xiju/1482774.htm)
-- [醉酒男子打车多次要求中途下车后溺亡，家属向司机平台索赔30万被驳回，如何解读这一判决？](http://www.daogukj.com/9420831)
-- [沙玥儿妈妈发长文道歉](http://www.play.hengshemaoyi.cn/kongbu/5724095.htm)
-- [【鸣潮】心月狐攻略！双体系大C 完全体独断万古？！同奏体系讲解 细节养成作业+进阶技巧](http://www.play.hengshemaoyi.cn/kongbu/1788236.htm)
-- [特朗普评中美会晤：满分10分我打12分](http://www.daogukj.com/5545756)
-- [邓亚萍输给小山智丽收到死亡威胁](http://www.movie.hkepx.cn/movie/5270539.htm)
-- [6个宁波孩子把亚运朋友圈刷爆了](http://www.daogukj.com/3116329)
-- [曝拉塞尔签约上海男篮](http://www.play.hengshemaoyi.cn/xiju/9707342.htm)
-- [艺术斗法](http://www.movie.hkepx.cn/xiju/0541259.htm)
-- [孙怡拿影后 前夫董子健台下鼓掌](http://www.movie.hkepx.cn/xiju/2275697.htm)
+- [兰香如故为什么停更](http://www.movie.hkepx.cn/xiju/4248389.htm)
+- [云南昆明盘龙区发生4.3级地震](http://www.daogukj.com/8479586)
+- [虫子为啥不进化的可爱一点，这样人类就不忍心踩死了？](http://www.movie.hkepx.cn/xiju/6912788.htm)
+- [安东尼奥：我们要去争取一枚奖牌](http://www.movie.hkepx.cn/movie/7872338.htm)
+- [艺术斗法](http://www.play.hengshemaoyi.cn/xiju/9839884.htm)
+- [美人余定档](http://www.play.hengshemaoyi.cn/xiju/1600527.htm)
+- [家中漏水 维修人员灌了50多斤胶水](http://www.movie.hkepx.cn/movie/5531579.htm)
+- [90后，00的童年的含金量还在一步步提升](http://www.daogukj.com/3390513)
+- [面具比命还重要？墨西哥摔跤手的生活，有多疯狂？](http://www.daogukj.com/6886049)
+- [为什么GPT-6 Astra玩《我的世界》被炸毁进度后连续数小时种植土豆？这种异常行为怎么产生的？](http://www.movie.hkepx.cn/xiju/1482774.htm)
+- [⚡️门捷列夫 科学界巡演 怒唱元素周期表⚡️](http://www.daogukj.com/9420831)
+- [桃晚安不愧是中国姑娘](http://www.play.hengshemaoyi.cn/kongbu/5724095.htm)
+- [8888元和猪住一晚？来问的人太多了](http://www.play.hengshemaoyi.cn/kongbu/1788236.htm)
+- [美军灰溜溜走了 伊拉克全国放假4天](http://www.daogukj.com/5545756)
+- [九毛九股价跌破“九毛九”](http://www.movie.hkepx.cn/movie/5270539.htm)
+- [男子用土豆当主食半年瘦25斤](http://www.daogukj.com/3116329)
+- [昆明4.3级地震 网友称震感强烈](http://www.play.hengshemaoyi.cn/xiju/9707342.htm)
+- [让照片好看，这两个方法都不行啊！](http://www.movie.hkepx.cn/xiju/0541259.htm)
+- [Tiffany事件](http://www.movie.hkepx.cn/xiju/2275697.htm)
 - [【剧情】长生契（2026）08【方逸伦 / 谢可寅】](http://www.play.hengshemaoyi.cn/xiju/6577034.htm)
-- [什么叫勇者跟被救的公主二阶段打起来了？](http://www.movie.hkepx.cn/xiju/4577281.htm)
-- [9 月 30 日房地产板块集体跳水，万科 A、深物业 A 跌停，招商蛇口等纷纷下挫，发生了什么？](http://www.movie.hkepx.cn/xiju/2665258.htm)
-- [怎么看媒体曝小米大模型负责人罗福莉晋升至 22 级？](http://www.daogukj.com/5555418)
-- [为什么开封府尹一个四品官职敢不给高俅面子？](http://www.play.hengshemaoyi.cn/xiju/3747188.htm)
-- [胡歌现身游本昌遗体告别仪式](http://www.daogukj.com/6942144)
-- [如何看待DeepSeek 开源昇腾基础组件？](http://www.movie.hkepx.cn/movie/5277782.htm)
-- [杨紫未拿奖从容离场状态松弛](http://www.movie.hkepx.cn/movie/8593003.htm)
-- [陪看男足半决赛：中国vs韩国](http://www.daogukj.com/8549389)
-- [Tiffany月饼事件始末](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
-- [网友称大批国乒资深国家队陪练辞职，是真的吗？国乒陪练体系为啥出现人员流失？国乒水平下降与此有关吗？](http://www.movie.hkepx.cn/movie/3709798.htm)
-- [如何看待Manus重回中国市场并发布Manus 2.0和个人智能助理Cue？](http://www.daogukj.com/bybxufrl/)
-- [中国U23男足被扳平](http://www.play.hengshemaoyi.cn/kongbu/3402530.htm)
-- [刘欢妻子辟谣网传临终传闻后事图片](http://www.play.hengshemaoyi.cn/kongbu/9522548.htm)
-- [胡歌陈龙双双哭了](http://www.daogukj.com/8485976)
-- [⚡️门捷列夫 科学界巡演 怒唱元素周期表⚡️](http://www.movie.hkepx.cn/movie/7956729.htm)
-- [问界新M8开启预售](http://www.daogukj.com/ipvwmaiv/)
-- [25岁博主嘻嘻徐宝患胃癌去世，曾自述患癌前每天12点到2点间睡觉、爱喝奶茶，哪些习惯可能导致患胃癌？](http://www.play.hengshemaoyi.cn/kongbu/7538769.htm)
-- [弹力袜是静脉曲张“治疗神器”？假的](http://www.movie.hkepx.cn/xiju/3982276.htm)
-- [如何看待江苏高考接近满分记叙文《衬衫的价格为 9 镑 15 便士》火了，为啥会引发大家的共鸣？](http://www.movie.hkepx.cn/xiju/0351825.htm)
-- [牛弹琴：蔚来与吉利的合作意味深长](http://www.movie.hkepx.cn/movie/9051024.htm)
-- [满城“中国红” 喜迎国庆](http://www.movie.hkepx.cn/movie/1479042.htm)
-- [蒂芙尼被一盒月饼绊倒了](http://www.movie.hkepx.cn/xiju/7703550.htm)
-- [陪看中国亚运男足vs韩国](http://www.play.hengshemaoyi.cn/xiju/4193543.htm)
-- [国台办：台当局恶劣行径必遭强烈反对](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
-- [山河永念 我们从未忘记](http://www.daogukj.com/jzemyffu/)
-- [胡歌陈龙都哭了](http://www.movie.hkepx.cn/movie/7933914.htm)
-- [25岁女画师约稿被骗4万后坠亡](http://www.play.hengshemaoyi.cn/xiju/3481756.htm)
-- [这居然是林志玲](http://www.daogukj.com/0746616)
-- [闫妮又在金鹰奖微醺上了](http://www.play.hengshemaoyi.cn/kongbu/7714631.htm)
-- [如何看待年轻人花一万二买房去大兴安岭隐居，折合下来一平方米仅一百块钱？这种生活方式怎么样？](http://www.movie.hkepx.cn/movie/4117269.htm)
+- [美股开盘集体高开 半导体权重股普涨](http://www.movie.hkepx.cn/xiju/4577281.htm)
+- [绝密重庆之旅！！居然当街挑战折耳根咖啡！？](http://www.movie.hkepx.cn/xiju/2665258.htm)
+- [迪拜航空客机发出紧急信号返航，被曝俄裔机长与乌克兰裔副驾发生激烈争吵，还有哪些信息值得关注？](http://www.daogukj.com/5555418)
+- [全欧洲“最便宜”的国家？！用1000元和20000元分别过一天](http://www.play.hengshemaoyi.cn/xiju/3747188.htm)
+- [为什么牧羊犬能指挥羊群进退？](http://www.daogukj.com/6942144)
+- [手机的研究](http://www.movie.hkepx.cn/movie/5277782.htm)
+- [你知道最小众的冷知识是什么？](http://www.movie.hkepx.cn/movie/8593003.htm)
+- [寒武纪：离职高管梁军索赔278.32亿元](http://www.daogukj.com/8549389)
+- [巴防长：将动用一切手段保护沙特](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
+- [网友说熊比东北虎好整，碰上熊能悄悄退出其领地，只要别背对熊，但东北虎跑哪儿都能被撵着，这是真的吗？](http://www.movie.hkepx.cn/movie/3709798.htm)
+- [《善》善良是什么](http://www.daogukj.com/bybxufrl/)
+- [张家齐 当代哪吒](http://www.play.hengshemaoyi.cn/kongbu/3402530.htm)
+- [博主：中国男足亚运队今天踢得不错](http://www.play.hengshemaoyi.cn/kongbu/9522548.htm)
+- [郭晓东道歉](http://www.daogukj.com/8485976)
+- [深不可测的恐惧：斯克拉奇溪，溯源之惧 第六章](http://www.movie.hkepx.cn/movie/7956729.htm)
+- [为什么千手一族只剩下纲手？其他的族人呢？](http://www.daogukj.com/ipvwmaiv/)
+- [家长称2岁幼儿常吃银鳕鱼后汞中毒，这是银鳕鱼导致的吗？厂商称标注「儿童装」非宣传婴幼儿食物，算甩锅吗？](http://www.play.hengshemaoyi.cn/kongbu/7538769.htm)
+- [如何看待江苏高考接近满分记叙文《衬衫的价格为 9 镑 15 便士》火了，为啥会引发大家的共鸣？](http://www.movie.hkepx.cn/xiju/3982276.htm)
+- [25岁博主嘻嘻徐宝患胃癌去世，曾自述患癌前每天12点到2点间睡觉、爱喝奶茶，哪些习惯可能导致患胃癌？](http://www.movie.hkepx.cn/xiju/0351825.htm)
+- [俄警告动用核武器保卫加里宁格勒](http://www.movie.hkepx.cn/movie/9051024.htm)
+- [清澈的爱，只为中国！](http://www.movie.hkepx.cn/movie/1479042.htm)
+- [人民日报：小心“快招陷阱”](http://www.movie.hkepx.cn/xiju/7703550.htm)
+- [解放军22架艘次军机舰船位台岛周边活动](http://www.play.hengshemaoyi.cn/xiju/4193543.htm)
+- [唐湘龙：两岸统一已在有序进行中](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
+- [感受各地浓厚国庆氛围](http://www.daogukj.com/jzemyffu/)
+- [成都大学一学院党委书记抄袭被免职](http://www.movie.hkepx.cn/movie/7933914.htm)
+- [我家那闺女 剪辑](http://www.play.hengshemaoyi.cn/xiju/3481756.htm)
+- [赵希伦聊天记录](http://www.daogukj.com/0746616)
+- [如何评价 OpenAI 推出个人 AI 助理Dot，可全天候自主执行任务并连接 4000 多款应用？](http://www.play.hengshemaoyi.cn/kongbu/7714631.htm)
+- [亚运会男足半决赛中国憾负韩国，最后时刻韩国逃掉疑似禁区手球，对此你怎么看，如何评价本场裁判的表现？](http://www.movie.hkepx.cn/movie/4117269.htm)
 
 </details>
 
 ## 原始来源
 
-- [楼盘每隔两层配一个超300平米大平台](https://www.baidu.com/s?wd=%E6%A5%BC%E7%9B%98%E6%AF%8F%E9%9A%94%E4%B8%A4%E5%B1%82%E9%85%8D%E4%B8%80%E4%B8%AA%E8%B6%85300%E5%B9%B3%E7%B1%B3%E5%A4%A7%E5%B9%B3%E5%8F%B0&sa=fyb_news&rsv_dl=fyb_news)
+- [多位艺人巴黎遭盗抢](https://s.weibo.com/weibo?q=%E5%A4%9A%E4%BD%8D%E8%89%BA%E4%BA%BA%E5%B7%B4%E9%BB%8E%E9%81%AD%E7%9B%97%E6%8A%A2)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4c06be5ac36fc9653a80 -->
+<!-- content-fingerprint: 929361d7701b1ee8d8d3 -->
