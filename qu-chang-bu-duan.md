@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 同样是挤在假期出游，为什么感觉不如学生时代好玩了？
+# 小猫误入天安门执勤岗哨 这一幕太暖
 
-> 来源：知乎热榜 · 排名：第 15 位 · 热度：168 万热度 · 分类：问答 · 更新：2026-10-02T16:53:45+08:00
+> 来源：百度热搜 · 排名：第 15 位 · 热度：6377444 · 更新：2026-10-02T23:08:06+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“同样是挤在假期出游，为什么感觉不如学生时代好玩了？”位列第 15 位，公开热度指标为 168 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“小猫误入天安门执勤岗哨 这一幕太暖”位列第 15 位，公开热度指标为 6377444。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：突然意识到 不论是打工人还是学生 都是假期出游啊，可为什么现在提不起兴趣了呢？
+来源公开摘要显示：近日，一段小猫误入天安门执勤岗哨的视频引发关注。小猫向哨兵求抚摸，但执勤哨兵坚守岗位未动。班长将视频发给该哨兵看，让其内心暖暖的。哨兵表示，猫是在寻找安全感，而他们守护群众的笑容和万家灯火，让人感到无比荣耀。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [你再看看你后面呢！!](jing-yi-qiu-jing.md)
-- [女子在国外被中国男演员救了一命](jiao-ta-shi-di.md)
-- [合村并居](shi-shi-qiu-shi.md)
-- [谢锋：年底前中美元首还有望两度聚首](chi-zhi-yi-heng.md)
+- [布云朝克特vs德约科维奇](jing-yi-qiu-jing.md)
+- [美债一夜掉头 抛压退了吗](jiao-ta-shi-di.md)
+- [为什么现在的rts游戏出一部暴死一部？](shi-shi-qiu-shi.md)
+- [如何在家自制脆皮炸牛奶？](chi-zhi-yi-heng.md)
 
 ## 站内推荐
 
-- [江歌妈妈最新发文「10 年维权路，尘埃终将落定」，哪些信息值得关注？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [湖南一孕妇马路中间骑车压速并别车，后车司机怒而下车一脚将其车踹翻，事后赔了800元，责任该怎么划分？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [全世界都知道中国人放假了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [A股休市港股为什么先跌了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
 - [清华北大是本身有含金量，还是因为13亿人高考内卷出来的排名靠前的学生有含金量？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [如何看待 DeepSeek 2026 年 10 月 02 日 03:40 起崩溃（性能下降）？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [欧足联官网显示，葡萄牙7号球员变更为莱奥，如何看待这件事？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [《原神》剧情PV-「燕归来」](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [普京最新涉华表态](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [国庆假期深度游迎爆发式增长](http://www.daogukj.com/baxpihzh/)
-- [宋佳拿奖口碑](http://www.play.hengshemaoyi.cn/kongbu/2062726.htm)
-- [章鱼哥，快乐都去哪了呢？](http://www.daogukj.com/1315659)
-- [在这座东北最 "鲜" 的城市，海鲜自由只是开胃菜...](http://www.play.hengshemaoyi.cn/xiju/2704335.htm)
-- [女子在国外被中国男演员救了一命](http://www.daogukj.com/lumregqz/)
-- [国庆放假百万网红猫留守家中！上门喂养师，能搞定我家猫咪的奇特怪癖吗？｜平平“无奇”的世界](http://www.daogukj.com/kwbyfzbo/)
-- [牛肉价格上涨背后有何原因](http://www.movie.hkepx.cn/movie/4575020.htm)
-- [逻辑折叠深度解析！华为Mate 90系列韬定律芯片有多强？](http://www.daogukj.com/1670070)
-- [李小冉 你们还有戏拍](http://www.play.hengshemaoyi.cn/xiju/3416396.htm)
-- [在国外被中国男演员救了一命](http://www.daogukj.com/1634277)
-- [奚梦瑶曝婆婆5胎剖腹产没坐月子](http://www.daogukj.com/5380912)
-- [如何看待 DeepSeek 2026 年 10 月 02 日 03:40 起崩溃（性能下降）？](http://www.movie.hkepx.cn/xiju/8054512.htm)
-- [17年果粉买到华为Mate90激动到结巴](http://www.daogukj.com/7644617)
-- [小朋友求合影特警下意识用手捂住枪口](http://www.daogukj.com/5432364)
-- [“诈骗”拯救世界？20世纪规模最大的慈善演唱会是如何诞生的？](http://www.play.hengshemaoyi.cn/xiju/0868894.htm)
-- [中国游客在全世界表白祖国](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
-- [为什么港剧的豪门恩怨，如罗嘉良的创世纪、刘青云的大时代，很受观众的喜爱？而大陆剧的豪门恩怨却让人尴尬？](http://www.play.hengshemaoyi.cn/xiju/2616443.htm)
-- [充电特别繁忙服务区清单发布](http://www.daogukj.com/0678164)
-- [美国退伍女兵原定截右腿醒来左腿没了](http://www.daogukj.com/4244457)
-- [网友称高铁候补订单凌晨兑现，早上睡醒发现车已开走，12306回应可设置截止兑现时间，还有更好的解法吗？](http://www.movie.hkepx.cn/movie/9295074.htm)
-- [24位博主为粉丝争夺30万元！](http://www.play.hengshemaoyi.cn/xiju/0913157.htm)
-- [全世界都知道中国人放假了](http://www.movie.hkepx.cn/movie/2532435.htm)
-- [为什么宇宙的最低温只有-273.15度，最高温却高达1.4亿亿亿亿度?](http://www.play.hengshemaoyi.cn/kongbu/9083706.htm)
-- [国庆第二天西湖断桥上全是人](http://www.movie.hkepx.cn/xiju/0437055.htm)
-- [湖南一孕妇马路中间骑车压速并别车，后车司机怒而下车一脚将其车踹翻，事后赔了800元，责任该怎么划分？](http://www.play.hengshemaoyi.cn/xiju/0405943.htm)
-- [男子着急回家连开7个小时长途险猝死](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
-- [金店客流暴涨 金镯子半天卖空](http://www.daogukj.com/8118057)
-- [电视剧《喜剧之王》定档](http://www.play.hengshemaoyi.cn/xiju/3197658.htm)
-- [邓为抱着林依晨玩水上滑滑梯](http://www.play.hengshemaoyi.cn/kongbu/3085425.htm)
-- [75岁王石重返房地产](http://www.movie.hkepx.cn/movie/4468433.htm)
-- [王曦雨2-0张帅获亚运网球女单冠军](http://www.movie.hkepx.cn/xiju/0951693.htm)
-- [《原神》剧情PV-「燕归来」](http://www.movie.hkepx.cn/movie/5267051.htm)
-- [喝冰水到底伤不伤胃](http://www.daogukj.com/3228319)
-- [比亚迪9月销量46.36万辆，连续数月环比增长，如何看待比亚迪目前的销量走势？](http://www.movie.hkepx.cn/xiju/0255674.htm)
-- [如何看待一男子在广西柳州站擅自爬上D1884次动车车顶遭电击坠落，官方称该男子暂无生命危险？](http://www.play.hengshemaoyi.cn/kongbu/6482335.htm)
-- [美国总统特朗普！卖的黄金手机！到底什么样？竟然中国制造？](http://www.daogukj.com/cmwhbpsa/)
-- [华为Mate90ProMax顶配版成销售主力](http://www.daogukj.com/6408302)
-- [你再看看你后面呢！!](http://www.play.hengshemaoyi.cn/kongbu/6504187.htm)
-- [江歌妈妈最新发文「10 年维权路，尘埃终将落定」，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/8353840.htm)
-- [C 罗宣布退出葡萄牙队集训营，如何看待他与主帅的矛盾？](http://www.daogukj.com/jhhicgnj/)
-- [继巨型吊牌之后，女装网店启用「防拆带」应对恶意退货，这会更有效吗？有人说市场信任崩溃了，为什么会这样？](http://www.play.hengshemaoyi.cn/xiju/2201754.htm)
-- [如何看待美国田纳西州死刑犯接受两轮致死注射后，不仅没死还打起了鼾？可能是哪个环节的问题？](http://www.movie.hkepx.cn/xiju/9904424.htm)
-- [亚运跳水收官 梦之队10金4银2铜](http://www.play.hengshemaoyi.cn/xiju/7993084.htm)
-- [王源工作人员的伙食](http://www.movie.hkepx.cn/xiju/2553336.htm)
-- [演员章涛回应在国外救人](http://www.play.hengshemaoyi.cn/kongbu/6028567.htm)
-- [你离开的事实原创高至豪偶遇粉丝，于是为她演奏一曲](http://www.play.hengshemaoyi.cn/xiju/6306862.htm)
-- [贫困生为五十块忍受舍友直播](http://www.movie.hkepx.cn/xiju/2775713.htm)
-- [小学生被老师掌掴后耳聋，警方称「归教育部门管」终止调查，到底该归谁管？老师打学生案子为何总被降格处理？](http://www.movie.hkepx.cn/movie/5485785.htm)
-- [动捕演员摆POSE真的要考虑那么多吗？！](http://www.play.hengshemaoyi.cn/xiju/5094963.htm)
+- [假如地球online有幕后玩家](http://www.daogukj.com/baxpihzh/)
+- [比亚迪9月销量46.36万辆，连续数月环比增长，如何看待比亚迪目前的销量走势？](http://www.play.hengshemaoyi.cn/kongbu/2062726.htm)
+- [中国的AI短剧发展得如火如荼，而国外AI短剧却没怎么发展起来，是什么原因？](http://www.daogukj.com/1315659)
+- [王俊凯闪身步](http://www.play.hengshemaoyi.cn/xiju/2704335.htm)
+- [美债一夜掉头 抛压退了吗](http://www.daogukj.com/lumregqz/)
+- [敦煌鸣沙山游客坐满整座山宛如拼豆](http://www.daogukj.com/kwbyfzbo/)
+- [《你带你儿子忆苦思甜》](http://www.movie.hkepx.cn/movie/4575020.htm)
+- [为什么很少有可乐造假？](http://www.daogukj.com/1670070)
+- [男子偶遇烈士纪念碑 留下国旗后哽咽](http://www.play.hengshemaoyi.cn/xiju/3416396.htm)
+- [亚运三金到手 归来仍是高中生](http://www.daogukj.com/1634277)
+- [为什么中国车站叫“站”而日韩朝叫“驿”?](http://www.daogukj.com/5380912)
+- [《原神》剧情PV-「燕归来」](http://www.movie.hkepx.cn/xiju/8054512.htm)
+- [如何评价杰伦-杜伦5年2亿美元续约活塞？他跟球队有哪些恩怨情仇，和库明加等人的签约矛盾有什么不同？](http://www.daogukj.com/7644617)
+- [王俊凯片场以为要用真刀捅自己的反应](http://www.daogukj.com/5432364)
+- [鹭卓向粉丝道歉](http://www.play.hengshemaoyi.cn/xiju/0868894.htm)
+- [江歌妈妈最新发文「10 年维权路，尘埃终将落定」，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
+- [半个包子的真相](http://www.play.hengshemaoyi.cn/xiju/2616443.htm)
+- [问界二手车价格上演过山车](http://www.daogukj.com/0678164)
+- [你离开的事实原创高至豪偶遇粉丝，于是为她演奏一曲](http://www.daogukj.com/4244457)
+- [【宋雨琦】 ‘I Like You’ Official Music Video](http://www.movie.hkepx.cn/movie/9295074.htm)
+- [网友称小诊所看病好得快的原因是采用了抗生素、激素等猛药压制症状的疗法，是真的吗？会对健康造成哪些影响？](http://www.play.hengshemaoyi.cn/xiju/0913157.htm)
+- [全国各地为何都在“爆改地铁”](http://www.movie.hkepx.cn/movie/2532435.htm)
+- [中国游客如何让老外也过上“黄金周”](http://www.play.hengshemaoyi.cn/kongbu/9083706.htm)
+- [也门政府军和胡塞武装激战](http://www.movie.hkepx.cn/xiju/0437055.htm)
+- [A股休市港股为什么先跌了](http://www.play.hengshemaoyi.cn/xiju/0405943.htm)
+- [奚梦瑶曝婆婆5胎剖腹产没坐月子](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
+- [香港名媛蔡天凤碎尸案细节](http://www.daogukj.com/8118057)
+- [【纪录片】生命奇观2 03 川西山地](http://www.play.hengshemaoyi.cn/xiju/3197658.htm)
+- [全球跑的中国游客 让老外过上黄金周](http://www.play.hengshemaoyi.cn/kongbu/3085425.htm)
+- [危险！胃险？薇险！【手搓动画大赛】](http://www.movie.hkepx.cn/movie/4468433.htm)
+- [普京建议西方国家清醒评估局势](http://www.movie.hkepx.cn/xiju/0951693.htm)
+- [“没有人可以回到过去 但可以现在开始”](http://www.movie.hkepx.cn/movie/5267051.htm)
+- [董路：国足这么踢日本可能要输0-15](http://www.daogukj.com/3228319)
+- [封神榜有多可怕，为什么所有人都不愿意封神？](http://www.movie.hkepx.cn/xiju/0255674.htm)
+- [为什么维生素只有 ABCDE和K，中间跳过了 FGHIJ？](http://www.play.hengshemaoyi.cn/kongbu/6482335.htm)
+- [天安门执勤点的小猫又来了](http://www.daogukj.com/cmwhbpsa/)
+- [老师到底累不累？](http://www.daogukj.com/6408302)
+- [布云朝克特vs德约科维奇](http://www.play.hengshemaoyi.cn/kongbu/6504187.htm)
+- [全世界都知道中国人放假了](http://www.movie.hkepx.cn/xiju/8353840.htm)
+- [15万人广场上她把孩子交给女警](http://www.daogukj.com/jhhicgnj/)
+- [一抹中国红 见证跨越时代的奔赴](http://www.play.hengshemaoyi.cn/xiju/2201754.htm)
+- [莫迪连线称赞遇袭印度机长](http://www.movie.hkepx.cn/xiju/9904424.htm)
+- [邵佳一道歉](http://www.play.hengshemaoyi.cn/xiju/7993084.htm)
+- [网友称高铁候补订单凌晨兑现，早上睡醒发现车已开走，12306回应可设置截止兑现时间，还有更好的解法吗？](http://www.movie.hkepx.cn/xiju/2553336.htm)
+- [国足0比5巴勒斯坦](http://www.play.hengshemaoyi.cn/kongbu/6028567.htm)
+- [CFA 友谊赛，中国男足 0-5 巴勒斯坦，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/6306862.htm)
+- [邵佳一 国足](http://www.movie.hkepx.cn/xiju/2775713.htm)
+- [日本亚运会为什么状况百出](http://www.movie.hkepx.cn/movie/5485785.htm)
+- [韬芯片走出了世界半导体的一条新路](http://www.play.hengshemaoyi.cn/xiju/5094963.htm)
 - [这些涉及假期的网传信息都是假的](http://www.play.hengshemaoyi.cn/kongbu/1178935.htm)
 
 </details>
 
 ## 原始来源
 
-- [同样是挤在假期出游，为什么感觉不如学生时代好玩了？](https://www.zhihu.com/question/1954944562058458872)
+- [小猫误入天安门执勤岗哨 这一幕太暖](https://www.baidu.com/s?wd=%E5%B0%8F%E7%8C%AB%E8%AF%AF%E5%85%A5%E5%A4%A9%E5%AE%89%E9%97%A8%E6%89%A7%E5%8B%A4%E5%B2%97%E5%93%A8+%E8%BF%99%E4%B8%80%E5%B9%95%E5%A4%AA%E6%9A%96&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2df989f5d3d3aebbf3a7 -->
+<!-- content-fingerprint: 3dedfe4fafc3b900604d -->
