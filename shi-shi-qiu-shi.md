@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# Zara新品裙子上线就售罄：6000多一条
+# 黄河“鸳鸯锅”出圈
 
-> 来源：百度热搜 · 排名：第 15 位 · 热度：6369136 · 更新：2026-10-03T07:31:17+08:00
+> 来源：百度热搜 · 排名：第 15 位 · 热度：6370162 · 更新：2026-10-03T10:16:37+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“Zara新品裙子上线就售罄：6000多一条”位列第 15 位，公开热度指标为 6369136。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“黄河“鸳鸯锅”出圈”位列第 15 位，公开热度指标为 6370162。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，Zara官方app上线了John Galliano（网友称“海盗爷”）与Zara的合作系列 Re {form} 第一辑。抢购来得比想象中更猛，上线不到10分钟，围巾、手套等相对日常的款式就被抢空。从300多元的围巾手套，到6000多元的连衣裙，几乎全线售罄。
+来源公开摘要显示：国庆假期，甘肃临夏州永靖县刘家峡国家级旅游度假区迎来大量客流。此前，黄河与洮河在此交汇，因“一半碧蓝一半黄”形成“鸳鸯锅”景致。游客赏美景、品黄河大鲤鱼等美食、看非遗傩舞等民俗。该景致带动了县域经济，成为乡村振兴的重要文旅支撑。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [国足首发身价不及巴勒斯坦一半](chi-zhi-yi-heng.md)
-- [香港两任特首唱国歌前认真整理仪容](jian-ren-bu-ba.md)
-- [清华北大是本身有含金量，还是因为13亿人高考内卷出来的排名靠前的学生有含金量？](zi-qiang-bu-xi.md)
-- [忙活了20个小时炸了47盘的护：打完这单妻离子散，兄弟反目成仇了](fen-fa-tu-qiang.md)
+- [蔡天凤失踪前曾致电多人](chi-zhi-yi-heng.md)
+- [国庆假期天安门执勤点的那只猫又来了](jian-ren-bu-ba.md)
+- [为什么王祖贤、吴彦祖、陈冠希这些淡出演艺圈的明星，最近又活跃起来了？是北美华人圈出了什么事吗？](zi-qiang-bu-xi.md)
+- [兄妹失散、魔龙失控、风神回归！从蒙德重新出发，一口气补完原神主线剧情 【提瓦特说书人·蒙德篇】](fen-fa-tu-qiang.md)
 
 ## 站内推荐
 
-- [17岁小将赵松源回应惨败巴勒斯坦](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [“饿死肿瘤”的方法竟然真找到了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [两匹马高架狂奔 被笑称“宝马X2”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [“像造车一样盖房”真的来了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [孙颖莎欢迎晚宴图](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [刺伤迪拜航空机长的副驾驶身份披露](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [女子查出癌症花光积蓄旅游肿瘤变小](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [“有球员还想着联赛和亚冠”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [非洲这三国掐起来了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [怪不得吃重庆火锅配油碟](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [客机遇险细节太震撼](http://www.movie.hkepx.cn/xiju/7278435.htm)
-- [敦煌鸣沙山游客坐满整座山](http://www.daogukj.com/eaozjceu/)
-- [为什么维生素只有 ABCDE和K，中间跳过了 FGHIJ？](http://www.daogukj.com/xtfvegvn/)
-- [国足0比5惨败却让小将接受采访](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
-- [黄河“鸳鸯锅”出圈](http://www.daogukj.com/fkuewdzb/)
-- [17年果粉买到华为Mate90激动到结巴](http://www.movie.hkepx.cn/xiju/4307844.htm)
-- [网友称高铁候补订单凌晨兑现，早上睡醒发现车已开走，12306回应可设置截止兑现时间，还有更好的解法吗？](http://www.daogukj.com/8791893)
-- [为何机械硬盘价格如此离谱？](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
-- [田馥甄现在讲话要非常小心](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
-- [香港两任特首唱国歌前认真整理仪容](http://www.daogukj.com/2165140)
-- [王俊凯闪身步](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
-- [章鱼哥，快乐都去哪了呢？](http://www.movie.hkepx.cn/xiju/1440611.htm)
-- [17岁小将赵松源回应惨败巴勒斯坦](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
-- [为什么中国车站叫“站”而日韩朝叫“驿”?](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
-- [万里边关 同升五星红旗](http://www.daogukj.com/9837121)
-- [地球上的所有动物都没有穿衣服，还不是活得好好的，为什么只有我们人类才穿衣服，难道不穿衣服就活不了吗？](http://www.movie.hkepx.cn/movie/5334415.htm)
-- [家电维修师傅开始修人形机器人](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
-- [生活中的保命小技巧全集](http://www.movie.hkepx.cn/movie/2391374.htm)
-- [“像造车一样盖房”真的来了](http://www.movie.hkepx.cn/movie/4276791.htm)
+- [陈楚生陈昊宇 认识了大概有36个小时](http://www.movie.hkepx.cn/xiju/7278435.htm)
+- [马斯克与高管女友分手 两人育有4孩](http://www.daogukj.com/eaozjceu/)
+- [如何看待 2026 无畏契约上海冠军赛 TYL、XLG、EDG、JDG 小组赛未尝一胜齐聚败者组？](http://www.daogukj.com/xtfvegvn/)
+- [人可以和不爱的人过一生吗](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
+- [“这是国际社会前所未闻的恶性事件”](http://www.daogukj.com/fkuewdzb/)
+- [美股三大指数收涨 英伟达盘中破纪录](http://www.movie.hkepx.cn/xiju/4307844.htm)
+- [《给阿嬷的情书》院线下映，累计票房20.05亿，观影人次5881.9万，如何评价这一成绩？](http://www.daogukj.com/8791893)
+- [如何评价opencode go plus套餐？](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
+- [德国教材里的中国引争议](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
+- [国庆假期天安门执勤点的那只猫又来了](http://www.daogukj.com/2165140)
+- [韩国气炸了 有三点强烈愤怒](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
+- [生活中的保命小技巧全集](http://www.movie.hkepx.cn/xiju/1440611.htm)
+- [刺伤迪拜航空机长的副驾驶身份披露](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
+- [理论上讲XX是女性染色体，那为什么YY不是男性染色体，必须是XY？](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
+- [这份长途出行防护指南请收好](http://www.daogukj.com/9837121)
+- [静态体验方程豹钛9](http://www.movie.hkepx.cn/movie/5334415.htm)
+- [布云朝克特回应主场似客场](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
+- [你敢信？我在太平洋赶海竟然发现上百斤重的巨型砗磲！这么大的家伙，吃起来什么味道？](http://www.movie.hkepx.cn/movie/2391374.htm)
+- [非洲这三国掐起来了](http://www.movie.hkepx.cn/movie/4276791.htm)
 - [15万人广场上她把孩子交给女警](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
-- [“饿死肿瘤”的方法竟然真找到了](http://www.daogukj.com/6612016)
-- [国足没找回信心反崩了盘](http://www.movie.hkepx.cn/movie/4045624.htm)
-- [墨尔本车祸致中国夫妻身亡](http://www.daogukj.com/9217972)
-- [一抹中国红 见证跨越时代的奔赴](http://www.daogukj.com/eecjrkxr/)
-- [沈腾李小冉也没戏拍了吗](http://www.movie.hkepx.cn/xiju/0864553.htm)
-- [如何评价小沈阳夫妇主演的喜剧电影《什么意思夫妇》？](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
-- [“人造太阳”距离点亮万家灯火有多远](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
-- [购票有捷径和妙招？12306辟谣](http://www.daogukj.com/chnejvmg/)
-- [陈若琳有没有资格教全红婵](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
-- [【亿万级特效！】猫核老鼠：量子网球对决！（全程高能！）](http://www.daogukj.com/dmyshqkp/)
-- [“诈骗”拯救世界？20世纪规模最大的慈善演唱会是如何诞生的？](http://www.daogukj.com/hxjdxwxy/)
-- [赵松源：今天大家很拼但细节没做好](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
-- [全国各地为何都在“爆改地铁”](http://www.movie.hkepx.cn/movie/5093289.htm)
-- [蔡天凤碎尸案](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
-- [国足热身赛 0-5 巴勒斯坦，如何评价这场比赛主教练邵佳一的战术安排？](http://www.movie.hkepx.cn/movie/7746903.htm)
-- [美推出“子午线计划”释放什么信号](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
-- [火车票竟然能换“银票”](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
-- [孙颖莎欢迎晚宴图](http://www.daogukj.com/2551047)
-- [“这是国际社会前所未闻的恶性事件”](http://www.daogukj.com/7700423)
+- [女子查出癌症花光积蓄旅游肿瘤变小](http://www.daogukj.com/6612016)
+- [跑4个服务区排队3小时才充上电](http://www.movie.hkepx.cn/movie/4045624.htm)
+- [国庆买金变了](http://www.daogukj.com/9217972)
+- [传承千年文脉 这就是中国范儿](http://www.daogukj.com/eecjrkxr/)
+- [美法德英意日加7国将共同行动](http://www.movie.hkepx.cn/xiju/0864553.htm)
+- [你们在山东碰到「鱼头酒」的问题了吗？](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
+- [中国男足争亚运铜牌](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
+- [四川一公司国庆节不放假？不实](http://www.daogukj.com/chnejvmg/)
+- [这个假期中国一路开新](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
+- [芙芙来啦~(｡♥‿♥｡)！](http://www.daogukj.com/dmyshqkp/)
+- [《断枪》一把从没打响过的枪，却要了所有恶人的命](http://www.daogukj.com/hxjdxwxy/)
+- [俄军失守乌东重镇红利曼](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
+- [邵佳一 生涯最大失利](http://www.movie.hkepx.cn/movie/5093289.htm)
+- [真正A8是净资产超千万](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
+- [北舞教授：闪身步系本科必修课教材](http://www.movie.hkepx.cn/movie/7746903.htm)
+- [2.4米防拆丝带能救女装吗](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
+- [韩国“梦之队”完败给中国队](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
+- [怪不得吃重庆火锅配油碟](http://www.daogukj.com/2551047)
+- [77年前的今天 新中国成立了](http://www.daogukj.com/7700423)
 - [这些涉及假期的网传信息都是假的](http://www.daogukj.com/0062100)
-- [75岁王石重返房地产](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
-- [【宋雨琦】 ‘I Like You’ Official Music Video](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
-- [国足vs巴勒斯坦全场数据](http://www.daogukj.com/qzcflnda/)
-- [法国1比1意大利](http://www.movie.hkepx.cn/movie/1098440.htm)
-- [忙活了20个小时炸了47盘的护：打完这单妻离子散，兄弟反目成仇了](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
-- [男童父亲已与老板商量雨棚赔偿事宜](http://www.daogukj.com/2428628)
-- [奚梦瑶曝婆婆5胎剖腹产没坐月子](http://www.daogukj.com/uftxwefl/)
-- [兄妹失散、魔龙失控、风神回归！从蒙德重新出发，一口气补完原神主线剧情 【提瓦特说书人·蒙德篇】](http://www.movie.hkepx.cn/movie/6056833.htm)
-- [三甲医生回应麦琳7个月瘦了40斤](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
-- [遇袭印度机长与莫迪视频通话](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
+- [国足接下来对阵塔吉克斯坦](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
+- [危险！胃险？薇险！【手搓动画大赛】](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
+- [一棵树如何“杀死”另一棵树](http://www.daogukj.com/qzcflnda/)
+- [王楚钦说要重新考虑接下来的路](http://www.movie.hkepx.cn/movie/1098440.htm)
+- [兄妹失散、魔龙失控、风神回归！从蒙德重新出发，一口气补完原神主线剧情 【提瓦特说书人·蒙德篇】](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
+- [许兰香早就看懂了大太太暗示](http://www.daogukj.com/2428628)
+- [王一博陈都灵大秀同框](http://www.daogukj.com/uftxwefl/)
+- [小心，你身边住着陌生人！一定要保持安静！](http://www.movie.hkepx.cn/movie/6056833.htm)
+- [亚运三金到手 归来仍是高中生](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
+- [吃自助被送急诊 胃里取出3斤残渣](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
 
 </details>
 
 ## 原始来源
 
-- [Zara新品裙子上线就售罄：6000多一条](https://www.baidu.com/s?wd=Zara%E6%96%B0%E5%93%81%E8%A3%99%E5%AD%90%E4%B8%8A%E7%BA%BF%E5%B0%B1%E5%94%AE%E7%BD%84%EF%BC%9A6000%E5%A4%9A%E4%B8%80%E6%9D%A1&sa=fyb_news&rsv_dl=fyb_news)
+- [黄河“鸳鸯锅”出圈](https://www.baidu.com/s?wd=%E9%BB%84%E6%B2%B3%E2%80%9C%E9%B8%B3%E9%B8%AF%E9%94%85%E2%80%9D%E5%87%BA%E5%9C%88&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 4068e17afc81f003d75d -->
+<!-- content-fingerprint: 9138ed3779b615084968 -->
