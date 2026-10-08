@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 张雪机车回应女子称男友进ICU想退车
+# 厄尔尼诺现象预计在12月达到峰值
 
-> 来源：百度热搜 · 排名：第 16 位 · 热度：6282035 · 更新：2026-10-08T15:25:55+08:00
+> 来源：今日头条热榜 · 排名：第 17 位 · 热度：5366360 · 更新：2026-10-08T22:44:47+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“张雪机车回应女子称男友进ICU想退车”位列第 16 位，公开热度指标为 6282035。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“厄尔尼诺现象预计在12月达到峰值”位列第 17 位，公开热度指标为 5366360。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：张雪机车发布情况说明：女子连麦称男友进ICU无法提车、退款被驳回，经核查其男友6次来电未提ICU、病历实为“骨折”，用户实际未住院，已提车。
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [李一桐原ID换不回来了](fen-fa-tu-qiang.md)
-- [专家：胡塞把沙特领空划成“战区”](wang-yang-bu-lao.md)
-- [影视表演艺术家彭玉去世，享年 93 岁，曾出演《东北一家人》，你对她饰演的角色有哪些记忆？](xuan-liang-ci-gu.md)
-- [中国模特勇闯欧洲时装周|面试实录第七集](zao-bi-tou-guang.md)
+- [为什么说华中科技大学是工科大学中的异类？](fen-fa-tu-qiang.md)
+- [2026WTT北京大满贯赛第三轮，周启豪3-0爆冷击败张本智和，如何评价这场比赛？](wang-yang-bu-lao.md)
+- [《人类的沟通根本不需要语言》](xuan-liang-ci-gu.md)
+- [二手房业主不愿一再让价了](zao-bi-tou-guang.md)
 
 ## 站内推荐
 
-- [程序员为帮女友挂专家号写出「抢号软件」，后帮人收费「抢号」，最终获刑一年，怎样从法律角度解读？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
-- [美报告对伊战事损失81架军机，包括12架F-15战机，有哪些信息值得关注？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
-- [【剧情】长生契（2026）20【方逸伦 / 谢可寅】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
-- [后备箱装十箱矿泉水被罚？专家回应](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
-- [最后一批返程车主都是大聪明](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
+- [车子熄火距加油站仅 20 米，加油员拒绝打散装汽油，车主花 350 元拖车到加油站，到底是谁的问题？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/jiu-niu-yi-mao.md)
+- [央行发布关于人民币汇率的政策立场，称中国没有必要，也无意通过汇率贬值获取贸易竞争优势，如何解读？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wan-bi-gui-zhao.md)
+- [“新疆棕熊索食险酿大祸”系编造](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/jing-gong-zhi-niao.md)
+- [俄罗斯肺炎](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/wen-gu-zhi-xin.md)
+- [越南连续推出多型主战装备，其军工为何能「突然崛起」？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/du-ju-hui-yan.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [航天人紧急营救北斗卫星](http://www.daogukj.com/zmdyurgu/)
-- [美报告对伊战事损失81架军机，包括12架F-15战机，有哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/3508659.htm)
-- [网友称坐滴滴接触到前乘客的血液，警方称因隐私不能要求对方出具传染病证明，合理吗？需进行传染病筛查吗？](http://www.daogukj.com/efbegavg/)
-- [在大山支教 学校宿舍水太小又冷，已经半个月没洗澡了，扛不住了抓住假期的尾巴出山进城开房洗澡 买菜 拿物资..](http://www.movie.hkepx.cn/xiju/9389173.htm)
-- [牛顿和爱因斯坦的后人现在如何了？](http://www.movie.hkepx.cn/xiju/4899433.htm)
-- [何超欣晒何猷君奚梦瑶全家福](http://www.movie.hkepx.cn/xiju/3807611.htm)
-- [中国自古没有饮用白酒的习惯，为什么50-70后如此爱喝白酒？](http://www.movie.hkepx.cn/xiju/0777595.htm)
-- [懂车老王质疑刹车测试黑盒](http://www.movie.hkepx.cn/xiju/6519743.htm)
-- [余承东尊界品牌危机](http://www.movie.hkepx.cn/movie/1380113.htm)
-- [1600N 4589N](http://www.movie.hkepx.cn/movie/1487827.htm)
-- [寒露时节饮食攻略](http://www.movie.hkepx.cn/movie/3732680.htm)
-- [中国长假吸引外国人入境过中国节](http://www.play.hengshemaoyi.cn/xiju/3930832.htm)
-- [第二次来美国，活下去](http://www.play.hengshemaoyi.cn/xiju/4057882.htm)
-- [女子要求楼顶藏坟原房东担责](http://www.daogukj.com/6402088)
-- [湖北一小学发现大型马蜂窝：停课两天](http://www.play.hengshemaoyi.cn/kongbu/0560110.htm)
-- [Claude 发布 Haiku5.5，跑分暴涨并降价 75%，这意味着什么？](http://www.play.hengshemaoyi.cn/xiju/8262511.htm)
-- [在高速上龟速行驶的车，司机知道自己在龟速驾驶影响到后面排队嘛，他们怎么想的？](http://www.daogukj.com/1004639)
-- [《人类的沟通根本不需要语言》](http://www.daogukj.com/8329133)
-- [中国模特勇闯欧洲时装周|面试实录第七集](http://www.daogukj.com/5598259)
-- [变形计 丽姐](http://www.play.hengshemaoyi.cn/xiju/9814687.htm)
-- [A股“股王”大跌](http://www.movie.hkepx.cn/xiju/6423913.htm)
-- [王曼昱险胜石洵瑶晋级八强](http://www.daogukj.com/nbxdjhhg/)
-- [《原神》过场动画-「生与死的流速」](http://www.movie.hkepx.cn/movie/4646192.htm)
-- [带班主任体验黄毛的一天](http://www.daogukj.com/ahbcstdy/)
-- [寒露养生重点在于敛阳防寒](http://www.daogukj.com/3544107)
-- [江淮汽车回应尊界刹车踏板支架断裂](http://www.movie.hkepx.cn/xiju/7041719.htm)
-- [【我在现代当幽差】：赶着去投胎啊！！！！【UP动画】](http://www.daogukj.com/7328460)
-- [李一桐原ID换不回来了](http://www.daogukj.com/2075486)
-- [胡塞导弹打到利雅得机场意味着什么](http://www.movie.hkepx.cn/movie/7155608.htm)
-- [【剧情】长生契（2026）20【方逸伦 / 谢可寅】](http://www.movie.hkepx.cn/movie/1424405.htm)
-- [高速免费最后60秒工作人员比司机急](http://www.movie.hkepx.cn/xiju/2396430.htm)
-- [后备箱装十箱矿泉水被罚？专家回应](http://www.movie.hkepx.cn/xiju/4378691.htm)
-- [如何看待李玉刚宣布《万疆》永久免费授权，任何歌手在演唱会上演唱《万疆》分文不取？](http://www.movie.hkepx.cn/xiju/0876334.htm)
-- [买房多年不知客厅上方有坟 当地回应](http://www.movie.hkepx.cn/movie/3875792.htm)
-- [返程高峰高速“潮汐车道”上线](http://www.play.hengshemaoyi.cn/xiju/5556900.htm)
-- [央行已连续第 23 个月增持黄金，大力囤积黄金，是为了人民币国际化吗？](http://www.movie.hkepx.cn/xiju/1072320.htm)
-- [周启豪3比0张本智和](http://www.daogukj.com/5216732)
-- [周启豪零封张本智和晋级8强](http://www.play.hengshemaoyi.cn/kongbu/6608024.htm)
-- [国内有哪些「德不配位」的 5A 级景区？](http://www.play.hengshemaoyi.cn/xiju/4853086.htm)
-- [李胜峰：世界已改变 台湾要回家了](http://www.daogukj.com/holhwnkn/)
-- [全国哪里“菊”势正好](http://www.movie.hkepx.cn/xiju/2228244.htm)
-- [太仓通报网传代孕情况](http://www.movie.hkepx.cn/movie/2582914.htm)
-- [古代写字要避皇帝讳，那大家如果不知道皇帝名字又避讳不了，那古人是怎么知道皇帝或者新皇帝名字是啥的？](http://www.play.hengshemaoyi.cn/kongbu/8670207.htm)
-- [如何评价江淮汽车股价跌停？和尊界风波有关吗？](http://www.daogukj.com/bvruoqfx/)
-- [上3休1再上5休2](http://www.play.hengshemaoyi.cn/kongbu/3750871.htm)
-- [C罗公开发声致歉](http://www.daogukj.com/pybtoide/)
-- [东北一家人牛大妈扮演者彭玉去世](http://www.play.hengshemaoyi.cn/kongbu/0898703.htm)
-- [医药代表给院长主任们送的现金是怎样查出来的呢？](http://www.daogukj.com/kqgmaaog/)
-- [朝媒警告美国：台湾问题纯属中国内政](http://www.daogukj.com/5982583)
-- [《我到底要怎么救你》](http://www.play.hengshemaoyi.cn/xiju/0064880.htm)
+- [三甲医生回应“喝大水”](http://www.daogukj.com/zmdyurgu/)
+- [央行发布关于人民币汇率的政策立场，称中国没有必要，也无意通过汇率贬值获取贸易竞争优势，如何解读？](http://www.movie.hkepx.cn/xiju/3508659.htm)
+- [AI历史剧火了也遭举报](http://www.daogukj.com/efbegavg/)
+- [有事没事儿，尽喜欢做点好吃的、新鲜玩意给家里人尝一尝！好好吃饭就是好好生活！【睡个好觉】](http://www.movie.hkepx.cn/xiju/9389173.htm)
+- [【速凌宇宙】第二十八集：七人小队！四方混战！全员集结到场！](http://www.movie.hkepx.cn/xiju/4899433.htm)
+- [外交部回应直呼高市早苗名字](http://www.movie.hkepx.cn/xiju/3807611.htm)
+- [李一桐新微博名](http://www.movie.hkepx.cn/xiju/0777595.htm)
+- [赵丽颖 飞天奖](http://www.movie.hkepx.cn/xiju/6519743.htm)
+- [如何评价字节Seed团队发现DeepSeek性能漂移？](http://www.movie.hkepx.cn/movie/1380113.htm)
+- [温瑞博vs莫雷加德](http://www.movie.hkepx.cn/movie/1487827.htm)
+- [地牢酒馆-28集 《请乞丐吃饭》](http://www.movie.hkepx.cn/movie/3732680.htm)
+- [让长征故事代代相传](http://www.play.hengshemaoyi.cn/xiju/3930832.htm)
+- [向佐曾因过量喝蛋白粉把肾喝成70岁](http://www.play.hengshemaoyi.cn/xiju/4057882.htm)
+- [国内有哪些「德不配位」的 5A 级景区？](http://www.daogukj.com/6402088)
+- [向佐喝蛋白粉把肾喝成70岁](http://www.play.hengshemaoyi.cn/kongbu/0560110.htm)
+- [耗时一年，改造善良老人晚年，完整后续来了！](http://www.play.hengshemaoyi.cn/xiju/8262511.htm)
+- [101岁老人可乐雪碧整箱囤着喝](http://www.daogukj.com/1004639)
+- [矿山上的铜火锅？！特厨来一个沉浸式吃播！](http://www.daogukj.com/8329133)
+- [二手房业主不愿一再让价了](http://www.daogukj.com/5598259)
+- [稳住血压的5个生活习惯](http://www.play.hengshemaoyi.cn/xiju/9814687.htm)
+- [曝华为 Mate 90 系列手机首销期销量超 27 万台，“超大杯”占比约 40% 你怎么看？](http://www.movie.hkepx.cn/xiju/6423913.htm)
+- [张本智和被“满电战神”打没电了](http://www.daogukj.com/nbxdjhhg/)
+- [肺鼠疫症状](http://www.movie.hkepx.cn/movie/4646192.htm)
+- [死刑失败的美国女囚苏醒后问了俩问题](http://www.daogukj.com/ahbcstdy/)
+- [粤J2888T抵达开封万岁山景区](http://www.daogukj.com/3544107)
+- [彭玉从29岁开始演了一辈子老太太](http://www.movie.hkepx.cn/xiju/7041719.htm)
+- [李勒优嫂子](http://www.daogukj.com/7328460)
+- [为什么说华中科技大学是工科大学中的异类？](http://www.daogukj.com/2075486)
+- [李子坝地下33米藏一亿现钞](http://www.movie.hkepx.cn/movie/7155608.htm)
+- [“新疆棕熊索食险酿大祸”系编造](http://www.movie.hkepx.cn/movie/1424405.htm)
+- [如何看待欧洲反华决议高票通过](http://www.movie.hkepx.cn/xiju/2396430.htm)
+- [俄罗斯肺炎](http://www.movie.hkepx.cn/xiju/4378691.htm)
+- [国庆电影票房以 11.65 亿收官，创十三年来新低，如何看待国庆档电影票房持续走低？](http://www.movie.hkepx.cn/xiju/0876334.htm)
+- [新冠刚开始也是不明原因肺炎](http://www.movie.hkepx.cn/movie/3875792.htm)
+- [特朗普宣布给未成年人开股市投资账户](http://www.play.hengshemaoyi.cn/xiju/5556900.htm)
+- [【剧情】长生契（2026）20【方逸伦 / 谢可寅】](http://www.movie.hkepx.cn/xiju/1072320.htm)
+- [王皓王楚钦观战温瑞博莫雷高德比赛](http://www.daogukj.com/5216732)
+- [女子开超小养老院只收六人](http://www.play.hengshemaoyi.cn/kongbu/6608024.htm)
+- [新郎婚礼当天去医院看病后离世](http://www.play.hengshemaoyi.cn/xiju/4853086.htm)
+- [【男巫ZachKing】2026最佳魔术！](http://www.daogukj.com/holhwnkn/)
+- [购房者买房多年才得知客厅正上方天台埋着一座土坟，房东和物业应承担责任吗？购房者应怎样维权？](http://www.movie.hkepx.cn/xiju/2228244.htm)
+- [【断网补全计划149】太阳之子，闪身步，不烧心，农大科比，雨中霸王龙，超长蛋挞，疯狂水世界，冰冰冰，咕咕嘎嘎小孩，野人先生罗永浩风波，钟薛高复活](http://www.movie.hkepx.cn/movie/2582914.htm)
+- [她走了](http://www.play.hengshemaoyi.cn/kongbu/8670207.htm)
+- [超市生存挑战后续！4人吃完整个超市赢100万美金！](http://www.daogukj.com/bvruoqfx/)
+- [俄出现鼠疫病例 相关个股引关注](http://www.play.hengshemaoyi.cn/kongbu/3750871.htm)
+- [为什么大家一边喊穷，一边又在疯狂旅游？](http://www.daogukj.com/pybtoide/)
+- [央视披露紧急营救北斗卫星](http://www.play.hengshemaoyi.cn/kongbu/0898703.htm)
+- [挑战负债城市生存，今日犯了暴食之罪](http://www.daogukj.com/kqgmaaog/)
+- [我国房地产进入存量时代，二手房交易占比超 50%，现房销售是大势所趋，普通人买房该如何调整思路？](http://www.daogukj.com/5982583)
+- [烟草局人士称细烟带动女性烟民](http://www.play.hengshemaoyi.cn/xiju/0064880.htm)
 
 </details>
 
 ## 原始来源
 
-- [张雪机车回应女子称男友进ICU想退车](https://www.baidu.com/s?wd=%E5%BC%A0%E9%9B%AA%E6%9C%BA%E8%BD%A6%E5%9B%9E%E5%BA%94%E5%A5%B3%E5%AD%90%E7%A7%B0%E7%94%B7%E5%8F%8B%E8%BF%9BICU%E6%83%B3%E9%80%80%E8%BD%A6&sa=fyb_news&rsv_dl=fyb_news)
+- [厄尔尼诺现象预计在12月达到峰值](https://www.toutiao.com/trending/7694204591143109171/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2215%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227694204591143109171%22%2C%22hot_board_impr_id%22%3A%222026100822444365B46DB2B9E3B17C3DEB%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6ac64a3995af4a601c28 -->
+<!-- content-fingerprint: 08c0b9166cfdff3232d6 -->
