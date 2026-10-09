@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 梅尼耶被妻子整容前的照片吓到了
+# 周启豪4比2张禹珍
 
-> 来源：微博热搜 · 排名：第 15 位 · 热度：387582 · 分类：网红 · 更新：2026-10-09T14:21:33+08:00
+> 来源：微博热搜 · 排名：第 15 位 · 热度：285882 · 分类：体育 · 更新：2026-10-09T21:29:49+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“梅尼耶被妻子整容前的照片吓到了”位列第 15 位，公开热度指标为 387582，榜单分类为“网红”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“周启豪4比2张禹珍”位列第 15 位，公开热度指标为 285882，榜单分类为“体育”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `网红`
+`微博热搜` `实时热搜` `热点资讯` `体育`
 
 ## 相关热点
 
-- [外交部回应直呼高市早苗名字](ju-yi-fan-san.md)
-- [在中国打橄榄球是一种什么体验？](rong-hui-guan-tong.md)
-- [天皇巨星登场！"血亲复仇"对于古代社会的深远意义！](ji-si-guang-yi.md)
-- [妻子与已婚男同居 丈夫持刀杀害男方](qu-chang-bu-duan.md)
+- [中小银行大额存单利率逆势上调](ju-yi-fan-san.md)
+- [同样是电子竞技，为什么vctcn和lpl粉丝群体对待战区成绩的态度完全是两个样子呢？](rong-hui-guan-tong.md)
+- [全网首发《银松镇》正式版 高质量生化危机+寂静岭风格恐怖游戏 全收集 全结局](ji-si-guang-yi.md)
+- [女子花99000元买100多克黄金送父母](qu-chang-bu-duan.md)
 
 ## 站内推荐
 
-- [耐克取消大中华独立大区，市值大幅蒸发近 15000 亿，怎样看待这一调整？背后的核心原因是什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [俄官方宣布正解除防疫措施，否认出现第二例「不明原因肺炎」病例，如何理解这一决定？风波背后还有哪些疑点？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [如何在中国合法造一把你自己的枪？【鹰哥Studio】](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [张本美和模仿松岛辉空闹脾气](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [李一桐一抬手北舞毕业证掉出来了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [2026英雄联盟全球总决赛主题曲《KNOW MY NAME》（以我之名）](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [新郎新娘同名同姓还是同行](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [沐言一家冰岛行爆火](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [刘亦菲 水蜜桃公主](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [金价下跌金店忙疯](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【EPL表演赛】全明星大乱斗2.0](http://www.movie.hkepx.cn/movie/2076571.htm)
-- [湖南一局长被举报婚内出轨，前夫讨要口头约定余款被诉敲诈，哪些事实待厘清？本案罪与非罪的核心证据是什么？](http://www.play.hengshemaoyi.cn/xiju/0493031.htm)
-- [港媒曝邓紫棋与男友在纽约秘密结婚，公司称「不回应艺人私生活」，你怎么看待？](http://www.movie.hkepx.cn/xiju/6447727.htm)
-- [高速免费最后一刻女子淡定缴费](http://www.play.hengshemaoyi.cn/kongbu/0765888.htm)
-- [我的大学图书馆](http://www.daogukj.com/ujykjkqc/)
-- [姚明谈给杨瀚森建议：不想误人子弟](http://www.play.hengshemaoyi.cn/xiju/7125638.htm)
-- [2026英雄联盟全球总决赛主题曲《KNOW MY NAME》（以我之名）](http://www.daogukj.com/ddnluzup/)
-- [AI漫剧这么赚钱吗](http://www.daogukj.com/drzpzlze/)
-- [全世界都忍不住要笑了](http://www.daogukj.com/eoyvlftc/)
-- [超级厄尔尼诺会让日常所需涨价吗](http://www.movie.hkepx.cn/movie/2817254.htm)
-- [文化IP持续出圈激发经济新动能](http://www.play.hengshemaoyi.cn/xiju/8069943.htm)
-- [12306老是说其他不是官方授权，不是官方授权，他们为什么能卖票？他们的票又是从哪里来的？](http://www.daogukj.com/czfcxwdu/)
-- [永州女局长事件时间线](http://www.movie.hkepx.cn/movie/0850868.htm)
-- [周杰十年每天只吃一顿饭](http://www.play.hengshemaoyi.cn/kongbu/9561535.htm)
-- [如何评价OpenAI撤回3篇手稿？为什么前沿模型会犯这种错误？](http://www.daogukj.com/1729617)
-- [35岁年入五十万女生相亲要求](http://www.daogukj.com/3324715)
-- [古代打仗士兵为什么总是要军饷？能保证自己能活下来花吗？](http://www.daogukj.com/ikrqrqaw/)
-- [独库公路正式实施冬季封闭](http://www.movie.hkepx.cn/xiju/0635899.htm)
-- [《明日方舟》EP - 大地之盐](http://www.play.hengshemaoyi.cn/kongbu/8841363.htm)
-- [天皇巨星登场！"血亲复仇"对于古代社会的深远意义！](http://www.daogukj.com/7019911)
-- [比亚迪四季度7款新车将上市](http://www.movie.hkepx.cn/xiju/1596108.htm)
-- [山河奔赴 “数”观假日经济活力](http://www.play.hengshemaoyi.cn/kongbu/5912571.htm)
-- [爱泼斯坦案举报人上吊自杀](http://www.movie.hkepx.cn/xiju/0929704.htm)
-- [《阴阳师》咲耶CG丨拾此一瞬（CV：小泽亚李）](http://www.play.hengshemaoyi.cn/kongbu/0586092.htm)
-- [这种“长斑”的鸡蛋 千万别再吃了](http://www.movie.hkepx.cn/movie/7064741.htm)
-- [震惊！鱼在网上刷到剁椒鱼头的8种做法！【AI全民制作人】](http://www.daogukj.com/svpdmhti/)
-- [中国屌丝用7千块花掉印度人半年的薪资，体验婆罗门生活，富人生活到底有多奢侈？](http://www.daogukj.com/dzqrudro/)
-- [造物无法一蹴而就](http://www.movie.hkepx.cn/movie/0598553.htm)
-- [昔日顶级业主又要卖酒店了](http://www.play.hengshemaoyi.cn/xiju/0980026.htm)
-- [李现的原ID还能改回来吗](http://www.movie.hkepx.cn/movie/5524311.htm)
-- [大英博物馆两件康熙时期青花瓷遭损坏](http://www.movie.hkepx.cn/movie/8815129.htm)
+- [王曼昱进中国大满贯四强](http://www.movie.hkepx.cn/movie/2076571.htm)
+- [颜值佳、降噪强——华为FreeBuds Neo 体验](http://www.play.hengshemaoyi.cn/xiju/0493031.htm)
+- [有人说学狗叫能够缓解压力和停止胡思乱想，这是真的吗？还有哪些邪门且有点搞笑的缓解压力方式？](http://www.movie.hkepx.cn/xiju/6447727.htm)
+- [被中国军舰“拉爆”的外舰身份引猜测](http://www.play.hengshemaoyi.cn/kongbu/0765888.htm)
+- [十五五开局六张网齐铺开](http://www.daogukj.com/ujykjkqc/)
+- [特朗普为什么非要给AI改名字](http://www.play.hengshemaoyi.cn/xiju/7125638.htm)
+- [《绝区零》3.3版本PV | 重返天空的旅程](http://www.daogukj.com/ddnluzup/)
+- [古代没有洗洁精，满锅油污古人到底怎么洗？](http://www.daogukj.com/drzpzlze/)
+- [北京辟谣：警惕兼职刷单诈骗手段](http://www.daogukj.com/eoyvlftc/)
+- [“我穿越成了一棵树。”](http://www.movie.hkepx.cn/movie/2817254.htm)
+- [为什么要花数万亿改造地下管网](http://www.play.hengshemaoyi.cn/xiju/8069943.htm)
+- [沐言爸爸是游乐王子](http://www.daogukj.com/czfcxwdu/)
+- [山姆回应拟限制亲友卡绑定](http://www.movie.hkepx.cn/movie/0850868.htm)
+- [柏林仅45秒退出2036奥运申办，该怎么解读这件事？](http://www.play.hengshemaoyi.cn/kongbu/9561535.htm)
+- [港媒曝邓紫棋与男友在纽约秘密结婚，公司称「不回应艺人私生活」，你怎么看待？](http://www.daogukj.com/1729617)
+- [2026中网女单1/4决赛，郑钦文总比分2-0胜斯维托丽娜，时隔两年重返中网四强，如何评价本场比赛？](http://www.daogukj.com/3324715)
+- [为什么北京大学简称“北大”，清华大学却简称“清华”而非“清大”？](http://www.daogukj.com/ikrqrqaw/)
+- [于和伟飞天奖红毯步履蹒跚](http://www.movie.hkepx.cn/xiju/0635899.htm)
+- [成功埋下机车种子，弥补曾经对年少不可得之物的遗憾](http://www.play.hengshemaoyi.cn/kongbu/8841363.htm)
+- [全网首发《银松镇》正式版 高质量生化危机+寂静岭风格恐怖游戏 全收集 全结局](http://www.daogukj.com/7019911)
+- [郭晶晶获授荣誉院士霍启刚直言骄傲](http://www.movie.hkepx.cn/xiju/1596108.htm)
+- [走进长征展览，一起重温“伟大远征”](http://www.play.hengshemaoyi.cn/kongbu/5912571.htm)
+- [曝李勒优想和崔晋一家一刀两断](http://www.movie.hkepx.cn/xiju/0929704.htm)
+- [女局长被指出轨多人 当地成立调查组](http://www.play.hengshemaoyi.cn/kongbu/0586092.htm)
+- [两驴友被困获救后自担9万元救援费](http://www.movie.hkepx.cn/movie/7064741.htm)
+- [美称通过谈判结束俄乌冲突几乎不可能](http://www.daogukj.com/svpdmhti/)
+- [iPhone18Pro卖不动了](http://www.daogukj.com/dzqrudro/)
+- [2026年的射击新游，怎么混进来一个体育生？](http://www.movie.hkepx.cn/movie/0598553.htm)
+- [双汇致歉：诚恳接受行政处罚](http://www.play.hengshemaoyi.cn/xiju/0980026.htm)
+- [雷军回应小米YU7保值率第一](http://www.movie.hkepx.cn/movie/5524311.htm)
+- [郭麒麟新剧《此处通往繁星》好看吗](http://www.movie.hkepx.cn/movie/8815129.htm)
 - [最近网络上盛行“大水理论”，“薄肌理论”等幽默又朴素的观点，这种网络文化的兴起源于什么？](http://www.movie.hkepx.cn/movie/4122960.htm)
-- [婚礼当天离世新郎曾喉咙痛身体乏力](http://www.play.hengshemaoyi.cn/xiju/4897818.htm)
-- [金莎疑似怀孕了](http://www.movie.hkepx.cn/movie/7903800.htm)
-- [深圳一海边惊现100多斤野猪](http://www.movie.hkepx.cn/xiju/7617687.htm)
-- [李子坝地下33米藏一亿现钞](http://www.movie.hkepx.cn/movie/6382391.htm)
-- [王曼昱/蒯曼晋级女双决赛](http://www.daogukj.com/4658626)
-- [永州女局长](http://www.play.hengshemaoyi.cn/kongbu/9068031.htm)
-- [【新宿决战】皮特VS鸡哥](http://www.movie.hkepx.cn/movie/5184280.htm)
-- [76人不敌篮网 詹姆斯首秀10分](http://www.daogukj.com/hvftglso/)
-- [桂花香是一种非牛顿流体](http://www.daogukj.com/tzodbjjw/)
-- [新郎母亲回应儿子婚礼当天离世](http://www.daogukj.com/9005314)
-- [曝李勒优想和崔晋一家一刀两断](http://www.movie.hkepx.cn/movie/6639660.htm)
-- [我还没开始发力呢，机制就已经先发力了](http://www.play.hengshemaoyi.cn/xiju/5390600.htm)
-- [一起生！一起熟！猕猴桃为啥这么团结？猕猴桃园结义了吗？【主播说三农】](http://www.daogukj.com/5710918)
-- [张本美和模仿松岛辉空闹脾气](http://www.play.hengshemaoyi.cn/kongbu/9804131.htm)
-- [妻子与已婚男同居 丈夫持刀杀害男方](http://www.play.hengshemaoyi.cn/kongbu/9936636.htm)
-- [“老外”人均三个行李箱来中国爆买](http://www.movie.hkepx.cn/movie/1112201.htm)
-- [张本美和吐槽松岛辉空：互不理解](http://www.daogukj.com/4063728)
-- [外交部回应直呼高市早苗名字](http://www.movie.hkepx.cn/movie/3217282.htm)
+- [罗家英感慨80岁仍不敢退休](http://www.play.hengshemaoyi.cn/xiju/4897818.htm)
+- [曝小米YU7上市一年单车销售额达624亿](http://www.movie.hkepx.cn/movie/7903800.htm)
+- [人形机器人越来越像手机了](http://www.movie.hkepx.cn/xiju/7617687.htm)
+- [第35届飞天奖](http://www.movie.hkepx.cn/movie/6382391.htm)
+- [女儿谈101岁父亲106岁母亲长寿秘诀](http://www.daogukj.com/4658626)
+- [自己喂的猪，才有这个家乡味，这大油，这肥膘，这颜色](http://www.play.hengshemaoyi.cn/kongbu/9068031.htm)
+- [耗时一年，改造善良老人晚年，完整后续来了！](http://www.movie.hkepx.cn/movie/5184280.htm)
+- [黄仁勋称中国 2030 年将搞定国产先进光刻机，这一判断能否实现？](http://www.daogukj.com/hvftglso/)
+- [超长蛋挞陆续下架](http://www.daogukj.com/tzodbjjw/)
+- [五连胜！郑钦文重返中网四强](http://www.daogukj.com/9005314)
+- [湖南一局长被举报婚内出轨，前夫讨要口头约定余款被诉敲诈，哪些事实待厘清？本案罪与非罪的核心证据是什么？](http://www.movie.hkepx.cn/movie/6639660.htm)
+- [【新宿决战】皮特VS鸡哥](http://www.play.hengshemaoyi.cn/xiju/5390600.htm)
+- [女局长被指出轨多人 湖南永州通报](http://www.daogukj.com/5710918)
+- [刘亦菲 水蜜桃公主](http://www.play.hengshemaoyi.cn/kongbu/9804131.htm)
+- [女子花99000元买100多克黄金送父母](http://www.play.hengshemaoyi.cn/kongbu/9936636.htm)
+- [闫妮关晓彤转圈让C位](http://www.movie.hkepx.cn/movie/1112201.htm)
+- [【断网补全计划149】太阳之子，闪身步，不烧心，农大科比，雨中霸王龙，超长蛋挞，疯狂水世界，冰冰冰，咕咕嘎嘎小孩，野人先生罗永浩风波，钟薛高复活](http://www.daogukj.com/4063728)
+- [中小银行大额存单利率逆势上调](http://www.movie.hkepx.cn/movie/3217282.htm)
 
 </details>
 
 ## 原始来源
 
-- [梅尼耶被妻子整容前的照片吓到了](https://s.weibo.com/weibo?q=%E6%A2%85%E5%B0%BC%E8%80%B6%E8%A2%AB%E5%A6%BB%E5%AD%90%E6%95%B4%E5%AE%B9%E5%89%8D%E7%9A%84%E7%85%A7%E7%89%87%E5%90%93%E5%88%B0%E4%BA%86)
+- [周启豪4比2张禹珍](https://s.weibo.com/weibo?q=%E5%91%A8%E5%90%AF%E8%B1%AA4%E6%AF%942%E5%BC%A0%E7%A6%B9%E7%8F%8D)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: e8080ad646a0725b74b1 -->
+<!-- content-fingerprint: 601d403c33827773afec -->
