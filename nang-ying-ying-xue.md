@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 粤J2888T现身万岁山 带刀护卫守车
+# 精神病院为何扎堆更名
 
-> 来源：百度热搜 · 排名：第 13 位 · 热度：6571717 · 更新：2026-10-10T10:14:37+08:00
+> 来源：百度热搜 · 排名：第 13 位 · 热度：6570789 · 更新：2026-10-10T16:31:21+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“粤J2888T现身万岁山 带刀护卫守车”位列第 13 位，公开热度指标为 6571717。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“精神病院为何扎堆更名”位列第 13 位，公开热度指标为 6570789。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月8日上午，奥迪粤J2888T车主谭禧驾车抵达河南万岁山，景区“带刀护卫”搬来鲜花寸步不离守车。此前，谭禧因2024年高速堵车时带错路将几十辆车引入死胡同走红。谭禧回应称感谢网友包容，表示被贴“公路战犯”标签后到处被拍照，但车技并没那么差。
+来源公开摘要显示：近年来，多地精神病医院扎堆更名，如湖南郴州市精神病院更名为市第六人民医院。更名初衷为去除病耻感及拓展业务。此前，2024年11月国家医保局规范精神治疗类收费，叠加人力成本攀升，导致精神病医院面临严峻运营压力。专家指出，仅靠更名无法解决精细化运营与生存难题。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [沐言爸爸隐婚生子女儿走红后才公开](cheng-men-li-xue.md)
-- [下周一A股怎么走](shou-bu-shi-juan.md)
-- [宋佳获飞天视后实现大满贯，王仁君获视帝，如何评价第 35 届飞天奖获奖名单？](xue-fu-wu-che.md)
-- [嘘声一片：委内瑞拉感谢美国，以色列送伊朗星链——联大一般性辩论02](bo-wen-qiang-ji.md)
+- [我对我弟的慷慨程度](cheng-men-li-xue.md)
+- [巴拿马强震高楼泳池水变瀑布](shou-bu-shi-juan.md)
+- [如何评价邵艾伦对话孙宇晨4.5小时？](xue-fu-wu-che.md)
+- [【颠覆】我用AI魔改周星驰电影宇宙 【AI全民制作人】](bo-wen-qiang-ji.md)
 
 ## 站内推荐
 
-- [如何看待「喝大水理论」走红？反映了背后哪些现象？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [陈翔六点半 :当你的人生有了bgm，你还会选错吗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [女大学生校园内被电动车撞倒离世](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [国内航线燃油附加费今起上调](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [中国下一个《三体》什么时候出现](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [今天做个屋](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [讨伐型人格大合集](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [《阴阳师》咲耶CG丨拾此一瞬（CV：小泽亚李）](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [王仁君获飞天奖 早起感谢盛家人](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [赤峰一渣土车侧翻 17岁女孩身亡](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [中国下一个《三体》什么时候出现](http://www.daogukj.com/0791900)
-- [多家医院、卫生院暂停夜间门诊](http://www.movie.hkepx.cn/movie/6187756.htm)
-- [为什么美国人嗜甜如命却发明了美式咖啡？](http://www.play.hengshemaoyi.cn/xiju/2843741.htm)
-- [王曼昱多次一球致胜申裕斌无奈微笑](http://www.daogukj.com/zealysjt/)
-- [贵州遵义一新郎婚礼当天就医输液后死亡，家属称输液区域监控未投入使用，公安已介入，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/0178031.htm)
-- [卫星互联网低轨27组卫星成功发射](http://www.daogukj.com/6215529)
-- [俄再炸大型发电厂 基辅陷大规模停电](http://www.movie.hkepx.cn/xiju/4801450.htm)
-- [出口暴涨160%！昔日“废料”全球抢手](http://www.daogukj.com/8108433)
-- [现在不是出轨的问题](http://www.daogukj.com/3643825)
-- [中纪委连打两虎](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
-- [WTT中国大满贯女单四强全部产生](http://www.daogukj.com/1108835)
-- [发展新质生产力5个方面部署](http://www.movie.hkepx.cn/xiju/9153610.htm)
-- [妈妈回应沐言为何没读私立学校](http://www.play.hengshemaoyi.cn/xiju/5315061.htm)
-- [若C罗选择以更体面方式结束会更好吗](http://www.play.hengshemaoyi.cn/xiju/5421312.htm)
-- [飞天奖获奖名单](http://www.daogukj.com/veafcjhm/)
-- [巴拿马7.6级地震](http://www.play.hengshemaoyi.cn/xiju/5677870.htm)
-- [“睡这个床感觉有人在挤我”](http://www.movie.hkepx.cn/movie/8965818.htm)
-- [大学生骑车时被改装电动车撞后离世，家属称难以接受肇事者与死者共担事故同等责任，各方责任到底该咋划定？](http://www.daogukj.com/6666143)
-- [王仁君回复刘钧刘琳](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
+- [赤峰一渣土车侧翻 17岁女孩身亡](http://www.daogukj.com/0791900)
+- [16岁诺一近照](http://www.movie.hkepx.cn/movie/6187756.htm)
+- [汽车踏板普遍都有「断裂诱导槽」的设计吗？合理的断裂力度标准应该是多少？](http://www.play.hengshemaoyi.cn/xiju/2843741.htm)
+- [村民自家宅基地发现古墓盗掘获刑15年](http://www.daogukj.com/zealysjt/)
+- [AI生成内容不受版权约束？误解](http://www.movie.hkepx.cn/movie/0178031.htm)
+- [因地制宜 推动县域经济高质量发展](http://www.daogukj.com/6215529)
+- [医生：七成肝癌早期没症状](http://www.movie.hkepx.cn/xiju/4801450.htm)
+- [自闭症男童乘电梯遭陌生男子踹飞](http://www.daogukj.com/8108433)
+- [王楚然0米台跳水](http://www.daogukj.com/3643825)
+- [鼓励支持灵活就业人员参加职工养老险](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
+- [如果把一根压紧的弹簧放进酸里溶解，它的弹性势能到哪里去了？](http://www.daogukj.com/1108835)
+- [买榴莲开出土豆太离谱](http://www.movie.hkepx.cn/xiju/9153610.htm)
+- [山姆 亲友卡新规](http://www.play.hengshemaoyi.cn/xiju/5315061.htm)
+- [林诗栋退出亚锦赛男单混双](http://www.play.hengshemaoyi.cn/xiju/5421312.htm)
+- [巴拿马华人从51楼跑下来花10多分钟](http://www.daogukj.com/veafcjhm/)
+- [深圳公园的椅子竟然是外卖盒做的](http://www.play.hengshemaoyi.cn/xiju/5677870.htm)
+- [宋佳回应视后争议](http://www.movie.hkepx.cn/movie/8965818.htm)
+- [超市里……未检测到人脸……](http://www.daogukj.com/6666143)
+- [女局长出轨举报者：她曾要求净身出户](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
 - [假如人体是一个宿主，哪个器官最像寄生者？](http://www.movie.hkepx.cn/xiju/8931005.htm)
-- [【大鸣王潮1566】岁主帮岁共](http://www.movie.hkepx.cn/xiju/6420011.htm)
-- [中小学春秋假 多地官宣](http://www.play.hengshemaoyi.cn/kongbu/7380475.htm)
-- [如何看待「喝大水理论」走红？反映了背后哪些现象？](http://www.daogukj.com/5699059)
-- [为什么很多人买新能源车之前很兴奋，开了一年后却开始怀念燃油车？](http://www.movie.hkepx.cn/xiju/0644202.htm)
-- [史上最大现金收购案 富二代如何正确拼爹](http://www.movie.hkepx.cn/xiju/8056511.htm)
-- [岳母过户学区房男子进退两难](http://www.daogukj.com/nexzmtzr/)
-- [法国最近太烧心了](http://www.daogukj.com/1229862)
-- [女子仅退款9斤蜜薯称有本事就来拿](http://www.daogukj.com/bnuggeog/)
-- [宋佳 争议](http://www.movie.hkepx.cn/xiju/0869258.htm)
-- [“献血前空腹血液更干净”系谣言](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
-- [女子买 42 元牛肉丸换支付方式付款被误会逃单，商家连发多条监控视频，商家这种行为涉嫌违法吗？](http://www.play.hengshemaoyi.cn/xiju/8712972.htm)
-- [巴拿马7.6级地震现场画面](http://www.daogukj.com/1535718)
-- [广交会即将开幕](http://www.play.hengshemaoyi.cn/kongbu/2527657.htm)
-- [deepseek 翻唱《人是猫》完整版，大肥鱼觉得人和猫一样可爱,所以人是猫](http://www.daogukj.com/fwgnvbgz/)
-- [【手术TV】先生！我知道这很荒诞，但人还得往前看......](http://www.daogukj.com/liomovvw/)
-- [最淡泊的福建首富 静静地走了](http://www.play.hengshemaoyi.cn/xiju/3352880.htm)
-- [《国色芳华》等获飞天奖优秀电视剧奖](http://www.daogukj.com/5981356)
-- [四大家族覆灭后，纪录片之外的电诈如何了？](http://www.play.hengshemaoyi.cn/kongbu/9556053.htm)
-- [挖自家地下古墓葬也是犯罪](http://www.movie.hkepx.cn/movie/6187870.htm)
-- [【明日方舟】克莱门莎实战测评：实力为超大杯上！当之无愧的近卫第一！强烈推荐抽取！](http://www.movie.hkepx.cn/xiju/9816980.htm)
-- [带孩子去哈尔滨，最怕的不是人多，而是孩子在冰雪大世界玩到一半突然哭着说「妈妈我冷」，你该怎么办？](http://www.daogukj.com/djgtqgkc/)
-- [再见了妈妈 今晚我就要远航～](http://www.movie.hkepx.cn/movie/4871450.htm)
-- [雨哥到处跑新车曝光！居然是……](http://www.movie.hkepx.cn/xiju/4251876.htm)
-- [非遗花鼓灯基本功「闪身步」走红全网，为何让年轻人如此上头？](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
-- [飞天官博评论区现状](http://www.movie.hkepx.cn/movie/9171667.htm)
-- [多地宣布中小学春秋假安排](http://www.daogukj.com/oeibgnih/)
-- [【WHAT IF/虫琴】当彼得带琴见钢铁侠⚡️⚡️⚡️](http://www.play.hengshemaoyi.cn/xiju/5921224.htm)
-- [沐言妈妈婉拒童模娃综邀约](http://www.daogukj.com/jqsnmzfn/)
-- [女局长被指出轨多人 当地成立调查组](http://www.daogukj.com/fprzebnn/)
-- [武汉一中学要求家长到校轮值延时晚自习，且必须是学生父母，当地教育局回应已介入调查，哪些信息值得关注？](http://www.daogukj.com/2176297)
+- [山姆拟限制亲友卡绑定，亲友卡一年仅可绑定 2 位主卡，此举有何考量？低价共享会员时代结束了吗？](http://www.movie.hkepx.cn/xiju/6420011.htm)
+- [鼓励灵活就业人员参加职工养老保险](http://www.play.hengshemaoyi.cn/kongbu/7380475.htm)
+- [今天做个屋](http://www.daogukj.com/5699059)
+- [武汉一中学要求家长到校轮值延时晚自习，且必须是学生父母，当地教育局回应已介入调查，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/0644202.htm)
+- [城市里的柿子不能摘 要留给小鸟吃](http://www.movie.hkepx.cn/xiju/8056511.htm)
+- [突然发现物业费比房贷可怕多了](http://www.daogukj.com/nexzmtzr/)
+- [deepseek 翻唱《人是猫》完整版，大肥鱼觉得人和猫一样可爱,所以人是猫](http://www.daogukj.com/1229862)
+- [女子仅退款9斤蜜薯称有本事来拿](http://www.daogukj.com/bnuggeog/)
+- [AI生成内容不受版权约束？错！](http://www.movie.hkepx.cn/xiju/0869258.htm)
+- [【纪录片】威尔史密斯的极地纵横 02 深入亚马逊丛林](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
+- [《司机の噩梦》](http://www.play.hengshemaoyi.cn/xiju/8712972.htm)
+- [一双草鞋承载着家国信仰](http://www.daogukj.com/1535718)
+- [丰收的中国如此多娇](http://www.play.hengshemaoyi.cn/kongbu/2527657.htm)
+- [【手术TV】先生！我知道这很荒诞，但人还得往前看......](http://www.daogukj.com/fwgnvbgz/)
+- [中学要求家长轮值：老师不能连续工作](http://www.daogukj.com/liomovvw/)
+- [长沙文玩地摊惊现两套“金缕玉衣”](http://www.play.hengshemaoyi.cn/xiju/3352880.htm)
+- [日议员被中国制裁 高市竟称“光荣”](http://www.daogukj.com/5981356)
+- [四五十元一个的面包没人买了](http://www.play.hengshemaoyi.cn/kongbu/9556053.htm)
+- [沈腾水中瑜伽秒变扑腾](http://www.movie.hkepx.cn/movie/6187870.htm)
+- [大闸蟹真的“崩盘”了吗](http://www.movie.hkepx.cn/xiju/9816980.htm)
+- [宙斯偷情明明是他的问题，那为什么他妻子赫拉不和他算账反而要去惩罚那些和他偷情的人类和仙女？](http://www.daogukj.com/djgtqgkc/)
+- [Anthropic 新规禁止持续虐待 Claude，这意味着什么？](http://www.movie.hkepx.cn/movie/4871450.htm)
+- [【大鸣王潮1566】岁主帮岁共](http://www.movie.hkepx.cn/xiju/4251876.htm)
+- [凡人修仙传动画195集观众满意吗？](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
+- [母亲为被骚扰女儿讨说法目击者发声](http://www.movie.hkepx.cn/movie/9171667.htm)
+- [黑客被日本运维整崩溃](http://www.daogukj.com/oeibgnih/)
+- [倒查三年流水，顶级商K集体关门！商K经济终于崩盘了？](http://www.play.hengshemaoyi.cn/xiju/5921224.htm)
+- [王仁君裤子太紧没及时回复赵丽颖](http://www.daogukj.com/jqsnmzfn/)
+- [今年已下达养老保险补助金约1.2万亿](http://www.daogukj.com/fprzebnn/)
+- [【独家】《凡人修仙传之慕兰之战》第19集【总第195集】](http://www.daogukj.com/2176297)
 
 </details>
 
 ## 原始来源
 
-- [粤J2888T现身万岁山 带刀护卫守车](https://www.baidu.com/s?wd=%E7%B2%A4J2888T%E7%8E%B0%E8%BA%AB%E4%B8%87%E5%B2%81%E5%B1%B1+%E5%B8%A6%E5%88%80%E6%8A%A4%E5%8D%AB%E5%AE%88%E8%BD%A6&sa=fyb_news&rsv_dl=fyb_news)
+- [精神病院为何扎堆更名](https://www.baidu.com/s?wd=%E7%B2%BE%E7%A5%9E%E7%97%85%E9%99%A2%E4%B8%BA%E4%BD%95%E6%89%8E%E5%A0%86%E6%9B%B4%E5%90%8D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ecad8706579789737b6b -->
+<!-- content-fingerprint: 4dc6da6176230f16ed5c -->
