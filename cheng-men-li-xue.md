@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 中科院回应“住酒店可进天眼核心区”
+# 白鹿泰国见面会退票
 
-> 来源：百度热搜 · 排名：第 13 位 · 热度：6562110 · 更新：2026-10-13T11:36:15+08:00
+> 来源：微博热搜 · 排名：第 14 位 · 热度：386582 · 分类：演出 · 更新：2026-10-13T19:02:22+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“中科院回应“住酒店可进天眼核心区””位列第 13 位，公开热度指标为 6562110。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“白鹿泰国见面会退票”位列第 14 位，公开热度指标为 386582，榜单分类为“演出”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月12日，中国科学院发布通报，针对网传游客付费入住特定酒店即可进入“中国天眼”核心区参观一事，已成立调查工作组开展全面核查。此前，该院收到相关反映。通报称，若发现违规违纪行为将严肃处理，结果将及时公布。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`微博热搜` `实时热搜` `热点资讯` `演出`
 
 ## 相关热点
 
-- [陈赫直播怼鹿晗](shou-bu-shi-juan.md)
-- [2027国考明天开始报名](xue-fu-wu-che.md)
-- [刘国梁16岁女儿刘宇婕登顶高尔夫中国女子公开赛，成赛事创办以来首位业余冠军，哪些信息值得关注？](bo-wen-qiang-ji.md)
-- [正在试图高风险高回报的马可...](wen-gu-zhi-xin.md)
+- [A股反弹行情能否延续](shou-bu-shi-juan.md)
+- [刘国梁16岁女儿刘宇婕登顶高尔夫中国女子公开赛，成赛事创办以来首位业余冠军，哪些信息值得关注？](xue-fu-wu-che.md)
+- [《两种肚子》流的是同一种血。](bo-wen-qiang-ji.md)
+- [茶百道涉嫌操纵IPO被香港证监会停牌](wen-gu-zhi-xin.md)
 
 ## 站内推荐
 
-- [遗传定律：一种疾病，为什么能在家族中潜伏数代？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [《绝命毒师》老白儿子演员去世](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [5名中国籍男子持枪械在泰国抢劫](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [又一“中国造”全球爆单](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [央视官宣成毅](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [东北虎一生只做三件事](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [咱家都有哪些矿？“户口簿”更新了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [卫生院现丁义珍式窗口 老人半跪挂号](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [吃播 催吐](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [媒体评楼上百日宴楼下婚宴闹剧](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [今年诺奖颁给了“大脑的开关”：光遗传学到底是什么](http://www.movie.hkepx.cn/movie/8315527.htm)
-- [评论员：日本是铁了心要介入台海](http://www.movie.hkepx.cn/xiju/9744003.htm)
-- [赵露思亲友自嗨神作《我不是npc》](http://www.play.hengshemaoyi.cn/kongbu/2167324.htm)
-- [肖战演唱会官宣](http://www.movie.hkepx.cn/movie/0598458.htm)
-- [李娜自曝宣布退役后一个月怀孕](http://www.movie.hkepx.cn/movie/1195486.htm)
-- [央视批藏手机神器太无底线](http://www.movie.hkepx.cn/movie/1040288.htm)
-- [10连板大牛股新华传媒停牌核查](http://www.movie.hkepx.cn/xiju/1529442.htm)
-- [尊界公布制动踏板第三方检测结果](http://www.daogukj.com/9990647)
-- [邓紫棋娶进狱男友被脱粉，王星绑架后网贷仍没还完，代露娃献祭父母后开始洗白【吃瓜周报】](http://www.daogukj.com/vuidxsxb/)
-- [5名中国籍男子持枪械在泰国抢劫](http://www.movie.hkepx.cn/xiju/2812834.htm)
-- [特朗普为何“大撒币”？中期选举究竟有多重要？【纸牌屋现实版】](http://www.movie.hkepx.cn/movie/0453152.htm)
-- [50块钱可以在熟食店卖那些东西？](http://www.play.hengshemaoyi.cn/xiju/3141529.htm)
-- [你 坐 不 过 我 你 信 吗 ？](http://www.play.hengshemaoyi.cn/kongbu/3227732.htm)
-- [周杰伦转发视频让“青鸟”破防](http://www.daogukj.com/lttpjdfd/)
-- [某部队进出营区路上竟有30余个探头](http://www.play.hengshemaoyi.cn/xiju/8191525.htm)
-- [目前在世的钢琴大师中，郎朗能排到什么位置？](http://www.daogukj.com/zjpmceko/)
-- [C罗和马宁交涉](http://www.play.hengshemaoyi.cn/xiju/6169098.htm)
-- [王兴兴称过去犯的最大的错是不够相信AI，如何看待此番言论？全力拥抱 AI 会给机器人行业带来哪些改变？](http://www.movie.hkepx.cn/xiju/0248646.htm)
-- [刘国梁16岁女儿刘宇婕登顶高尔夫中国女子公开赛，成赛事创办以来首位业余冠军，哪些信息值得关注？](http://www.daogukj.com/8328518)
-- [曝aijing父母是老赖](http://www.play.hengshemaoyi.cn/xiju/8682512.htm)
-- [王励勤出席张家界森林保护节活动](http://www.play.hengshemaoyi.cn/kongbu/6784091.htm)
-- [提车9天坠崖司机准备买同款新车](http://www.daogukj.com/kcmcfwfy/)
-- [领克10翻下百米悬崖车主仅轻伤](http://www.daogukj.com/pqcczpwj/)
-- [A股](http://www.movie.hkepx.cn/xiju/5113891.htm)
-- [陈赫直播怼鹿晗](http://www.play.hengshemaoyi.cn/kongbu/6074356.htm)
-- [如何看待由 Opus 5.5 生成的各类科普视频爆火？AI 正在改变科普内容的创作方式吗？](http://www.play.hengshemaoyi.cn/xiju/7952053.htm)
-- [中方：台湾问题是中国内政不容干涉](http://www.movie.hkepx.cn/movie/9150107.htm)
-- [季前赛开拓者119-66大胜伦敦雄狮，杨瀚森贡献13分4篮板4助攻，该如何评价他的发挥？](http://www.movie.hkepx.cn/movie/7359364.htm)
-- [国考报考](http://www.movie.hkepx.cn/xiju/0518845.htm)
-- [一梯一户真的安全吗？运行规则是啥？](http://www.play.hengshemaoyi.cn/kongbu/9268198.htm)
-- [9月问界M9销量破万位列第一](http://www.play.hengshemaoyi.cn/kongbu/3268208.htm)
-- [aijing妈妈报警](http://www.play.hengshemaoyi.cn/kongbu/0525872.htm)
-- [24岁吃播网红的人生终点](http://www.play.hengshemaoyi.cn/kongbu/3907054.htm)
-- [媒体：支持“台独”只会砸自己的脚](http://www.daogukj.com/immmcdpl/)
-- [来跟抓拍摄影师竞赛吧【AI全民制作人】](http://www.daogukj.com/cudoryjd/)
-- [《知否》到底是在写封建礼教对女性的压迫，还是在悄悄替施害者找台阶？](http://www.movie.hkepx.cn/xiju/5435793.htm)
-- [俄罗斯为什么宁愿死磕欧洲也不经营远东地区？](http://www.daogukj.com/7199504)
-- [尊界V800公布制动踏板第三方检测结果，加严检验至纵向力3000N未出现裂纹和损坏，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/2980488.htm)
-- [媒体曝光内蒙古一投资1.2亿元项目，仅建成5个大棚，承建商为空壳公司，具体是怎么回事？钱还能追回来吗？](http://www.daogukj.com/6407743)
-- [男子造谣多名游泳者死亡被依法处理](http://www.daogukj.com/2117875)
-- [中国旅客转机亲历爆炸：大家都在哭喊](http://www.play.hengshemaoyi.cn/xiju/5776596.htm)
-- [男子标注贩毒人员车辆为某品牌被抓](http://www.movie.hkepx.cn/movie/1934338.htm)
-- [陶哲轩的「黑盒AI治癌药」思想实验引发争议，如何看待这一讨论？我们需要完全理解科学的内在机制再应用吗？](http://www.play.hengshemaoyi.cn/xiju/5489202.htm)
-- [网友称村上春树每天凌晨4点起、晚9点睡，一天工作5小时，剩余时间休息，真的吗？这样的生活方式健康吗？](http://www.movie.hkepx.cn/xiju/8773959.htm)
-- [段位争夺战](http://www.movie.hkepx.cn/xiju/0337841.htm)
-- [南拳妈妈成员帕劳潜水遭水下袭击](http://www.movie.hkepx.cn/movie/9024789.htm)
-- [“不烧心”火了 别让良心凉了](http://www.play.hengshemaoyi.cn/xiju/0811131.htm)
-- [尊界V800公布制动踏板第三方检测结果](http://www.daogukj.com/9668698)
-- [李佳琦持续掉粉](http://www.play.hengshemaoyi.cn/xiju/2169319.htm)
-- [遗传定律：一种疾病，为什么能在家族中潜伏数代？](http://www.daogukj.com/3876959)
+- [30万于都百姓甘愿同守一个秘密](http://www.movie.hkepx.cn/movie/8315527.htm)
+- [如果有一天你在路上遇到长大后的自己，只能问TA一件事情，你最想问什么？](http://www.movie.hkepx.cn/xiju/9744003.htm)
+- [男子挑战喝酒比赛 喝完15斤后进ICU](http://www.play.hengshemaoyi.cn/kongbu/2167324.htm)
+- [中方回应特朗普称不相信中俄在帮伊朗](http://www.movie.hkepx.cn/movie/0598458.htm)
+- [你最近一次情绪「破防」是什么时候？因为什么事情？](http://www.movie.hkepx.cn/movie/1195486.htm)
+- [国考岗位](http://www.movie.hkepx.cn/movie/1040288.htm)
+- [火箭军全流程实战演练战力拉满](http://www.movie.hkepx.cn/xiju/1529442.htm)
+- [机器狗进哀牢山拍到“冥界之花”](http://www.daogukj.com/9990647)
+- [“各位都什么原因没买一艘呢”](http://www.daogukj.com/vuidxsxb/)
+- [卫生院现丁义珍式窗口 老人半跪挂号](http://www.movie.hkepx.cn/xiju/2812834.htm)
+- [楼上百日宴楼下婚宴最无辜的是孩子](http://www.movie.hkepx.cn/movie/0453152.htm)
+- [土豆减肥降血压？土豆真能代替米饭面条吗？【主播说三农】](http://www.play.hengshemaoyi.cn/xiju/3141529.htm)
+- [一年中最舒服的日子来了](http://www.play.hengshemaoyi.cn/kongbu/3227732.htm)
+- [教师因成绩差被迫耻辱合影调查进度0](http://www.daogukj.com/lttpjdfd/)
+- [重庆市原市长黄奇帆被查](http://www.play.hengshemaoyi.cn/xiju/8191525.htm)
+- [网友称村上春树每天凌晨4点起、晚9点睡，一天工作5小时，剩余时间休息，真的吗？这样的生活方式健康吗？](http://www.daogukj.com/zjpmceko/)
+- [王源心意派送中](http://www.play.hengshemaoyi.cn/xiju/6169098.htm)
+- [乌铜走银](http://www.movie.hkepx.cn/xiju/0248646.htm)
+- [《两种肚子》流的是同一种血。](http://www.daogukj.com/8328518)
+- [东北虎一生主要做哪三件事](http://www.play.hengshemaoyi.cn/xiju/8682512.htm)
+- [第一学历非985/211，找工作经常被卡，要不要去复读、重学高中知识，重新参加高考？](http://www.play.hengshemaoyi.cn/kongbu/6784091.htm)
+- [为何会出现如此多大棚闲置](http://www.daogukj.com/kcmcfwfy/)
+- [3人死刑！缅北魏家犯罪集团案宣判](http://www.daogukj.com/pqcczpwj/)
+- [雅思主办方致歉](http://www.movie.hkepx.cn/xiju/5113891.htm)
+- [A股反弹行情能否延续](http://www.play.hengshemaoyi.cn/kongbu/6074356.htm)
+- [霸王茶姬称「买一送一」加盟商买单并不属实，怎么看待这一回应？这次活动成本到底是由谁承担？](http://www.play.hengshemaoyi.cn/xiju/7952053.htm)
+- [鸡蛋价格一个月下跌近 25%，从 6 元跌回 4 元时代，背后是什么原因？接下来还会继续降价吗？](http://www.movie.hkepx.cn/movie/9150107.htm)
+- [问界汽车拟于2027年进入欧洲市场，赛力斯曾表示正推进问界车型全系出海，在海外还能复制国内热度吗？](http://www.movie.hkepx.cn/movie/7359364.htm)
+- [患者送1.9元汽水后举报药房人员收礼](http://www.movie.hkepx.cn/xiju/0518845.htm)
+- [私募大佬梁宏开炮称「某些险资巨头追涨杀跌的操作实在令人费解」，反映了当前 A 股怎样的生态？](http://www.play.hengshemaoyi.cn/kongbu/9268198.htm)
+- [缅北魏家犯罪集团案一审宣判，魏怀仁、陈大卫、廖景芳被判死刑，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/kongbu/3268208.htm)
+- [张雪放言国产机车将垄断世界奖台](http://www.play.hengshemaoyi.cn/kongbu/0525872.htm)
+- [第一个抵制粉丝云包场的艺人](http://www.play.hengshemaoyi.cn/kongbu/3907054.htm)
+- [《名侦探柯南》中服部平次终于向和叶告白成功，如何评价这一剧情设计？](http://www.daogukj.com/immmcdpl/)
+- [网红晚安安从35楼坠落生还 右腿截肢](http://www.daogukj.com/cudoryjd/)
+- [《异环》明音凛EP丨晨星与海](http://www.movie.hkepx.cn/xiju/5435793.htm)
+- [探秘全球最贵私人岛！世界首富买下的岛，到底吃些啥？](http://www.daogukj.com/7199504)
+- [媒体曝付费可进「中国天眼」核心区，中科院已成立调查组，这会对科研观测造成哪些危害？暴露出哪些管理问题？](http://www.movie.hkepx.cn/xiju/2980488.htm)
+- [夫妻点一杯58元咖啡只能一人落座，市监局称「一人一座一消费」合理与否不能一刀切判定，如何理解此事？](http://www.daogukj.com/6407743)
+- [“办社保卡金卡每月发补贴”系谣言](http://www.daogukj.com/2117875)
+- [如何看待海贼王漫画1187话，山治觉醒霸王色霸气？](http://www.play.hengshemaoyi.cn/xiju/5776596.htm)
+- [“吃了不烧心”不等于食材好](http://www.movie.hkepx.cn/movie/1934338.htm)
+- [【方舟测评#77】短轴高伤！满潜专九克莱门莎数据与实战测评](http://www.play.hengshemaoyi.cn/xiju/5489202.htm)
+- [【干货】不小心拿到诺贝尔奖怎么办？（保姆级）](http://www.movie.hkepx.cn/xiju/8773959.htm)
+- [女演员钱水明演出期间意外溺亡](http://www.movie.hkepx.cn/xiju/0337841.htm)
+- [黄奇帆接受审查调查](http://www.movie.hkepx.cn/movie/9024789.htm)
+- [曝肖战演唱会伴手礼价格不菲](http://www.play.hengshemaoyi.cn/xiju/0811131.htm)
+- [英方单方面停考雅思](http://www.daogukj.com/9668698)
+- [大蛇盘踞厕所 消防出勤30多次终抓获](http://www.play.hengshemaoyi.cn/xiju/2169319.htm)
+- [东北虎一生只做三件事](http://www.daogukj.com/3876959)
 
 </details>
 
 ## 原始来源
 
-- [中科院回应“住酒店可进天眼核心区”](https://www.baidu.com/s?wd=%E4%B8%AD%E7%A7%91%E9%99%A2%E5%9B%9E%E5%BA%94%E2%80%9C%E4%BD%8F%E9%85%92%E5%BA%97%E5%8F%AF%E8%BF%9B%E5%A4%A9%E7%9C%BC%E6%A0%B8%E5%BF%83%E5%8C%BA%E2%80%9D&sa=fyb_news&rsv_dl=fyb_news)
+- [白鹿泰国见面会退票](https://s.weibo.com/weibo?q=%E7%99%BD%E9%B9%BF%E6%B3%B0%E5%9B%BD%E8%A7%81%E9%9D%A2%E4%BC%9A%E9%80%80%E7%A5%A8)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5da9d7a9e968886fe638 -->
+<!-- content-fingerprint: 6ebf295328f2a9004508 -->

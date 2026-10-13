@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 李娜自曝宣布退役后一个月怀孕
+# 你最近一次情绪「破防」是什么时候？因为什么事情？
 
-> 来源：今日头条热榜 · 排名：第 13 位 · 热度：5522359 · 更新：2026-10-13T11:36:15+08:00
+> 来源：知乎热榜 · 排名：第 13 位 · 热度：84 万热度 · 分类：问答 · 更新：2026-10-13T19:02:22+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“李娜自曝宣布退役后一个月怀孕”位列第 13 位，公开热度指标为 5522359。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“你最近一次情绪「破防」是什么时候？因为什么事情？”位列第 13 位，公开热度指标为 84 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：每个人都会有很多「破防瞬间」——加班到凌晨、被误解、说不出口的委屈。有些情绪可以跟家人朋友说，有些只能自己消化。 这次，知乎X日慈公益 做了一个「情绪树洞」。你可以匿名扔一张纸条，也可以捡起别人的纸条，给一个回应~ 点击进入树洞：今天想对树洞说 · 附近有解 也欢迎你在这个问题下，直接分享你的「破防瞬间」~
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [网友称奶茶店做活动爆单后，员工却不涨薪，这是普遍现象吗？这样设置是不是不太合理？](zao-bi-tou-guang.md)
-- [【IGN】《影之刃零》最终前瞻](nang-ying-ying-xue.md)
-- [中科院回应“住酒店可进天眼核心区”](cheng-men-li-xue.md)
-- [陈赫直播怼鹿晗](shou-bu-shi-juan.md)
+- [“新月飨宴”主题活动故事视频爆料：——“欢迎光临午夜的魔法厨房！今日是谁携美味闪亮登场？”](zao-bi-tou-guang.md)
+- [梅艳芳骨灰被盗案嫌疑人仍未确定](nang-ying-ying-xue.md)
+- [白鹿泰国见面会退票](cheng-men-li-xue.md)
+- [A股反弹行情能否延续](shou-bu-shi-juan.md)
 
 ## 站内推荐
 
-- [红星照耀中国](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [马宁3次无视C罗倒地](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [男子造谣多名游泳者死亡被依法处理](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [中国旅客转机亲历爆炸：大家都在哭喊](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [Meta 推出闭源 AI 模型 MuseWonder，将对行业格局产生哪些影响？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [你我的长征](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [24岁女吃播猝死 或因缺钾](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [“办社保卡金卡每月发补贴”系谣言](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [如何看待海贼王漫画1187话，山治觉醒霸王色霸气？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [正在试图高风险高回报的马可...](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [媒体曝付费可进「中国天眼」核心区，中科院已成立调查组，这会对科研观测造成哪些危害？暴露出哪些管理问题？](http://www.movie.hkepx.cn/xiju/1653219.htm)
-- [某部队进出营区路上竟有30余个探头](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
-- [男子目睹妻子出轨持刀刺伤第三者](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
-- [文旅市场消费活力十足](http://www.daogukj.com/ceegkpfb/)
-- [拦不住！当5岁小孩非要尝试重庆火锅...](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
-- [为何说羽绒服生意已经变了](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
-- [周云杰欢迎孙颖莎](http://www.movie.hkepx.cn/xiju/2935808.htm)
-- [孙颖莎与海尔国民组合有多适配](http://www.movie.hkepx.cn/movie/6067835.htm)
-- [【花小烙】蚰蜒：不就是腿多了点嘛，我们真没那么恐怖！](http://www.movie.hkepx.cn/movie/1919789.htm)
-- [马宁3次无视C罗倒地](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
-- [网友称奶茶店做活动爆单后，员工却不涨薪，这是普遍现象吗？这样设置是不是不太合理？](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
-- [《绝命毒师》老白儿子演员去世](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
-- [《武林外传》“小米”和“钱掌柜”同框](http://www.movie.hkepx.cn/xiju/8738765.htm)
-- [男子造谣多名游泳者死亡被依法处理](http://www.play.hengshemaoyi.cn/xiju/4131259.htm)
-- [周杰伦转发视频让“青鸟”破防](http://www.daogukj.com/5961107)
-- [精神小妹误闯天家](http://www.daogukj.com/4005019)
-- [霸王茶姬奖励员工1350万元，350万元团建费，1000万元红包，全部给到一线门店员工，如何评价此举？](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
-- [【目标是最强共鸣者】第一话 流浪骑士卡提希娅，参上！](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
-- [尊界V800公布制动踏板第三方检测结果，加严检验至纵向力3000N未出现裂纹和损坏，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/3802162.htm)
-- [评论员：日本是铁了心要介入台海](http://www.daogukj.com/4160322)
-- [中国旅客转机亲历爆炸：大家都在哭喊](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
-- [儿子帮妈妈拔针步步做错](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
-- [国考报考](http://www.movie.hkepx.cn/movie/5796961.htm)
-- [又一“中国造”全球爆单](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
-- [国考](http://www.daogukj.com/6018961)
-- [肖战演唱会390到1960](http://www.daogukj.com/efehcbta/)
-- [来跟抓拍摄影师竞赛吧【AI全民制作人】](http://www.daogukj.com/7846527)
-- [Meta 推出闭源 AI 模型 MuseWonder，将对行业格局产生哪些影响？](http://www.movie.hkepx.cn/movie/2779517.htm)
-- [24岁吃播网红的人生终点](http://www.daogukj.com/5137842)
-- [人民日报点赞“四无婚礼”](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
-- [“不烧心”火了 别让良心凉了](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
-- [男子标注贩毒人员车辆为某品牌被抓](http://www.daogukj.com/2275454)
-- [陈赫直播怼鹿晗](http://www.movie.hkepx.cn/movie/8955518.htm)
-- [红星照耀中国](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
-- [10连板大牛股新华传媒停牌核查](http://www.daogukj.com/3040545)
-- [广东一医院被曝病房墙体和天花板都是霉菌，院方称工作确有疏忽，为啥会出现霉菌？对健康有啥影响？](http://www.movie.hkepx.cn/movie/0072136.htm)
-- [理记被禁止关注了](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
-- [【IGN】《影之刃零》最终前瞻](http://www.movie.hkepx.cn/xiju/2548466.htm)
-- [王老菊曾说做游戏是因为「觉得自己也行」，游戏阅历极高，「亏600万」做了7年的游戏将上线，你看好吗？](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
-- [【A2O】A2O LITE 'NEON' Official Video](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
-- [1米85山东男友到南方成全家GPS](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
-- [央视批藏手机神器太无底线](http://www.movie.hkepx.cn/movie/0563740.htm)
-- [你 坐 不 过 我 你 信 吗 ？](http://www.play.hengshemaoyi.cn/xiju/5085308.htm)
-- [赵露思亲友自嗨神作《我不是npc》](http://www.movie.hkepx.cn/xiju/6484379.htm)
-- [俄罗斯为什么宁愿死磕欧洲也不经营远东地区？](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
-- [尊界V800公布制动踏板第三方检测结果](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
-- [尊界踏板检测未出现裂纹和损坏](http://www.movie.hkepx.cn/movie/4954417.htm)
-- [尊界公布制动踏板第三方检测结果](http://www.daogukj.com/8556378)
-- [季前赛开拓者119-66大胜伦敦雄狮，杨瀚森贡献13分4篮板4助攻，该如何评价他的发挥？](http://www.daogukj.com/0551116)
-- [2027国考明天开始报名](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
+- [为什么DNF没以前好玩了？](http://www.movie.hkepx.cn/xiju/1653219.htm)
+- [重庆市原市长黄奇帆被查](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
+- [空气炸锅终于对葡萄下手了](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
+- [去中国工厂“打卡”](http://www.daogukj.com/ceegkpfb/)
+- [50块钱可以在熟食店卖那些东西？](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
+- [一梯一户真的安全吗？运行规则是啥？](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
+- [瑞银：美债收益率回落将让黄金复苏](http://www.movie.hkepx.cn/xiju/2935808.htm)
+- [中方：印度公布“标准地名”非法无效](http://www.movie.hkepx.cn/movie/6067835.htm)
+- [或许在某个平行宇宙中，他们的故事是这样展开的.....](http://www.movie.hkepx.cn/movie/1919789.htm)
+- [24岁女吃播猝死 或因缺钾](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
+- [“新月飨宴”主题活动故事视频爆料：——“欢迎光临午夜的魔法厨房！今日是谁携美味闪亮登场？”](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
+- [咱家都有哪些矿？“户口簿”更新了](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
+- [上海一女子买房8年才知被登记赠与](http://www.movie.hkepx.cn/xiju/8738765.htm)
+- [“办社保卡金卡每月发补贴”系谣言](http://www.play.hengshemaoyi.cn/xiju/4131259.htm)
+- [教师因成绩差被迫耻辱合影调查进度0](http://www.daogukj.com/5961107)
+- [超级“干净”的巴基斯坦汽水工厂，是一代人永远无法磨灭的伤痛](http://www.daogukj.com/4005019)
+- [“轮回百世，嘴硬百世。”](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
+- [【特摄月报】提欧下半日剧编剧缺席？麦斯料理鼠王大战十二区](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
+- [媒体曝付费可进「中国天眼」核心区，中科院已成立调查组，这会对科研观测造成哪些危害？暴露出哪些管理问题？](http://www.movie.hkepx.cn/xiju/3802162.htm)
+- [如果有一天你在路上遇到长大后的自己，只能问TA一件事情，你最想问什么？](http://www.daogukj.com/4160322)
+- [如何看待海贼王漫画1187话，山治觉醒霸王色霸气？](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
+- [AI女爱豆因怀孕暂停活动](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
+- [患者送1.9元汽水后举报药房人员收礼](http://www.movie.hkepx.cn/movie/5796961.htm)
+- [吃播 催吐](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
+- [雅思公布赔偿方案](http://www.daogukj.com/6018961)
+- [王星被胁迫借下的网贷该不该还](http://www.daogukj.com/efehcbta/)
+- [网红晚安安从35楼坠落生还 右腿截肢](http://www.daogukj.com/7846527)
+- [正在试图高风险高回报的马可...](http://www.movie.hkepx.cn/movie/2779517.htm)
+- [第一个抵制粉丝云包场的艺人](http://www.daogukj.com/5137842)
+- [居民投诉月亮太亮影响睡觉白岩松回应](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
+- [曝肖战演唱会伴手礼价格不菲](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
+- [“吃了不烧心”不等于食材好](http://www.daogukj.com/2275454)
+- [A股反弹行情能否延续](http://www.movie.hkepx.cn/movie/8955518.htm)
+- [你我的长征](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
+- [火箭军全流程实战演练战力拉满](http://www.daogukj.com/3040545)
+- [《小 时 候 最 刺 激 的 一 集》](http://www.movie.hkepx.cn/movie/0072136.htm)
+- [缅北四大家族覆灭时间线](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
+- [梅艳芳骨灰被盗案嫌疑人仍未确定](http://www.movie.hkepx.cn/xiju/2548466.htm)
+- [住手 你们不要再摇花手了](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
+- [男子在悬空寺做引体向上 警方已立案](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
+- [疑似肖战经纪人朋友圈](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
+- [国考岗位](http://www.movie.hkepx.cn/movie/0563740.htm)
+- [一年中最舒服的日子来了](http://www.play.hengshemaoyi.cn/xiju/5085308.htm)
+- [男子挑战喝酒比赛 喝完15斤后进ICU](http://www.movie.hkepx.cn/xiju/6484379.htm)
+- [探秘全球最贵私人岛！世界首富买下的岛，到底吃些啥？](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
+- [英方单方面停考雅思](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
+- [男子婚内出轨获刑2年小三获刑1年](http://www.movie.hkepx.cn/movie/4954417.htm)
+- [机器狗进哀牢山拍到“冥界之花”](http://www.daogukj.com/8556378)
+- [问界汽车拟于2027年进入欧洲市场，赛力斯曾表示正推进问界车型全系出海，在海外还能复制国内热度吗？](http://www.daogukj.com/0551116)
+- [刘国梁16岁女儿刘宇婕登顶高尔夫中国女子公开赛，成赛事创办以来首位业余冠军，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
 
 </details>
 
 ## 原始来源
 
-- [李娜自曝宣布退役后一个月怀孕](https://www.toutiao.com/trending/7695748966419451419/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227695748966419451419%22%2C%22hot_board_impr_id%22%3A%222026101311361311EB29BEDDA9A5ED49A5%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [你最近一次情绪「破防」是什么时候？因为什么事情？](https://www.zhihu.com/question/2088611143866643162)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a7c99b2fb3c8027af246 -->
+<!-- content-fingerprint: 449ec111bee4371bb6ef -->
