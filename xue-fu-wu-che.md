@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 刘国梁16岁女儿刘宇婕登顶高尔夫中国女子公开赛，成赛事创办以来首位业余冠军，哪些信息值得关注？
+# 田馥甄我不配唱给你听是我不配
 
-> 来源：知乎热榜 · 排名：第 14 位 · 热度：56 万热度 · 分类：问答 · 更新：2026-10-14T06:38:21+08:00
+> 来源：微博热搜 · 排名：第 15 位 · 热度：410838 · 分类：艺人 · 更新：2026-10-14T09:23:58+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“刘国梁16岁女儿刘宇婕登顶高尔夫中国女子公开赛，成赛事创办以来首位业余冠军，哪些信息值得关注？”位列第 14 位，公开热度指标为 56 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“田馥甄我不配唱给你听是我不配”位列第 15 位，公开热度指标为 410838，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：虎父无犬女！刘国梁16岁的大女儿刘宇婕登顶中国女子公开赛。 10月11日，刘宇婕在决赛轮强势翻盘，打出69杆。最后三轮总成绩低于标准杆7杆，以4杆优势大胜夺冠，一举创造赛事20年历史：成为中国女子公开赛创办以来第一位业余冠军，同时也拿下个人女子中巡第三冠。 刘宇婕是刘国梁的大女儿，小名“赢赢”，3岁开始练习高尔夫，6岁就开始参赛。刘国梁曾说，不希望女儿们选择乒乓球，因为自己的光环也会是她们的阴影。刘国梁16岁女儿刘宇婕夺冠，登顶中国女子公开赛，成赛事创办以来首位业余冠军，刘国梁曾坦言：不愿女儿打乒乓
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `艺人`
 
 ## 相关热点
 
-- [63小时？疯狂就在当下！！面包车直达新疆！赛里木湖！没白活！](bo-wen-qiang-ji.md)
-- [超长蛋挞退潮 谁是幕后推手](wen-gu-zhi-xin.md)
-- [送1.9元汽水患者连续投诉医生2年](ju-yi-fan-san.md)
-- [35焦段做1.2光圈意义是什么?](rong-hui-guan-tong.md)
+- [重温泸定桥91年前那场“飞夺”冲锋](bo-wen-qiang-ji.md)
+- [同卵双胞胎能长得几乎一样，为什么偏偏复制不了指纹？](wen-gu-zhi-xin.md)
+- [国内首款！《燕云十六声》携手英伟达将正式支持 DLSS 5，画质突破性革新！](ju-yi-fan-san.md)
+- [老人每晚暴走15000步致膝部坏死](rong-hui-guan-tong.md)
 
 ## 站内推荐
 
-- [吃播网红干饭莹去世](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [拜仁0比2落后维京](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [黄奇帆被查](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [土豆减肥降血压？土豆真能代替米饭面条吗？【主播说三农】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [玩家变成魔王，魔王却成了勇者，这款27年前的游戏竟有隐藏结局！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [金晨回应现发4更换常驻嘉宾](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [男生高考522分被调剂马术专业，成为在校本科生中唯一持证钉蹄师，前景如何？能带给选专业的学生哪些启发？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [“老头乐”多次撞击警车 警方通报](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [为什么 Markdown 成了 AI 时代知识管理的默认格式？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [孩子身上有不少零花钱，但花钱特别"抠"，能让我出的她坚决不出，怎么引导？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [大心脏行为实力排行（胆小者谨慎观看）](http://www.play.hengshemaoyi.cn/xiju/7605701.htm)
-- [如何看待Andrej Karpathy提出「AI能力认知漏斗」，少数专业人士已开始有「眩晕感」？](http://www.daogukj.com/7763134)
-- [护:哥你这不是给我俩送钱吗？护：不对！我掉进陷阱了！打了两天还是零进度的护子终于发现事情的严重性了](http://www.movie.hkepx.cn/movie/9676418.htm)
-- [35焦段做1.2光圈意义是什么?](http://www.daogukj.com/glgoceuy/)
-- [《暗影崛起》佐樱感情线挽尊是否必要？](http://www.daogukj.com/orzdfsse/)
-- [79岁老干妈陶华碧用AI一年赚了54亿](http://www.play.hengshemaoyi.cn/xiju/8405399.htm)
-- [土豆减肥降血压？土豆真能代替米饭面条吗？【主播说三农】](http://www.daogukj.com/eymflmzk/)
-- [在冬夜，一块蛋糕，两个冻人](http://www.play.hengshemaoyi.cn/kongbu/7715467.htm)
-- [菲副总统怒批总统对中国鲁莽挑衅](http://www.movie.hkepx.cn/movie/6971182.htm)
-- [买黄金的人变了](http://www.movie.hkepx.cn/movie/4395855.htm)
-- [黄奇帆被查](http://www.daogukj.com/qotrqcnx/)
-- [一口气看懂2026物理诺奖：什么是冰立方？如何把南极变成宇宙望远镜？内容由浅入深，非常精彩。请坐稳扶好！](http://www.movie.hkepx.cn/movie/3034740.htm)
-- [苏联版“空中监狱”是什么？【神奇组织55】](http://www.play.hengshemaoyi.cn/xiju/2234210.htm)
-- [夫妻点一杯58元咖啡只能一人落座，市监局称「一人一座一消费」合理与否不能一刀切判定，如何理解此事？](http://www.play.hengshemaoyi.cn/xiju/4074352.htm)
-- [哥哥死因不明直到有了弟弟才知道](http://www.daogukj.com/6535873)
-- [长期用电动牙刷牙龈萎缩出血？误区](http://www.play.hengshemaoyi.cn/kongbu/0771677.htm)
-- [男生高考522分被调剂马术专业，成为在校本科生中唯一持证钉蹄师，前景如何？能带给选专业的学生哪些启发？](http://www.play.hengshemaoyi.cn/xiju/3926740.htm)
-- [乌铜走银](http://www.play.hengshemaoyi.cn/kongbu/0629663.htm)
-- [高志凯：台海若爆发战争没开战就结束](http://www.movie.hkepx.cn/xiju/4618462.htm)
-- [兵器工业集团与东风汽车签合作协议](http://www.play.hengshemaoyi.cn/kongbu/4226628.htm)
-- [1.9元汽水收礼事件发生于2023年](http://www.play.hengshemaoyi.cn/xiju/1687476.htm)
-- [73岁迟重瑞面色红润热情回应路人](http://www.daogukj.com/7225995)
-- [超长蛋挞退潮 谁是幕后推手](http://www.movie.hkepx.cn/xiju/2047156.htm)
-- [吃播网红干饭莹去世](http://www.daogukj.com/9963303)
-- [送1.9元汽水患者连续投诉医生2年](http://www.play.hengshemaoyi.cn/kongbu/1215997.htm)
-- [第一次听说生理性喜欢是这种感觉](http://www.daogukj.com/ybrclrlt/)
-- [朱琳真的美貌绝伦吗？为什么我看央视版《西游记》时觉得女儿国国王出场无感，蝎子精出场才有惊艳的感觉？](http://www.play.hengshemaoyi.cn/xiju/1146323.htm)
-- [人民日报评“双汇处罚到人”](http://www.daogukj.com/0361450)
-- [鸡蛋价格大跌 零售价重回4元出头](http://www.daogukj.com/2827507)
-- [肖战全票发售撕开行业潜规则遮羞布](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
-- [“红军药”变身“金疙瘩”](http://www.movie.hkepx.cn/xiju/4072931.htm)
-- [【目标是最强共鸣者】第一话 流浪骑士卡提希娅，参上！](http://www.movie.hkepx.cn/movie/5903663.htm)
-- [胖东来真的不靠超市赚钱吗](http://www.daogukj.com/vhjggfrk/)
-- [如果让你推荐一个小众却非常值得去的访古路线，你会推荐哪个？](http://www.play.hengshemaoyi.cn/kongbu/3924344.htm)
-- [《两种肚子》流的是同一种血。](http://www.movie.hkepx.cn/movie/9473120.htm)
-- [今年诺奖颁给了“大脑的开关”：光遗传学到底是什么](http://www.play.hengshemaoyi.cn/kongbu/1478965.htm)
-- [女子高铁上和男友开免提打1小时电话](http://www.daogukj.com/tfijfvel/)
-- [老人下地干活被气枪击中身亡](http://www.daogukj.com/dazlebgh/)
-- [PS5 全机型遭底层漏洞破解，会对索尼主机生态产生哪些冲击？](http://www.play.hengshemaoyi.cn/kongbu/6412162.htm)
-- [男生高考522分被调剂马术专业学钉蹄](http://www.play.hengshemaoyi.cn/kongbu/1040618.htm)
-- [Z114次列车成候鸟老人迁徙核心通道](http://www.movie.hkepx.cn/xiju/5518395.htm)
-- [江淮汽车股价一度大涨近 9%，这一轮上涨是否预示市场情绪迎来反转？涨势能持续多久？](http://www.play.hengshemaoyi.cn/kongbu/5070757.htm)
-- [向芷更是直接管向华强叫华强强强](http://www.movie.hkepx.cn/movie/5067570.htm)
+- [郑钦文夺冠父亲给她泼冷水](http://www.play.hengshemaoyi.cn/xiju/7605701.htm)
+- [田柯宇时隔两年回应字节「模型投毒」事件，当时究竟发生了什么？](http://www.daogukj.com/7763134)
+- [叫“大学”的都比叫“学院”的强吗？](http://www.movie.hkepx.cn/movie/9676418.htm)
+- [老人每晚暴走15000步致膝部坏死](http://www.daogukj.com/glgoceuy/)
+- [79岁老干妈陶华碧用AI一年赚54亿](http://www.daogukj.com/orzdfsse/)
+- [宜宾一摊主被顾客差评后遭网暴，最后不堪重压选择跳河轻生，如何避免这种悲剧再次发生？](http://www.play.hengshemaoyi.cn/xiju/8405399.htm)
+- [为什么 Markdown 成了 AI 时代知识管理的默认格式？](http://www.daogukj.com/eymflmzk/)
+- [宇树王兴兴在工博会上说，明年的 GPT-7 有可能「击穿」具身智能现在的瓶颈，你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/7715467.htm)
+- [男友送吹风机后不让女友带回家](http://www.movie.hkepx.cn/movie/6971182.htm)
+- [33岁销冠确诊胃癌晚期后突然被辞退](http://www.movie.hkepx.cn/movie/4395855.htm)
+- [“老头乐”多次撞击警车 警方通报](http://www.daogukj.com/qotrqcnx/)
+- [女子6毫米结节确诊乳腺癌](http://www.movie.hkepx.cn/movie/3034740.htm)
+- [【短的发布会】阔滑盖空调?海信空调智慧风 E5L会躲人?](http://www.play.hengshemaoyi.cn/xiju/2234210.htm)
+- [高中同学分的糖疑为褪黑素软糖](http://www.play.hengshemaoyi.cn/xiju/4074352.htm)
+- [苹果发布3款新品](http://www.daogukj.com/6535873)
+- [苏联版“空中监狱”是什么？【神奇组织55】](http://www.play.hengshemaoyi.cn/kongbu/0771677.htm)
+- [或许在某个平行宇宙中，他们的故事是这样展开的.....](http://www.play.hengshemaoyi.cn/xiju/3926740.htm)
+- [如何评价10月13日正式推出的Gemini 4 Argon？](http://www.play.hengshemaoyi.cn/kongbu/0629663.htm)
+- [报告：英伟达中国AI芯片份额跌至34%](http://www.movie.hkepx.cn/xiju/4618462.htm)
+- [印度排位对局👳🏽绝活天残脚vs丝滑半截山！😱从来没有见过这等招式！](http://www.play.hengshemaoyi.cn/kongbu/4226628.htm)
+- [【目标是最强共鸣者】第一话 流浪骑士卡提希娅，参上！](http://www.play.hengshemaoyi.cn/xiju/1687476.htm)
+- [宋雨琦穿这么少但是看着很健康](http://www.daogukj.com/7225995)
+- [同卵双胞胎能长得几乎一样，为什么偏偏复制不了指纹？](http://www.movie.hkepx.cn/xiju/2047156.htm)
+- [金晨回应现发4更换常驻嘉宾](http://www.daogukj.com/9963303)
+- [国内首款！《燕云十六声》携手英伟达将正式支持 DLSS 5，画质突破性革新！](http://www.play.hengshemaoyi.cn/kongbu/1215997.htm)
+- [苹果正式进军智能家居市场](http://www.daogukj.com/ybrclrlt/)
+- [我们来到了地中海，重走《奥德赛》十年回家路！](http://www.play.hengshemaoyi.cn/xiju/1146323.htm)
+- [肖战演唱会黄牛喊出25万一张天价票](http://www.daogukj.com/0361450)
+- [住手 你们不要再摇花手了](http://www.daogukj.com/2827507)
+- [Gemini 4全球上线](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
+- [红果短剧降智](http://www.movie.hkepx.cn/xiju/4072931.htm)
+- [机器狗第一次进哀牢山就拍到冥界之花](http://www.movie.hkepx.cn/movie/5903663.htm)
+- [我对不同假期的态度](http://www.daogukj.com/vhjggfrk/)
+- [向太说张家齐妈妈谎话连篇](http://www.play.hengshemaoyi.cn/kongbu/3924344.htm)
+- [AI已经在写代码、搭场景、跑测试了——游戏从业者该恐慌还是该拥抱？](http://www.movie.hkepx.cn/movie/9473120.htm)
+- [曼联利马赛后爆炸性发言](http://www.play.hengshemaoyi.cn/kongbu/1478965.htm)
+- [多国外长集中表态支持乌克兰](http://www.daogukj.com/tfijfvel/)
+- [金秀贤方索赔升至300亿韩元](http://www.daogukj.com/dazlebgh/)
+- [王星被胁迫借下的网贷该不该还](http://www.play.hengshemaoyi.cn/kongbu/6412162.htm)
+- [年轻人为什么反感新科技](http://www.play.hengshemaoyi.cn/kongbu/1040618.htm)
+- [睁眼就是豪赌！炒股买房婚恋整容，韩国普通人的人生只能有一种答案？｜地球观察局EP03【视频播客】](http://www.movie.hkepx.cn/xiju/5518395.htm)
+- [79岁老干妈陶华碧用AI一年赚了54亿](http://www.play.hengshemaoyi.cn/kongbu/5070757.htm)
+- [厚卫衣配短裤 妈见打](http://www.movie.hkepx.cn/movie/5067570.htm)
 - [未来五年看病就医会有哪些新变化](http://www.movie.hkepx.cn/xiju/7472860.htm)
-- [“0糖”到底有没有糖](http://www.daogukj.com/wzbnsgim/)
-- [家有儿女早就教了我们正确的爱情观](http://www.movie.hkepx.cn/movie/6034324.htm)
-- [住手 你们不要再摇花手了](http://www.daogukj.com/skozyuih/)
-- [遗传定律：一种疾病，为什么能在家族中潜伏数代？](http://www.play.hengshemaoyi.cn/kongbu/7371955.htm)
-- [缅北四大家族3个已被中国宣判](http://www.play.hengshemaoyi.cn/kongbu/2749128.htm)
+- [郑钦文回应夺冠后摘父亲帽子](http://www.daogukj.com/wzbnsgim/)
+- [在冬夜，一块蛋糕，两个冻人](http://www.movie.hkepx.cn/movie/6034324.htm)
+- [人类能在月球上建起一座城市吗](http://www.daogukj.com/skozyuih/)
+- [江淮汽车股价一度大涨近 9%，这一轮上涨是否预示市场情绪迎来反转？涨势能持续多久？](http://www.play.hengshemaoyi.cn/kongbu/7371955.htm)
+- [专家：中国核力量能摧毁任何来犯之敌](http://www.play.hengshemaoyi.cn/kongbu/2749128.htm)
 - [老人凌晨下地干活被气枪击中身亡，持气枪打猎合法吗？案件还有哪些疑点待查？涉事人员将承担什么法律责任？](http://www.play.hengshemaoyi.cn/xiju/7990952.htm)
 
 </details>
 
 ## 原始来源
 
-- [刘国梁16岁女儿刘宇婕登顶高尔夫中国女子公开赛，成赛事创办以来首位业余冠军，哪些信息值得关注？](https://www.zhihu.com/question/2093019602653536666)
+- [田馥甄我不配唱给你听是我不配](https://s.weibo.com/weibo?q=%E7%94%B0%E9%A6%A5%E7%94%84%E6%88%91%E4%B8%8D%E9%85%8D%E5%94%B1%E7%BB%99%E4%BD%A0%E5%90%AC%E6%98%AF%E6%88%91%E4%B8%8D%E9%85%8D)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6c41c1f715067aba1c45 -->
+<!-- content-fingerprint: 1f09f50326c5af5610b1 -->
