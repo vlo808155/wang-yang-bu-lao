@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 52岁男子出轨杀妻谎称其心梗
+# 《啦嗒铛》1.0正式发售宣传片 | GSE
 
-> 来源：微博热搜 · 排名：第 15 位 · 热度：293170 · 分类：舆论监督 · 更新：2026-10-16T09:09:41+08:00
+> 来源：哔哩哔哩热门 · 排名：第 14 位 · 热度：1445064 · 分类：单机游戏 · 更新：2026-10-16T13:51:01+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“52岁男子出轨杀妻谎称其心梗”位列第 15 位，公开热度指标为 293170，榜单分类为“舆论监督”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“《啦嗒铛》1.0正式发售宣传片 | GSE”位列第 14 位，公开热度指标为 1445064，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：开发团队 Ratata Arts 与发行商 Game Source Entertainment 今日正式宣布，备受期待的节奏 Roguelike 动作游戏《啦嗒噹》于今日起正式上市！ 在本作中，玩家将率领魅力十足的角色“啦嗒噹”与可靠的伙伴“歌宝”，随着音乐节奏踏入未知的世界。游戏结合了节奏指挥与 Roguelike 动作的独特系统，玩家可以通过输入指令，享受不断迈向更远大冒险之旅的乐趣。 https://linktr.ee/ratatanstores
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `舆论监督`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `单机游戏`
 
 ## 相关热点
 
-- [特朗普11月赴菲律宾出席东盟峰会](rong-hui-guan-tong.md)
-- [孙可望内战李定国的时候，为什么那么多人背叛他，输的那么快？明明云南的钱粮都是他生产的？](ji-si-guang-yi.md)
-- [泽连斯基有牌打了](qu-chang-bu-duan.md)
-- [又一个千万人口大市要来了](jing-yi-qiu-jing.md)
+- [17岁Kimi核心少年陈广宇确认前往硅谷](rong-hui-guan-tong.md)
+- [肯德基将换百事可乐为可口可乐](ji-si-guang-yi.md)
+- [人民日报：严打“公考围岗”](qu-chang-bu-duan.md)
+- [如何看待网友说DeepSeek在爱里长大？](jing-yi-qiu-jing.md)
 
 ## 站内推荐
 
 - [【独家】时光代理人 第三季 PartOne 第11集 消失的出口【8月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [70岁老人身亡亲属曾商议让其喝农药](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [央企中建七局拖欠农民工工资](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [张月看李昀锐接孟子义下班的反应](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [徐艺洋24年6月的肚子](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [操 控 买 瓜 2.0](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [《最有耐心の杀手》](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [【Team Spirit】关于近期问题的郑重致歉](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [特斯拉新车真的能飞](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [深圳全市全天禁鸣喇叭5年](http://www.movie.hkepx.cn/xiju/5307975.htm)
-- [电影《生化危机：爆发夜》全球票房破3亿美元创系列纪录，中国内地首周4060万美元，如何看待这一成绩？](http://www.movie.hkepx.cn/movie/2609609.htm)
-- [如何评价潘天鸿（Tim）父亲圆通速递董事兼总裁潘水苗出任影视飓风董事长，影视飓风回应称并非新加入？](http://www.daogukj.com/0409437)
-- [短国顶流花跟长剧女主同框](http://www.movie.hkepx.cn/xiju/9563004.htm)
-- [殷玉珍站上联合国领奖台](http://www.daogukj.com/irdcrmjv/)
-- [探访东北虎豹国家公园](http://www.play.hengshemaoyi.cn/kongbu/8052623.htm)
-- [陈妤颉回中学参加校运会](http://www.play.hengshemaoyi.cn/xiju/2544606.htm)
-- [特朗普11月赴菲律宾出席东盟峰会](http://www.daogukj.com/yxaiauxe/)
-- [《最有耐心の杀手》](http://www.daogukj.com/hfysjbhb/)
-- [AI有没有可能在十年内完全替代教师这个行业?](http://www.play.hengshemaoyi.cn/xiju/9852517.htm)
-- [俄对华递交布恰事件报告？中方回应](http://www.movie.hkepx.cn/movie/6952786.htm)
-- [丹东市民谈到新鸭绿江大桥满是骄傲](http://www.play.hengshemaoyi.cn/kongbu/6044698.htm)
-- [日本有识之士：谨防日本重回战前状态](http://www.play.hengshemaoyi.cn/kongbu/2966437.htm)
-- [AI射雕英雄传看起来比人演得好](http://www.movie.hkepx.cn/xiju/5545431.htm)
-- [孙可望内战李定国的时候，为什么那么多人背叛他，输的那么快？明明云南的钱粮都是他生产的？](http://www.daogukj.com/7790597)
-- [医生回应女子健身后尿液变成深褐色](http://www.movie.hkepx.cn/xiju/8694011.htm)
-- [女主播揭露团播潜规则 被要求陪大哥](http://www.movie.hkepx.cn/movie/5422234.htm)
-- [中国外贸何以“加速跑”](http://www.daogukj.com/hygudrhy/)
-- [佛得角门将或再次失业](http://www.movie.hkepx.cn/xiju/6712464.htm)
-- [数字见证开放之路](http://www.movie.hkepx.cn/xiju/3635472.htm)
-- [李在明颠覆性推动“迁都”](http://www.daogukj.com/1094500)
-- [LPL所有俱乐部均申请B签](http://www.daogukj.com/kjnonujn/)
-- [福建工人撞脸陈小春，名字中恰好带陈小春失散弟弟原名中的禄字，当事人回应称仅是巧合，哪些信息值得关注？](http://www.movie.hkepx.cn/movie/2005213.htm)
-- [公路旁的山洞里出现了人民碎片](http://www.movie.hkepx.cn/xiju/4140224.htm)
-- [李昀锐孟子义中间只避嫌了一段时间](http://www.movie.hkepx.cn/xiju/2598641.htm)
-- [70岁老人身亡亲属曾商议让其喝农药](http://www.daogukj.com/idbcchjh/)
-- [大闸蟹和多种海鲜集体降价了](http://www.movie.hkepx.cn/xiju/2099126.htm)
-- [易烊千玺宣布了个众所周知的事情](http://www.daogukj.com/fqrljege/)
-- [深圳中小学推行春秋假，为什么很多家长反而不支持？春秋假的教育意义究竟是什么？](http://www.daogukj.com/gjlzfppj/)
-- [男子为演霸总偷拆别人千万精装房](http://www.movie.hkepx.cn/movie/2153704.htm)
-- [猜！谁吃到了黑暗料理？](http://www.daogukj.com/cxpctjvk/)
-- [网传超级工程隧洞“挖偏”？假的](http://www.movie.hkepx.cn/xiju/0125063.htm)
-- [⚡️鬼畜者联盟，集合！【宗主豪华版】⚡️](http://www.movie.hkepx.cn/movie/5966591.htm)
-- [180名中国华文教师不得不离开菲律宾](http://www.play.hengshemaoyi.cn/xiju/2133033.htm)
-- [无视风险 继续访问女coser的家](http://www.daogukj.com/tyanyuwx/)
-- [伊藤美诚首次落选日乒国家队](http://www.movie.hkepx.cn/xiju/0508741.htm)
-- [女主播揭露团播潜规则](http://www.play.hengshemaoyi.cn/kongbu/9417431.htm)
-- [“流浪大师”沈巍将退休 病休超30年](http://www.movie.hkepx.cn/movie/9354072.htm)
-- [如何看待申真谞获得烂柯杯世界围棋冠军，成为九冠王，彻底超越柯洁？](http://www.movie.hkepx.cn/xiju/0708358.htm)
+- [母子衣衫不整游荡当事女子回应](http://www.movie.hkepx.cn/xiju/5307975.htm)
+- [黄海南部连续47天禁入藏了什么深意](http://www.movie.hkepx.cn/movie/2609609.htm)
+- [25 岁韩国网红柳智媛跑半马突发离世，此前她一直有运动的习惯，问题出在哪里？长跑应怎么评估身体状况？](http://www.daogukj.com/0409437)
+- [特斯拉Roadster 2](http://www.movie.hkepx.cn/xiju/9563004.htm)
+- [Roadster 量产](http://www.daogukj.com/irdcrmjv/)
+- [70载广交会见证中国经济与创新活力](http://www.play.hengshemaoyi.cn/kongbu/8052623.htm)
+- [《剃刀 》每一个也许都要付钱：0.8⁵ = 33%](http://www.play.hengshemaoyi.cn/xiju/2544606.htm)
+- [17岁Kimi核心少年陈广宇确认前往硅谷](http://www.daogukj.com/yxaiauxe/)
+- [深圳中小学推行春秋假，为什么很多家长反而不支持？春秋假的教育意义究竟是什么？](http://www.daogukj.com/hfysjbhb/)
+- [百事回应美国肯德基改可口可乐](http://www.play.hengshemaoyi.cn/xiju/9852517.htm)
+- [周鸿祎谈老干妈用AI一年赚54亿](http://www.movie.hkepx.cn/movie/6952786.htm)
+- [飞行汽车距离普通人生活还有多远](http://www.play.hengshemaoyi.cn/kongbu/6044698.htm)
+- [以色列总统发言 28国中13国代表离席](http://www.play.hengshemaoyi.cn/kongbu/2966437.htm)
+- [为病妻做的游戏全世界都嗑到了](http://www.movie.hkepx.cn/xiju/5545431.htm)
+- [肯德基将换百事可乐为可口可乐](http://www.daogukj.com/7790597)
+- [比亚迪披露欧洲建厂计划，法国进入候选名单，为何是法国？若最终落地，会给本土车企带来怎样的竞争压力？](http://www.movie.hkepx.cn/xiju/8694011.htm)
+- [既然网球发球可以直接ace得分，那为什么不专门练发球？](http://www.movie.hkepx.cn/movie/5422234.htm)
+- [今年汽车出口有望突破1000万辆](http://www.daogukj.com/hygudrhy/)
+- [“县政府主要负责同志”可以有名字](http://www.movie.hkepx.cn/xiju/6712464.htm)
+- [9件文物里的长征记忆](http://www.movie.hkepx.cn/xiju/3635472.htm)
+- [酱油瓶穿裙子被网友抵制](http://www.daogukj.com/1094500)
+- [这8所学校“零近视”](http://www.daogukj.com/kjnonujn/)
+- [王力宏波司登17年非凡再续](http://www.movie.hkepx.cn/movie/2005213.htm)
+- [《影之刃零》「66 天」难度下，游戏开发团队中至今无人一命通关，如何评价该硬核机制设计？](http://www.movie.hkepx.cn/xiju/4140224.htm)
+- [烽火地带全新玩法【极星守望】10月16日开启！](http://www.movie.hkepx.cn/xiju/2598641.htm)
+- [操 控 买 瓜 2.0](http://www.daogukj.com/idbcchjh/)
+- [大冰劝妻子别纠结丈夫亏千万](http://www.movie.hkepx.cn/xiju/2099126.htm)
+- [魔君临世！在绝对的力量面前，所有的制衡与套路都白给！](http://www.daogukj.com/fqrljege/)
+- [李嘉诚近年来在做什么](http://www.daogukj.com/gjlzfppj/)
+- [曝「甲醛白菜」博主再曝桂花熏硫，广西通报情况属实正追溯流向，这种桂花危害有多大？还有哪些信息值得关注？](http://www.movie.hkepx.cn/movie/2153704.htm)
+- [为什么有些人会喜欢看红果短剧？](http://www.daogukj.com/cxpctjvk/)
+- [两医护赴泰旅游遭谋杀摘器官系谣言](http://www.movie.hkepx.cn/xiju/0125063.htm)
+- [「豆包对低认知人群有权威性」引热议，你怎么看这一说法？缺乏辨别力更容易盲目相信 AI，还是会更抵触？](http://www.movie.hkepx.cn/movie/5966591.htm)
+- [挑战拍出刃牙原作没有的剧情！！宫本武藏vs郭海皇！！](http://www.play.hengshemaoyi.cn/xiju/2133033.htm)
+- [香港名媛碎尸案庭审曝惊人场面](http://www.daogukj.com/tyanyuwx/)
+- [杭州一面包店回应拍照要买98元套餐](http://www.movie.hkepx.cn/xiju/0508741.htm)
+- [陈奕迅演唱会官宣](http://www.play.hengshemaoyi.cn/kongbu/9417431.htm)
+- [特斯拉第二代Roadster还是汽车吗？展示的这些技术放在火箭领域算什么水平？](http://www.movie.hkepx.cn/movie/9354072.htm)
+- [工厂里那些「看一眼就知道不对」的老师傅，到底凭的是什么？](http://www.movie.hkepx.cn/xiju/0708358.htm)
 - [社会终于来毒打我父母了！！！！](http://www.daogukj.com/ozjlrwei/)
-- [长实：李嘉诚暂不打算公开露面回应](http://www.play.hengshemaoyi.cn/xiju/7882271.htm)
-- [让百万人尖叫的鬼屋？我们发现了这里的秘密……](http://www.movie.hkepx.cn/xiju/7392987.htm)
-- [陈妤颉：“升级”路上对手永远是自己](http://www.movie.hkepx.cn/xiju/3057735.htm)
-- [最近密集收到各种AI逆向游戏、软件的新闻和资讯，感觉很多人都在担心这个事情，程序开发的未来会怎样？](http://www.daogukj.com/7724415)
-- [嫁金钗](http://www.movie.hkepx.cn/xiju/7394575.htm)
+- [AL最发愁的居然是不会吵架？拷打Tarzan&Shanks的职业秘辛【视频播客 | 元来如此EP.08】](http://www.play.hengshemaoyi.cn/xiju/7882271.htm)
+- [解放军在六处海域开展集训有何意义](http://www.movie.hkepx.cn/xiju/7392987.htm)
+- [云南发现霸王滇菌：半米高](http://www.movie.hkepx.cn/xiju/3057735.htm)
+- [王毅对以方说巴问题是本世纪最大不公](http://www.daogukj.com/7724415)
+- [深圳3小时超2万人申报停驶](http://www.movie.hkepx.cn/xiju/7394575.htm)
 - [【独家】时光代理人 第三季 PartOne 第11集 消失的出口【8月国创】](http://www.play.hengshemaoyi.cn/kongbu/1461320.htm)
-- [挑战拍出刃牙原作没有的剧情！！宫本武藏vs郭海皇！！](http://www.movie.hkepx.cn/movie/9245741.htm)
-- [中国第一颗原子弹爆炸成功62周年](http://www.movie.hkepx.cn/movie/4514053.htm)
-- [大和民族“从来都是吃草的”然而洋大人笑翻了](http://www.daogukj.com/8315110)
-- [工厂里那些「看一眼就知道不对」的老师傅，到底凭的是什么？](http://www.play.hengshemaoyi.cn/kongbu/1549451.htm)
+- [如何看待申真谞获得烂柯杯世界围棋冠军，成为九冠王，彻底超越柯洁？](http://www.movie.hkepx.cn/movie/9245741.htm)
+- [女主播揭露团播潜规则 被要求陪大哥](http://www.movie.hkepx.cn/movie/4514053.htm)
+- [乌称摧毁俄6架苏-34M战机意味什么](http://www.daogukj.com/8315110)
+- [维密请假事件当事人已离职](http://www.play.hengshemaoyi.cn/kongbu/1549451.htm)
 
 </details>
 
 ## 原始来源
 
-- [52岁男子出轨杀妻谎称其心梗](https://s.weibo.com/weibo?q=52%E5%B2%81%E7%94%B7%E5%AD%90%E5%87%BA%E8%BD%A8%E6%9D%80%E5%A6%BB%E8%B0%8E%E7%A7%B0%E5%85%B6%E5%BF%83%E6%A2%97)
+- [《啦嗒铛》1.0正式发售宣传片 | GSE](https://b23.tv/BV1gEps62E1e)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: a208bfa9d1a6c788572a -->
+<!-- content-fingerprint: d030a5ca6dceb4bbd122 -->
