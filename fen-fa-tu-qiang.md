@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【Team Spirit】关于近期问题的郑重致歉
+# 周迅凭《初次尝到寂寞》获釜山电影节最佳女演员，加封国际 A 类影后，当下在华语演员里，她处于什么地位？
 
-> 来源：哔哩哔哩热门 · 排名：第 16 位 · 热度：721419 · 分类：日常 · 更新：2026-10-16T13:51:01+08:00
+> 来源：知乎热榜 · 排名：第 17 位 · 热度：125 万热度 · 分类：问答 · 更新：2026-10-16T18:10:07+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【Team Spirit】关于近期问题的郑重致歉”位列第 16 位，公开热度指标为 721419，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“周迅凭《初次尝到寂寞》获釜山电影节最佳女演员，加封国际 A 类影后，当下在华语演员里，她处于什么地位？”位列第 17 位，公开热度指标为 125 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：周迅凭《初次尝到寂寞》 获第31届釜山国际电影节「最佳演员奖」！ 《初次尝到寂寞》是由顾游执导，杨浥堃、顾游编剧，单佐龙、杜科欣担任制片人，周迅、奚美娟、王圣迪领衔主演，周一围、穆祉丞、徐朝英主演的剧情电影。于2026年10月7日在韩国釜山国际电影节首映。 该片为顾游导演“山水电影”系列第三卷，故事围绕三代女性，讲述了她们生命当中所尝到的三种寂寞：爱情、生死、觉醒。而每一次寂寞，都是跨向幸福的第一步。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [衣衫不整男孩总穿开裆裤或不穿裤子](wang-yang-bu-lao.md)
-- [张钧甯已冻卵](xuan-liang-ci-gu.md)
-- [评论员：日本已具备进攻性](zao-bi-tou-guang.md)
-- [网友自带菜被餐厅多收 300 元，店家称贴有禁带告示对方不听，市监所称会组织调解，店家这么收费合理吗？](nang-ying-ying-xue.md)
+- [根本没有这种祀频](wang-yang-bu-lao.md)
+- [新人结婚当天婚房被烧了](xuan-liang-ci-gu.md)
+- [双11纸尿裤或将迎来井喷式消费](zao-bi-tou-guang.md)
+- [多个手机品牌集体宣布降价](nang-ying-ying-xue.md)
 
 ## 站内推荐
 
 - [我造了一块会飞的滑板...](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [宵禁｜鼓敲满一千下，长安城会发生什么（4K成片）](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [四川妈妈第一次来芬兰中秋庙会摆摊卖花式糖葫芦千人抢！各国老外疯抢中式糕点广式糖水！大排长龙简直停不下来！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [《啦嗒铛》1.0正式发售宣传片 | GSE](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [《剃刀 》每一个也许都要付钱：0.8⁵ = 33%](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [孙颖莎火炬手](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [南宁一烧鸡商贩戴手套抠脚？不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [如何看待网友说DeepSeek在爱里长大？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [你敢信苏联真的做过人猿杂交实验？走进地图上不存在的国家，探访那座被废弃的实验基地](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [母子衣衫不整游荡当事女子回应](http://www.movie.hkepx.cn/xiju/4248389.htm)
-- [烽火地带全新玩法【极星守望】10月16日开启！](http://www.daogukj.com/8479586)
-- [「豆包对低认知人群有权威性」引热议，你怎么看这一说法？缺乏辨别力更容易盲目相信 AI，还是会更抵触？](http://www.movie.hkepx.cn/xiju/6912788.htm)
-- [徐艺洋24年6月的肚子](http://www.movie.hkepx.cn/movie/7872338.htm)
-- [《异环》剧情过场丨「God Knows…（异环Cover ver.）」特别动画](http://www.play.hengshemaoyi.cn/xiju/9839884.htm)
-- [特斯拉Roadster意向金33.2万](http://www.play.hengshemaoyi.cn/xiju/1600527.htm)
-- [猜！谁吃到了黑暗料理？](http://www.movie.hkepx.cn/movie/5531579.htm)
-- [⚡️鬼畜者联盟，集合！【宗主豪华版】⚡️](http://www.daogukj.com/3390513)
+- [乡政府拖欠工程款5000万称无力偿还](http://www.movie.hkepx.cn/xiju/4248389.htm)
+- [泽连斯基为何不辞职也不举行大选](http://www.daogukj.com/8479586)
+- [批改作业是教师基本育人职责](http://www.movie.hkepx.cn/xiju/6912788.htm)
+- [“县政府主要负责同志”可以有名字](http://www.movie.hkepx.cn/movie/7872338.htm)
+- [AI消失前的最后一天……](http://www.play.hengshemaoyi.cn/xiju/9839884.htm)
+- [如何看待申真谞获得烂柯杯世界围棋冠军，成为九冠王，彻底超越柯洁？](http://www.play.hengshemaoyi.cn/xiju/1600527.htm)
+- [特斯拉新款 Roadster 正式亮相，能实现离地升空、空中翻滚，如何评价？你看好它的市场前景吗？](http://www.movie.hkepx.cn/movie/5531579.htm)
+- [180名中国华文教师不得不离开菲律宾](http://www.daogukj.com/3390513)
 - [我造了一块会飞的滑板...](http://www.daogukj.com/6886049)
-- [如何看待13岁女团成员出道仅数小时被曝父母恶意欠薪且被执行345 万，母亲道歉并承诺会尽快解决？](http://www.movie.hkepx.cn/xiju/1482774.htm)
-- [特斯拉第二代Roadster还是汽车吗？展示的这些技术放在火箭领域算什么水平？](http://www.daogukj.com/9420831)
-- [Roadster 量产](http://www.play.hengshemaoyi.cn/kongbu/5724095.htm)
-- [《最有耐心の杀手》](http://www.play.hengshemaoyi.cn/kongbu/1788236.htm)
-- [周鸿祎谈老干妈用AI一年赚54亿](http://www.daogukj.com/5545756)
-- [深圳3小时超2万人申报停驶](http://www.movie.hkepx.cn/movie/5270539.htm)
-- [乌称摧毁俄6架苏-34M战机意味什么](http://www.daogukj.com/3116329)
-- [小城良方定档](http://www.play.hengshemaoyi.cn/xiju/9707342.htm)
+- [25 岁韩国网红柳智媛跑半马突发离世，此前她一直有运动的习惯，问题出在哪里？长跑应怎么评估身体状况？](http://www.movie.hkepx.cn/xiju/1482774.htm)
+- [菲律宾换平台再闯黄岩岛意欲何为](http://www.daogukj.com/9420831)
+- [「豆包对低认知人群有权威性」引热议，你怎么看这一说法？缺乏辨别力更容易盲目相信 AI，还是会更抵触？](http://www.play.hengshemaoyi.cn/kongbu/5724095.htm)
+- [枪械为什么要造得这么容易拆卸，连个螺丝都不用？](http://www.play.hengshemaoyi.cn/kongbu/1788236.htm)
+- [【赛尔号】全新版本PV「天地中原」](http://www.daogukj.com/5545756)
+- [德国为何一改稳健务实与法联名上书](http://www.movie.hkepx.cn/movie/5270539.htm)
+- [洛阳辟谣挖出“传国玉玺”](http://www.daogukj.com/3116329)
+- [价值万元的哈根达斯融化 顺丰赔2千](http://www.play.hengshemaoyi.cn/xiju/9707342.htm)
 - [《绝区零》菲欧妮角色展示 | 不要死挑战](http://www.movie.hkepx.cn/xiju/0541259.htm)
-- [特斯拉新车真的能飞](http://www.movie.hkepx.cn/xiju/2275697.htm)
-- [四川妈妈第一次来芬兰中秋庙会摆摊卖花式糖葫芦千人抢！各国老外疯抢中式糕点广式糖水！大排长龙简直停不下来！](http://www.play.hengshemaoyi.cn/xiju/6577034.htm)
-- [《啦嗒铛》1.0正式发售宣传片 | GSE](http://www.movie.hkepx.cn/xiju/4577281.htm)
-- [为什么有些人会喜欢看红果短剧？](http://www.movie.hkepx.cn/xiju/2665258.htm)
-- [25 岁韩国网红柳智媛跑半马突发离世，此前她一直有运动的习惯，问题出在哪里？长跑应怎么评估身体状况？](http://www.daogukj.com/5555418)
-- [《影之刃零》「66 天」难度下，游戏开发团队中至今无人一命通关，如何评价该硬核机制设计？](http://www.play.hengshemaoyi.cn/xiju/3747188.htm)
-- [怎么看特斯拉真造了一辆“飞行汽车”](http://www.daogukj.com/6942144)
-- [解放军在六处海域开展集训有何意义](http://www.movie.hkepx.cn/movie/5277782.htm)
-- [180名中国华文教师不得不离开菲律宾](http://www.movie.hkepx.cn/movie/8593003.htm)
-- [“县政府主要负责同志”可以有名字](http://www.daogukj.com/8549389)
-- [以色列总统发言 28国中13国代表离席](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
-- [电影《生化危机：爆发夜》全球票房破3亿美元创系列纪录，中国内地首周4060万美元，如何看待这一成绩？](http://www.movie.hkepx.cn/movie/3709798.htm)
-- [比亚迪披露欧洲建厂计划，法国进入候选名单，为何是法国？若最终落地，会给本土车企带来怎样的竞争压力？](http://www.daogukj.com/bybxufrl/)
-- [机器人猥亵少女 主人被德国警方抓获](http://www.play.hengshemaoyi.cn/kongbu/3402530.htm)
-- [徐艺洋曾试图提前公关](http://www.play.hengshemaoyi.cn/kongbu/9522548.htm)
-- [中国肯德基门店回应“换可口可乐”](http://www.daogukj.com/8485976)
-- [操 控 买 瓜 2.0](http://www.movie.hkepx.cn/movie/7956729.htm)
-- [“流浪大师”沈巍将退休 病休超30年](http://www.daogukj.com/ipvwmaiv/)
-- [深圳全市全天禁鸣喇叭 5 年，年内乱鸣喇叭第 3 次起罚 500，如何解读这项政策？罚款力度合理吗？](http://www.play.hengshemaoyi.cn/kongbu/7538769.htm)
-- [网传超级工程隧洞“挖偏”？假的](http://www.movie.hkepx.cn/xiju/3982276.htm)
-- [特斯拉新款 Roadster 正式亮相，能实现离地升空、空中翻滚，如何评价？你看好它的市场前景吗？](http://www.movie.hkepx.cn/xiju/0351825.htm)
-- [王毅对以方说巴问题是本世纪最大不公](http://www.movie.hkepx.cn/movie/9051024.htm)
-- [9件文物里的长征记忆](http://www.movie.hkepx.cn/movie/1479042.htm)
-- [为病妻做的游戏全世界都嗑到了](http://www.movie.hkepx.cn/xiju/7703550.htm)
-- [美国肯德基将改用可口可乐](http://www.play.hengshemaoyi.cn/xiju/4193543.htm)
-- [黄海南部连续47天禁入藏了什么深意](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
-- [今年汽车出口有望突破1000万辆](http://www.daogukj.com/jzemyffu/)
-- [张钧甯已冻卵](http://www.movie.hkepx.cn/movie/7933914.htm)
-- [大冰劝妻子别纠结丈夫亏千万](http://www.play.hengshemaoyi.cn/xiju/3481756.htm)
-- [原来黄子韬从来没说过那段话](http://www.daogukj.com/0746616)
-- [评论员：日本已具备进攻性](http://www.play.hengshemaoyi.cn/kongbu/7714631.htm)
-- [工厂里那些「看一眼就知道不对」的老师傅，到底凭的是什么？](http://www.movie.hkepx.cn/movie/4117269.htm)
+- [《啦嗒铛》1.0正式发售宣传片 | GSE](http://www.movie.hkepx.cn/xiju/2275697.htm)
+- [南宁一烧鸡商贩戴手套抠脚？不实](http://www.play.hengshemaoyi.cn/xiju/6577034.htm)
+- [如何看待网友说DeepSeek在爱里长大？](http://www.movie.hkepx.cn/xiju/4577281.htm)
+- [飞起来的特斯拉是炫技还是未来](http://www.movie.hkepx.cn/xiju/2665258.htm)
+- [大厂员工吐槽新来的校招生特别mean，被回复不mean根本过不了面试，真的吗？面试到底在选什么样的人？](http://www.daogukj.com/5555418)
+- [10个省份下大雨 多地将降温8℃以上](http://www.play.hengshemaoyi.cn/xiju/3747188.htm)
+- [公司因单休招不到人改成双休](http://www.daogukj.com/6942144)
+- [男子偷自行车骑42公里回家被拘](http://www.movie.hkepx.cn/movie/5277782.htm)
+- [汕头12人死亡重大火灾事故调查报告](http://www.movie.hkepx.cn/movie/8593003.htm)
+- [9.9级地震是什么概念](http://www.daogukj.com/8549389)
+- [今天才知道，原来易拉罐的底部还有一个小机关，用起来太方便了](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
+- [上海阿姨迷路骑40公里到苏州](http://www.movie.hkepx.cn/movie/3709798.htm)
+- [女子用1314等金额转走前任近20万](http://www.daogukj.com/bybxufrl/)
+- [Roadster对特斯拉还有多大意义](http://www.play.hengshemaoyi.cn/kongbu/3402530.htm)
+- [思路打开，面包丝信手拈来！今天吃千丝万缕虾和红米肠，一顿漂亮饭给娃小嘴吃的倍儿甜！](http://www.play.hengshemaoyi.cn/kongbu/9522548.htm)
+- [如何看待首批百余名 AI 学者发起学生「慢科研」联合倡议，并承诺不以论文数量选拔学生？](http://www.daogukj.com/8485976)
+- [存款利率普遍上调了](http://www.movie.hkepx.cn/movie/7956729.htm)
+- [对一线教师公开处刑本质是懒政](http://www.daogukj.com/ipvwmaiv/)
+- [乡政府拖欠工程款5000多万称无力偿还](http://www.play.hengshemaoyi.cn/kongbu/7538769.htm)
+- [汕头致12死火灾系使用蚊香不慎引发](http://www.movie.hkepx.cn/xiju/3982276.htm)
+- [如何看待13岁女团成员出道仅数小时被曝父母恶意欠薪且被执行345 万，母亲道歉并承诺会尽快解决？](http://www.movie.hkepx.cn/xiju/0351825.htm)
+- [社会终于来毒打我父母了！！！！](http://www.movie.hkepx.cn/movie/9051024.htm)
+- [全国粮食标准仓仓容达7.3亿吨](http://www.movie.hkepx.cn/movie/1479042.htm)
+- [外交部：中方从不刻意追求贸易顺差](http://www.movie.hkepx.cn/xiju/7703550.htm)
+- [中方：中国核力量与美俄不在一个量级](http://www.play.hengshemaoyi.cn/xiju/4193543.htm)
+- [操 控 买 瓜 2.0](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
+- [链接全球 广交会上见“网友”](http://www.daogukj.com/jzemyffu/)
+- [新人结婚当天婚房被烧了](http://www.movie.hkepx.cn/movie/7933914.htm)
+- [四川雷波县学生分低教师拍照事件最新调查结果公布，县长被调离，如何看待该处罚结果？还有哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/3481756.htm)
+- [宵禁｜鼓敲满一千下，长安城会发生什么（4K成片）](http://www.daogukj.com/0746616)
+- [双11纸尿裤或将迎来井喷式消费](http://www.play.hengshemaoyi.cn/kongbu/7714631.htm)
+- [冯远征苦恼招不到一米六几的女演员](http://www.movie.hkepx.cn/movie/4117269.htm)
 
 </details>
 
 ## 原始来源
 
-- [【Team Spirit】关于近期问题的郑重致歉](https://b23.tv/BV1byJU6KEGL)
+- [周迅凭《初次尝到寂寞》获釜山电影节最佳女演员，加封国际 A 类影后，当下在华语演员里，她处于什么地位？](https://www.zhihu.com/question/2094142905837250428)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 94a30dcaa16e6ceea565 -->
+<!-- content-fingerprint: c0c624a3c3d3725cf44c -->
