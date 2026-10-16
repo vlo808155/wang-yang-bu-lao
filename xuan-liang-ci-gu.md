@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 小沈阳凌晨三点多给曾辉做夜宵
+# 如何评价DeepSeek停摆5小时后，按最近七日api消耗向用户发放补偿赠金？
 
-> 来源：今日头条热榜 · 排名：第 13 位 · 热度：6985750 · 更新：2026-10-16T07:00:09+08:00
+> 来源：知乎热榜 · 排名：第 13 位 · 热度：92 万热度 · 分类：问答 · 更新：2026-10-16T09:09:41+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“小沈阳凌晨三点多给曾辉做夜宵”位列第 13 位，公开热度指标为 6985750。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价DeepSeek停摆5小时后，按最近七日api消耗向用户发放补偿赠金？”位列第 13 位，公开热度指标为 92 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：【服务恢复及补偿通知】 尊敬的用户： 北京时间 2026 年 10 月 15 日 8:11 至 13:04 期间，我们的服务系统出现故障，导致该时段内 API 服务无法正常使用。对于此次故障给您带来的不便与困扰，我们深表歉意。我们已第一时间启动针对服务稳定性的全面排查和彻底整改，全面梳理并剥离单点依赖，坚决杜绝同类问题再次发生。 作为补偿，我们将按您账号 7 日内（10.8-10.14）的消耗金额以赠金形式全额返还，赠金自动到账，API 计费扣款先从赠金账户扣除。此次故障对您造成了影响，我们再次致歉，感谢您一直以来的信任与支持。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [双 11 促销规则越来越简单，为啥电商平台开始放弃复杂的满减玩法？电商大促正在发生哪些变化？](zao-bi-tou-guang.md)
-- [《啦嗒铛》1.0正式发售宣传片 | GSE](nang-ying-ying-xue.md)
-- [今年流感疫苗为什么“只剩三价”了](cheng-men-li-xue.md)
-- [曝明星私生子高额抚养费判决书](shou-bu-shi-juan.md)
+- [四川妈妈第一次来芬兰中秋庙会摆摊卖花式糖葫芦千人抢！各国老外疯抢中式糕点广式糖水！大排长龙简直停不下来！](zao-bi-tou-guang.md)
+- [酷似头发的野菜是国家一级保护植物](nang-ying-ying-xue.md)
+- [易烊千玺宣布了个众所周知的事情](cheng-men-li-xue.md)
+- [陈妤颉：“升级”路上对手永远是自己](shou-bu-shi-juan.md)
 
 ## 站内推荐
 
-- [起初他们参加红军只为找条活路](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [美股](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [网传超级工程隧洞“挖偏”？假的](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [DeepSeek公布补偿方案](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [本轮油价调整为何搁浅](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [探访东北虎豹国家公园](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [殷玉珍站上联合国领奖台](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [LOL 官方宣布经典模式将于 2027 年 1 月下架，怀旧模式为何难以留住玩家？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [孙可望内战李定国的时候，为什么那么多人背叛他，输的那么快？明明云南的钱粮都是他生产的？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [孩子要花100多给同学买生日礼物，大人该不该管？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [福建工人撞脸陈小春，名字中恰好带陈小春失散弟弟原名中的禄字，当事人回应称仅是巧合，哪些信息值得关注？](http://www.movie.hkepx.cn/xiju/1653219.htm)
-- [地铁也抢健身房生意了](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
-- [社会终于来毒打我父母了！！！！](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
+- [无视风险 继续访问女coser的家](http://www.movie.hkepx.cn/xiju/1653219.htm)
+- [深圳全市全天禁鸣喇叭 有效期5年](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
+- [长实：李嘉诚暂不打算公开露面回应](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
 - [中国外贸何以“加速跑”](http://www.daogukj.com/ceegkpfb/)
-- [泽连斯基有牌打了](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
-- [徐艺洋24年6月的肚子](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
-- [长实：李嘉诚暂不打算公开露面回应](http://www.movie.hkepx.cn/xiju/2935808.htm)
-- [捉奸后收费改判无罪当事人申请国赔](http://www.movie.hkepx.cn/movie/6067835.htm)
-- [《明日方舟：终末地》祀EP - 花祀时 & 何处山海万象生](http://www.movie.hkepx.cn/movie/1919789.htm)
-- [美股](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
-- [双 11 促销规则越来越简单，为啥电商平台开始放弃复杂的满减玩法？电商大促正在发生哪些变化？](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
-- [台积电看不上的生意跑出了千亿巨头](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
-- [大和民族“从来都是吃草的”然而洋大人笑翻了](http://www.movie.hkepx.cn/xiju/8738765.htm)
-- [网传超级工程隧洞“挖偏”？假的](http://www.play.hengshemaoyi.cn/xiju/4131259.htm)
-- [13岁男孩身高195cm 全网求长高食谱](http://www.daogukj.com/5961107)
-- [热烈欢迎袁咏仪！超级爱买的靓靓姐最近又乱买了什么呢？（恭喜靓靓终于演上警察了👏](http://www.daogukj.com/4005019)
-- [宝马宣布2030年在华国产车型将超95%](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
-- [《剃刀 》每一个也许都要付钱：0.8⁵ = 33%](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
+- [《最有耐心の杀手》](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
+- [日本有识之士：谨防日本重回战前状态](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
+- [徐艺洋24年6月的肚子](http://www.movie.hkepx.cn/xiju/2935808.htm)
+- [曝佛得角门将科洛科洛生涯或提前结束](http://www.movie.hkepx.cn/movie/6067835.htm)
+- [网传超级工程隧洞“挖偏”系谣言](http://www.movie.hkepx.cn/movie/1919789.htm)
+- [殷玉珍站上联合国领奖台](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
+- [四川妈妈第一次来芬兰中秋庙会摆摊卖花式糖葫芦千人抢！各国老外疯抢中式糕点广式糖水！大排长龙简直停不下来！](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
+- [180名中国华文教师不得不离开菲律宾](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
+- [卢浮宫可能被迫关闭](http://www.movie.hkepx.cn/xiju/8738765.htm)
+- [LOL 官方宣布经典模式将于 2027 年 1 月下架，怀旧模式为何难以留住玩家？](http://www.play.hengshemaoyi.cn/xiju/4131259.htm)
+- [李在明颠覆性推动“迁都”](http://www.daogukj.com/5961107)
+- [女主播揭露团播潜规则 被要求陪大哥](http://www.daogukj.com/4005019)
+- [酒店因肖战演唱会从 179 元涨到 2193元，市监部门称「明码标价都是正常的」，你怎么看？这合理吗？](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
+- [医生回应女子健身后尿液变成深褐色](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
 - [如何看待胖东来梦之城项目按照标准施工，被夸完全教科书级？](http://www.movie.hkepx.cn/xiju/3802162.htm)
-- [70岁老人身亡亲属曾商议让其喝农药](http://www.daogukj.com/4160322)
-- [DeepSeek公布补偿方案](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
-- [日本号称最便宜炸鸡，进店价格翻倍！究竟因为啥？](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
-- [也门总统府遭袭](http://www.movie.hkepx.cn/movie/5796961.htm)
-- [张雪回应被夸是“小钢炮”](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
-- [大龄读研见老师两面就退学](http://www.daogukj.com/6018961)
-- [黄子韬夫妇否认怀孕被指消耗信任](http://www.daogukj.com/efehcbta/)
-- [蒙古国草原火灾未越过边境线，3400 余人在边境一线巡护，具体情况如何？可能带来怎样的影响？](http://www.daogukj.com/7846527)
-- [本轮油价调整为何搁浅](http://www.movie.hkepx.cn/movie/2779517.htm)
-- [婆婆照料植物人儿媳17年唤醒对方](http://www.daogukj.com/5137842)
-- [新郎新娘送完宾客后对视泪崩刷屏全网](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
-- [也是当上外卖大法官了【第二集】](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
-- [网传超级工程隧洞“挖偏”系谣言](http://www.daogukj.com/2275454)
-- [曝明星私生子高额抚养费判决书](http://www.movie.hkepx.cn/movie/8955518.htm)
-- [起初他们参加红军只为找条活路](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
-- [男子为演霸总偷拆别人千万精装房](http://www.daogukj.com/3040545)
-- [日本人是如何看待中国料理的？](http://www.movie.hkepx.cn/movie/0072136.htm)
-- [AI射雕英雄传看起来比人演的好](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
-- [《啦嗒铛》1.0正式发售宣传片 | GSE](http://www.movie.hkepx.cn/xiju/2548466.htm)
-- [LOL 官方宣布经典模式将于 2027 年 1 月下架，怀旧模式为何难以留住玩家？](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
-- [一觉醒来deepseek和豆包睡在我身边（一）【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
-- [王凤朝被提起公诉](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
-- [为何年轻人不爱去菜市场](http://www.movie.hkepx.cn/movie/0563740.htm)
+- [伊藤美诚首次落选日乒国家队](http://www.daogukj.com/4160322)
+- [孙可望内战李定国的时候，为什么那么多人背叛他，输的那么快？明明云南的钱粮都是他生产的？](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
+- [男子为演霸总偷拆别人千万精装房](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
+- [52岁男子出轨杀妻谎称其心梗](http://www.movie.hkepx.cn/movie/5796961.htm)
+- [黄子韬 徐艺洋](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
+- [深圳全市全天禁鸣喇叭5年](http://www.daogukj.com/6018961)
+- [网传超级工程隧洞“挖偏”？假的](http://www.daogukj.com/efehcbta/)
+- [【IGN】《GTA 6》发售预告](http://www.daogukj.com/7846527)
+- [孩子要花100多给同学买生日礼物，大人该不该管？](http://www.movie.hkepx.cn/movie/2779517.htm)
+- [美科技股惊天大逆转](http://www.daogukj.com/5137842)
+- [佛得角门将或再次失业](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
+- [网红晚安安回忆坠楼：当天记忆空白](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
+- [黄子韬夫妇否认怀孕被指消耗信任](http://www.daogukj.com/2275454)
+- [陈妤颉：“升级”路上对手永远是自己](http://www.movie.hkepx.cn/movie/8955518.htm)
+- [探访东北虎豹国家公园](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
+- [包含35名中国人涉诈团伙在大马被捕](http://www.daogukj.com/3040545)
+- [泽连斯基有牌打了](http://www.movie.hkepx.cn/movie/0072136.htm)
+- [多部门介入母子衣衫不整街头游荡](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
+- [酷似头发的野菜是国家一级保护植物](http://www.movie.hkepx.cn/xiju/2548466.htm)
+- [25 岁韩国网红柳智媛跑半马突发离世，此前她一直有运动的习惯，问题出在哪里？长跑应怎么评估身体状况？](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
+- [为啥沙发一躺就犯困在床上反而睡不着](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
+- [央企中建七局拖欠农民工工资](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
+- [短国顶流花跟长剧女主同框](http://www.movie.hkepx.cn/movie/0563740.htm)
 - [【独家】时光代理人 第三季 PartOne 第11集 消失的出口【8月国创】](http://www.play.hengshemaoyi.cn/xiju/5085308.htm)
-- [《全面战争：幕府将军 2 完全版》在 Steam 差评如潮，翻车的主要原因是什么？](http://www.movie.hkepx.cn/xiju/6484379.htm)
-- [新疆五胞胎见到爷爷奶奶和外婆](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
-- [“流浪大师”沈巍将退休 病休超30年](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
-- [杨和苏公开女友](http://www.movie.hkepx.cn/movie/4954417.htm)
-- [评论员：李嘉诚的时代远了](http://www.daogukj.com/8556378)
-- [10 月 15 日全球股市大跌，为什么会这样？相互之间有哪些关联吗？](http://www.daogukj.com/0551116)
-- [袁咏仪第一次见巩俐被美呆了](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
+- [学车2](http://www.movie.hkepx.cn/xiju/6484379.htm)
+- [「豆包对低认知人群有权威性」引热议，你怎么看这一说法？缺乏辨别力更容易盲目相信 AI，还是会更抵触？](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
+- [尚公主 剧宣](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
+- [AI射雕英雄传看起来比人演得好](http://www.movie.hkepx.cn/movie/4954417.htm)
+- [丹东市民谈到新鸭绿江大桥满是骄傲](http://www.daogukj.com/8556378)
+- [最近密集收到各种AI逆向游戏、软件的新闻和资讯，感觉很多人都在担心这个事情，程序开发的未来会怎样？](http://www.daogukj.com/0551116)
+- [如果乌姆里奇派出的摄魂怪成功给了哈利和达力一个吻，她该如何收场，邓布利多将会如何反应？](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
 
 </details>
 
 ## 原始来源
 
-- [小沈阳凌晨三点多给曾辉做夜宵](https://www.toutiao.com/trending/7696410063917236266/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%228%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227696410063917236266%22%2C%22hot_board_impr_id%22%3A%22202610160700088448A89373AD07A8012C%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [如何评价DeepSeek停摆5小时后，按最近七日api消耗向用户发放补偿赠金？](https://www.zhihu.com/question/2094116217489450760)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 9c3d3733a537e2506d6f -->
+<!-- content-fingerprint: 81155745b4c537e2ca55 -->
