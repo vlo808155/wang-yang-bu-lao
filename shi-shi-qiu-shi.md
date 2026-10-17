@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 一小男孩被曝衣衫不整跟随母亲游荡，官方称孩子母亲多次拒绝救助，具体是什么情况？
+# 演员全是俊男美女让冯远征犯了愁
 
-> 来源：知乎热榜 · 排名：第 16 位 · 热度：160 万热度 · 分类：问答 · 更新：2026-10-17T18:42:50+08:00
+> 来源：百度热搜 · 排名：第 15 位 · 热度：6373766 · 更新：2026-10-17T21:56:36+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“一小男孩被曝衣衫不整跟随母亲游荡，官方称孩子母亲多次拒绝救助，具体是什么情况？”位列第 16 位，公开热度指标为 160 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“演员全是俊男美女让冯远征犯了愁”位列第 15 位，公开热度指标为 6373766。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月14日，有网友在社交平台发视频称，在陕西省西咸新区（西安市代管）三桥街道办附近，看到一名行为怪异的女子身后，跟着一名三四岁的小男孩。这名小男孩只穿着单薄的外套，衣不蔽体，上半身衣服扣子也没扣好，脚上穿着明显大一号的鞋子。男孩脸上有污渍，衣服也很久没洗的样子。 ▲网友拍摄到这对母子在超市购物的画面 10月15日上午，红星新闻记者前往网友指出的事发地附近走访，三桥街道办工作人员已抵达这对母子的居住地，对方表示，网传消息曝出的当晚，三桥街道办、西安市救助部门已经连夜寻找这对母子。女子原属于长安区王寺街道某村，拆迁之后住在三桥街道周围，街道办此前多次救助、
+来源公开摘要显示：近日，北京人艺院长冯远征受访时称，苦恼招不到一米六几的女演员和一米七几的男演员，直指艺考选拔存在“颜值内卷”倾向。该现象源于“颜值即正义”与“流量为王道”的市场逻辑偏差，导致演员形象模板化，角色贴合度被削弱。媒体呼吁演艺行业调整“指挥棒”，以多元标准选拔人才，荧屏缺的是“像角色”的真人而非模板化的“假人”。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [德小蓝灰鲸鲨战车！这自带音响的小车谁不爱呢？可把玩可合体可扔出！4套检视也是没谁了吧？](chi-zhi-yi-heng.md)
-- [成吉思汗第32代嫡孙女斯琴杭茹离世](jian-ren-bu-ba.md)
-- [贾乃亮否认有儿子](zi-qiang-bu-xi.md)
-- [山东费县网红“沂蒙三老板”离世](fen-fa-tu-qiang.md)
+- [黄子韬直接包场免费请你们吃肥姨妈](chi-zhi-yi-heng.md)
+- [评论员：中方南海维权或迎重要转变](jian-ren-bu-ba.md)
+- [做了鸡翅，孩子想多吃一个发现没有了，看到表弟碗里堆积几个，二宝看了一眼之后默默吃饭，你会怎么处理？](zi-qiang-bu-xi.md)
+- [洗衣机如何演奏《雨爱》？](fen-fa-tu-qiang.md)
 
 ## 站内推荐
 
-- [客服回应大量iPhone漂浮海面](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [上海徐浦大桥车祸视频曝光](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [胡先煦搓澡让人认出来了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [人类大脑有 bug 吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [《红楼梦》贾元春省亲为何晚上来、凌晨归？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [防癌神药出厂价不到1块钱](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [会飞的特斯拉 敲打了中国车企](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [唐九洲杜丽娘扮相绝了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [女子选“聪明又老实”的结婚后后悔](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [鹿晗gapday音乐节](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [夫妻买2块劳力士不选不试戴 店员报警](http://www.movie.hkepx.cn/xiju/7278435.htm)
-- [为什么感觉一代教父对任何事情云淡风轻，总可以拿捏很好，但二代教父感觉过的很艰难？](http://www.daogukj.com/eaozjceu/)
-- [事业编和公务员区别](http://www.daogukj.com/xtfvegvn/)
-- [夫妻花67.3万买劳力士店员报警](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
-- [欠薪345万却砸钱送孩子韩国出道](http://www.daogukj.com/fkuewdzb/)
-- [“耻辱”合影事件后雷波县人事调整](http://www.movie.hkepx.cn/xiju/4307844.htm)
-- [曝离婚多年做直播的男明星有儿子](http://www.daogukj.com/8791893)
-- [徐浦大桥白车司机是否全责](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
-- [华中科技大学女篮与武汉盛帆女篮爆发大规模冲突，华科主帅追打对方球员，具体情况如何？将面临什么处罚？](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
-- [成吉思汗第32代嫡孙女斯琴杭茹离世](http://www.daogukj.com/2165140)
-- [啊？61.0](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
-- [女生小肚子微微凸起才正常](http://www.movie.hkepx.cn/xiju/1440611.htm)
-- [客服回应大量iPhone漂浮海面](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
-- [长白山天池“水怪”真容揭秘](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
-- [广交会70年热卖单品大盘点](http://www.daogukj.com/9837121)
-- [张杰演唱会被三个女儿打断演唱节奏](http://www.movie.hkepx.cn/movie/5334415.htm)
-- [家长怒斥让小孩扫厕所老师怎么不干](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
-- [直击西安阿达西烤馕现场](http://www.movie.hkepx.cn/movie/2391374.htm)
-- [人类大脑有 bug 吗？](http://www.movie.hkepx.cn/movie/4276791.htm)
-- [张雪机车收官之战继续冲七冠](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
-- [上海徐浦大桥车祸视频曝光](http://www.daogukj.com/6612016)
-- [如何看待宾川老人误喝白桃香氛洁厕慕斯事件？日化产品外形模仿食品饮料包装是否合适？](http://www.movie.hkepx.cn/movie/4045624.htm)
-- [《遗忘之海》“歌丝莉”剧作者角色PV ——采风记](http://www.daogukj.com/9217972)
-- [如何看待《流浪地球3》首次票房预测为48亿？](http://www.daogukj.com/eecjrkxr/)
-- [货轮沉没大量iPhone漂浮海面](http://www.movie.hkepx.cn/xiju/0864553.htm)
-- [在MC箱子中玩泰拉瑞亚，并互通物品](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
-- [国家出手 养老账单要变了](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
-- [社保新规11月1日起施行，明确自愿放弃社保无效，怎样解读？企业未足额缴纳社保，员工权益会受到哪些损害？](http://www.daogukj.com/chnejvmg/)
-- ["这蛋挞吃了好烧心！"](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
-- [博主三老板离世 曾花光钱给妻子治病](http://www.daogukj.com/dmyshqkp/)
-- [高市为何把参加APEC峰会门槛推给国会](http://www.daogukj.com/hxjdxwxy/)
-- [教师真的是社会阅历最少的人吗？](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
-- [教师不愿当班主任困局怎么破](http://www.movie.hkepx.cn/movie/5093289.htm)
-- [新疆喀什要投资5000万新建景区？假](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
-- [中国留学生披旭日旗被同胞怒斥](http://www.movie.hkepx.cn/movie/7746903.htm)
-- [怎么评价高三学生陈妤颉在近期访谈中提到的“最好不出省不出市”的高考目标？](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
-- [刘丁硕说别提现役运动员](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
-- [《红楼梦》贾元春省亲为何晚上来、凌晨归？](http://www.daogukj.com/2551047)
-- [女子生下龙凤胎起诉已婚董事长望其承担养育责任，男方质疑其通过人工试管受孕，有哪些疑点待厘清？](http://www.daogukj.com/7700423)
-- [徐艺洋怀孕下楼梯那英扶了她一把](http://www.daogukj.com/0062100)
-- [舅舅立遗嘱换我养老该怎么办？](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
-- [黄子韬直接包场免费请你们吃肥姨妈](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
-- [男子为女友母亲养老送终获500万遗产](http://www.daogukj.com/qzcflnda/)
-- [历经一个月！我们做到了！！](http://www.movie.hkepx.cn/movie/1098440.htm)
-- [山东费县网红“沂蒙三老板”离世](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
-- [解放军南北6处演训有何深意](http://www.daogukj.com/2428628)
-- [糖葫芦进入瑜伽裤时代](http://www.daogukj.com/uftxwefl/)
-- [多少岁才算老人家](http://www.movie.hkepx.cn/movie/6056833.htm)
-- [为什么现在很多人宁可把钱放在银行账户上，也不愿意拿出来消费?再多的钱不拿出来消费，只是一个数字？](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
-- [学生插队被制止家长举报老师体罚](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
+- [导演谈孙颖莎站错位急坏了](http://www.movie.hkepx.cn/xiju/7278435.htm)
+- [普京颁布法令接管四家外企在俄资产](http://www.daogukj.com/eaozjceu/)
+- [教师真的是社会阅历最少的人吗？](http://www.daogukj.com/xtfvegvn/)
+- [在梅边 夯爆了](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
+- [大学生7个月开20家店月流水破百万](http://www.daogukj.com/fkuewdzb/)
+- [央视三国演义，为什么会安排一个徐晃被颜良斩杀的桥段，不觉得诡异吗？](http://www.movie.hkepx.cn/xiju/4307844.htm)
+- [为什么毛不易要比汪苏泷顺利很多？](http://www.daogukj.com/8791893)
+- [京东员工质疑今日头条将抹黑京东电商的稿件人为扶上热榜高位，抖音起诉，京东称支持员工反诉，到底咋回事？](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
+- [郑合惠子任宥纶挽手遛狗路透](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
+- [评论员：中方南海维权或迎重要转变](http://www.daogukj.com/2165140)
+- [20周年版iPhone命名](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
+- [当代福尔摩斯让我找到了](http://www.movie.hkepx.cn/xiju/1440611.htm)
+- [防癌神药出厂价不到1块钱](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
+- [网传世界杯一战封神的佛得角40岁门将沃齐尼亚被俱乐部弃用，疑似要提前退役，原因是什么？](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
+- [电影院玩法持续“上新”](http://www.daogukj.com/9837121)
+- [怎么评价高三学生陈妤颉在近期访谈中提到的“最好不出省不出市”的高考目标？](http://www.movie.hkepx.cn/movie/5334415.htm)
+- [这些素菜是“升糖陷阱”](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
+- [四色 RGB-Mini LED 有用吗？海信 UX2026 全球首拆实测！](http://www.movie.hkepx.cn/movie/2391374.htm)
+- [女子选“聪明又老实”的结婚后后悔](http://www.movie.hkepx.cn/movie/4276791.htm)
+- [双休不一定休周六周日](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
+- [会飞的特斯拉 敲打了中国车企](http://www.daogukj.com/6612016)
+- [陈哲远演戏难到哭懵蒋欣](http://www.movie.hkepx.cn/movie/4045624.htm)
+- [沈腾说王楚然录一期顶他三期](http://www.daogukj.com/9217972)
+- [它们共同的名字叫“长征”](http://www.daogukj.com/eecjrkxr/)
+- [爸爸AB型妈妈A型女儿O型](http://www.movie.hkepx.cn/xiju/0864553.htm)
+- [科学家吴军辞去美终身教职回国加盟西湖大学，这一选择背后有哪些考量？](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
+- [多地试点直升高中](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
+- [新疆喀什要投资5000万新建景区？假](http://www.daogukj.com/chnejvmg/)
+- [日本宣称侵华战争是圣战](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
+- [《回合之间》｜致每一位登上闪耀大赛的你！](http://www.daogukj.com/dmyshqkp/)
+- [【纪录片】中国救护2 05 家和万事兴](http://www.daogukj.com/hxjdxwxy/)
+- [张雪机车收官战首回合获第10名](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
+- [小伙睡太沉家人叫不醒哭着欲办后事](http://www.movie.hkepx.cn/movie/5093289.htm)
+- [徐艺洋怀孕下楼梯那英扶了她一把](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
+- [如何看待深圳APEC会议期间，倡议居家办公，带薪休假，停用、少用私家车，地铁公交票价5折？](http://www.movie.hkepx.cn/movie/7746903.htm)
+- [夫妻买2块劳力士不选不试戴 店员报警](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
+- [安徽40岁喜婆婆因颜值爆火](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
+- [鹿晗gapday音乐节](http://www.daogukj.com/2551047)
+- [陈奕迅将开26场演唱会：禁止带手机](http://www.daogukj.com/7700423)
+- [“村干部”助农直播带货？小心骗局](http://www.daogukj.com/0062100)
+- [“重阳”的由来](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
+- [一口气看完故宫角楼建造全过程](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
+- [多少岁才算老人家](http://www.daogukj.com/qzcflnda/)
+- [普京：炼油厂遭袭导致俄GDP下降1%](http://www.movie.hkepx.cn/movie/1098440.htm)
+- [洗衣机如何演奏《雨爱》？](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
+- [大马丁受伤](http://www.daogukj.com/2428628)
+- [教师不愿当班主任困局怎么破](http://www.daogukj.com/uftxwefl/)
+- [我是人类](http://www.movie.hkepx.cn/movie/6056833.htm)
+- [事业编和公务员区别](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
+- [中方回应高市早苗向靖国神社供奉祭品](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
 
 </details>
 
 ## 原始来源
 
-- [一小男孩被曝衣衫不整跟随母亲游荡，官方称孩子母亲多次拒绝救助，具体是什么情况？](https://www.zhihu.com/question/2094122392523990193)
+- [演员全是俊男美女让冯远征犯了愁](https://www.baidu.com/s?wd=%E6%BC%94%E5%91%98%E5%85%A8%E6%98%AF%E4%BF%8A%E7%94%B7%E7%BE%8E%E5%A5%B3%E8%AE%A9%E5%86%AF%E8%BF%9C%E5%BE%81%E7%8A%AF%E4%BA%86%E6%84%81&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 407a1038a8f5e74ebba5 -->
+<!-- content-fingerprint: 52576a826229a1e4cece -->
