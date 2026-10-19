@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 李秀满新女团 A2O 被曝最小成员仅 13 岁引发争议，如何看待 K-pop 偶像低龄化趋势？
+# 如何评价DeepSeek 开放自研搜索API，单价为每1000次成功请求5元？
 
-> 来源：知乎热榜 · 排名：第 16 位 · 热度：96 万热度 · 分类：问答 · 更新：2026-10-19T09:25:05+08:00
+> 来源：知乎热榜 · 排名：第 16 位 · 热度：116 万热度 · 分类：问答 · 更新：2026-10-19T14:25:30+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“李秀满新女团 A2O 被曝最小成员仅 13 岁引发争议，如何看待 K-pop 偶像低龄化趋势？”位列第 16 位，公开热度指标为 96 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价DeepSeek 开放自研搜索API，单价为每1000次成功请求5元？”位列第 16 位，公开热度指标为 116 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：谁懂第一反应是年轻真好…A2O lite的受众是我们这群kpop淡圈老人 #A2O新团出道秀
+来源公开摘要显示：官方发布原文： “长期以来，DeepSeek 网页端与 API 端的搜索能力均由自研 DeepSeek 搜索引擎提供底层支持，稳定处理每天来自全球各地的数亿次搜索请求。 DeepSeek 搜索是 AI 原生的通用搜索引擎，索引了全球千亿级网页，支持多语言搜索，实时返回高相关、高权威、高时效的优质结果。针对 SEO 作弊、GEO 操纵和低质 AIGC，我们通过严格的识别机制对其进行过滤，确保向用户与 LLM 呈现权威可信的信息。 本次新版本发布 DeepSeek API 新增对 Search 与 Fetch 接口的支持，相关能力正式向公众开放。两个接口价格
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [枪手携2500发弹药血洗商场！警员孤身迎战，80米外击毙！](zi-qiang-bu-xi.md)
-- [“最牛文科生”赌中AI](fen-fa-tu-qiang.md)
-- [盛艾敬哭了](wang-yang-bu-lao.md)
-- [梅艳芳骨灰或流向东南亚](xuan-liang-ci-gu.md)
+- [这款游戏出现在21世纪还是太超前了](zi-qiang-bu-xi.md)
+- [真人版“胡闹厨房” 还能火多久](fen-fa-tu-qiang.md)
+- [孙颖莎已获20个世界冠军](wang-yang-bu-lao.md)
+- [奚梦瑶回应时隔8年回归维密大秀](xuan-liang-ci-gu.md)
 
 ## 站内推荐
 
-- [没退休就意外离世交的社保怎么办](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [江苏通报千元近视防控镜批发价仅30元](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [新一股冷空气将影响我国](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [汇源集团：不再生产“汇源”果汁](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [有人说砍掉科研圈95%的研究和论文，完全不影响科学发展，这话对吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [如何看待代驾称喝酒顾客为赖50元等候费骂人，被其反手举报改装+酒驾+违停，车主最终一共被罚2200元？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
 - [谷歌将 TPU AI芯片送入太空，每次执行约15分钟运算，之后必须暂停散热，太空算力中心前景如何？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [如何看待有学者提出的慢科研，但是自己一年却写 40 篇论文？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [【新宿决战】真人版-史上最拽与现代最彪](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [维密大秀](http://www.movie.hkepx.cn/movie/1165692.htm)
-- [男子嚼完槟榔吐泡沫箱上竟溶出深坑](http://www.movie.hkepx.cn/movie/1352170.htm)
-- [你加的油可能不够量](http://www.play.hengshemaoyi.cn/kongbu/5123614.htm)
-- [马克龙谴责法国多地暴力事件](http://www.daogukj.com/npyuporz/)
-- [李昀锐下意识护着孟子义](http://www.daogukj.com/4148221)
-- [儿时追过的第一部电视剧！明明抄袭但却依然挥之不去？](http://www.play.hengshemaoyi.cn/kongbu/4994132.htm)
-- [郑州警方辟谣“一家五口烧炭自杀”](http://www.movie.hkepx.cn/xiju/4577450.htm)
-- [为什么不建议在简历上撒谎？](http://www.play.hengshemaoyi.cn/kongbu/6059802.htm)
-- [这款游戏出现在21世纪还是太超前了](http://www.daogukj.com/6750296)
-- [中国留学生身披旭日旗 钧正平发声](http://www.movie.hkepx.cn/xiju/1723341.htm)
-- [医院哪个临床科室处在技术变革的前夜？](http://www.play.hengshemaoyi.cn/kongbu/5063278.htm)
-- [为什么中餐的做法明明比日本料理繁复的多，国际上高端日料店却反而比高端中餐馆多？](http://www.daogukj.com/6024053)
-- [建议售价1980元的眼镜片批发价30元](http://www.movie.hkepx.cn/movie/7510839.htm)
-- [盛艾敬哭了](http://www.movie.hkepx.cn/xiju/9043114.htm)
-- [日本出现取消吃饭现象](http://www.movie.hkepx.cn/xiju/3915788.htm)
-- [刘德华朱丽蒨酒店罕见被偶遇](http://www.movie.hkepx.cn/xiju/4929128.htm)
-- [超强台风“蔷琵”预计逼近我国](http://www.play.hengshemaoyi.cn/xiju/4714425.htm)
-- [iG抽到GEN](http://www.movie.hkepx.cn/xiju/1766582.htm)
-- [刘雯第十次走维密秀](http://www.daogukj.com/ceejmjpq/)
-- [曝白宇疑似当爸爸了](http://www.play.hengshemaoyi.cn/xiju/6574526.htm)
-- [曝白宇疑似当爸](http://www.play.hengshemaoyi.cn/kongbu/0685738.htm)
-- [Deepseek对百度搜索的冲击有多大？](http://www.daogukj.com/3829979)
+- [日本网友受不了中日校园反差](http://www.movie.hkepx.cn/movie/1165692.htm)
+- [《还珠格格》五阿哥永琪到底爱上了小燕子身上的哪些特点？](http://www.movie.hkepx.cn/movie/1352170.htm)
+- [Deepseek对百度搜索的冲击有多大？](http://www.play.hengshemaoyi.cn/kongbu/5123614.htm)
+- [前护士张水华破赛会纪录夺得西马冠军，如何评价她的表现？](http://www.daogukj.com/npyuporz/)
+- [VCTCN八支合作队伍官宣](http://www.daogukj.com/4148221)
+- [每一位认真谋生的人都值得被仰望](http://www.play.hengshemaoyi.cn/kongbu/4994132.htm)
+- [何猷君说奚梦瑶是家族骄傲](http://www.movie.hkepx.cn/xiju/4577450.htm)
+- [法国小龙虾泛滥，下笼就是200只？](http://www.play.hengshemaoyi.cn/kongbu/6059802.htm)
+- [男子进山找菌子意外发现被困黄牛](http://www.daogukj.com/6750296)
+- [科比大女儿娜塔莉亚亮相维密大秀](http://www.movie.hkepx.cn/xiju/1723341.htm)
+- [该如何评论中国南京籍留学生，在莫斯科国立大学历史系课堂，身披旭日旗、桌上摆放日军军帽的事件？](http://www.play.hengshemaoyi.cn/kongbu/5063278.htm)
+- [赵本山携手象牙山巨头们激情演唱《Uptown Funk》](http://www.daogukj.com/6024053)
+- [员工办完离职手续后回家途中遇车祸，全身多处骨折，人社局认定为工伤，如何从法律角度解读？](http://www.movie.hkepx.cn/movie/7510839.htm)
+- [孙颖莎已获20个世界冠军](http://www.movie.hkepx.cn/xiju/9043114.htm)
+- [网友高铁上偶遇114岁长寿老人](http://www.movie.hkepx.cn/xiju/3915788.htm)
+- [田曦薇《嫁金钗》热度稳步走高](http://www.movie.hkepx.cn/xiju/4929128.htm)
+- [丰田将在中国生产新卡罗拉](http://www.play.hengshemaoyi.cn/xiju/4714425.htm)
+- [志愿军女主 张子枫](http://www.movie.hkepx.cn/xiju/1766582.htm)
+- [亚运金牌得主刘峡君：想把技术再磨细](http://www.daogukj.com/ceejmjpq/)
+- [梅艳芳骨灰被偷运至东南亚？不实](http://www.play.hengshemaoyi.cn/xiju/6574526.htm)
+- [博主曝光恋童癖黑产](http://www.play.hengshemaoyi.cn/kongbu/0685738.htm)
+- [同样大小的伤口，为什么有的几天就愈合，有的却一直好不了？](http://www.daogukj.com/3829979)
 - [谷歌将 TPU AI芯片送入太空，每次执行约15分钟运算，之后必须暂停散热，太空算力中心前景如何？](http://www.play.hengshemaoyi.cn/xiju/4225861.htm)
-- [“九国联军”真能锁住台海大门吗](http://www.movie.hkepx.cn/movie/4560913.htm)
-- [也是当上外卖大法官了【第三集】](http://www.daogukj.com/4062244)
-- [杜锋直言 CBA 锻炼的是外援而非国手，该如何看待这番评价？](http://www.play.hengshemaoyi.cn/kongbu/4901914.htm)
-- [白宇 刘萌萌](http://www.movie.hkepx.cn/xiju/8477603.htm)
+- [30岁女教师突发疾病去世](http://www.movie.hkepx.cn/movie/4560913.htm)
+- [【特摄吐槽】谁家漫画给贝利亚加吻戏？](http://www.daogukj.com/4062244)
+- [【盲人无障碍电影】冰雪奇缘第一部](http://www.play.hengshemaoyi.cn/kongbu/4901914.htm)
+- [奚妃回宫](http://www.movie.hkepx.cn/xiju/8477603.htm)
 - [法国千所学校抗议演变成暴力骚乱，背后深层原因是什么？](http://www.play.hengshemaoyi.cn/xiju/3986361.htm)
-- [全宇宙最team的一把救世主模式！！！](http://www.play.hengshemaoyi.cn/kongbu/1320737.htm)
-- [AI剧真实到几乎可以替代演员](http://www.daogukj.com/oebzlmot/)
-- [朝鲜队退出乒乓球亚锦赛全部比赛项目](http://www.play.hengshemaoyi.cn/kongbu/4919916.htm)
-- [梅艳芳骨灰或流向东南亚](http://www.daogukj.com/jenzjadv/)
-- [枪手携2500发弹药血洗商场！警员孤身迎战，80米外击毙！](http://www.daogukj.com/rjxwvatb/)
-- [中国外贸风向标 创多项历史新高](http://www.daogukj.com/myetaccz/)
-- [被曝光后 江苏丹阳连夜通报](http://www.play.hengshemaoyi.cn/xiju/4512617.htm)
-- [江苏通报千元近视防控镜批发价仅30元](http://www.daogukj.com/lqyabsmd/)
-- [新一股冷空气将影响我国](http://www.movie.hkepx.cn/xiju/2257347.htm)
-- [宋仲基听到路人说宋慧乔的反应](http://www.play.hengshemaoyi.cn/kongbu/6146556.htm)
-- [欧洲多国爆发示威 法国2000多人被捕](http://www.play.hengshemaoyi.cn/kongbu/2930988.htm)
-- [雷佳音大变样](http://www.movie.hkepx.cn/movie/4794891.htm)
-- [夫妻花67.3万元买劳力士手表，店员劝说2小时无果只好报警！](http://www.movie.hkepx.cn/xiju/9142629.htm)
-- [同事保胎请假，我接手她的工作，回来后不但没感谢，还各种挑刺，这是为什么？](http://www.play.hengshemaoyi.cn/kongbu/7682672.htm)
-- [2026维秘大秀](http://www.daogukj.com/idlsclvt/)
-- [本西蒙斯跟腱撕裂](http://www.play.hengshemaoyi.cn/kongbu/8778582.htm)
-- [贾宝玉吃丫鬟嘴上的胭脂，放今天就是性骚扰，为什么在男女授受不亲的《红楼梦》里不是大问题？](http://www.play.hengshemaoyi.cn/kongbu/8593743.htm)
-- [钧正平就中国留学生身披旭日旗发声](http://www.play.hengshemaoyi.cn/xiju/0951279.htm)
-- [动乱之际马克龙夫妇被拍到看演唱会](http://www.daogukj.com/hjqvdxzs/)
-- [吴越质问“花姐”骗了多少钱](http://www.play.hengshemaoyi.cn/kongbu/8650529.htm)
-- [长乐夜未央丨全新主题区域「未央城」即将上线](http://www.play.hengshemaoyi.cn/xiju/5579870.htm)
-- [如何评价张雪机车德比斯获年度亚军，张雪机车夺制造商年度第 3 名？](http://www.daogukj.com/7619632)
+- [中国留学生身披旭日旗 钧正平发声](http://www.play.hengshemaoyi.cn/kongbu/1320737.htm)
+- [白鹿曼谷见面会宣布取消](http://www.daogukj.com/oebzlmot/)
+- [如何评价潘斌龙电影《杯雪·一战成名》？](http://www.play.hengshemaoyi.cn/kongbu/4919916.htm)
+- [奚梦瑶回应时隔8年回归维密大秀](http://www.daogukj.com/jenzjadv/)
+- [这款游戏出现在21世纪还是太超前了](http://www.daogukj.com/rjxwvatb/)
+- [第五届亚残运开幕](http://www.daogukj.com/myetaccz/)
+- [马克龙：法国人怎么能这样对待法国](http://www.play.hengshemaoyi.cn/xiju/4512617.htm)
+- [有人说砍掉科研圈95%的研究和论文，完全不影响科学发展，这话对吗？](http://www.daogukj.com/lqyabsmd/)
+- [如何看待代驾称喝酒顾客为赖50元等候费骂人，被其反手举报改装+酒驾+违停，车主最终一共被罚2200元？](http://www.movie.hkepx.cn/xiju/2257347.htm)
+- [宋佳 志愿军女配](http://www.play.hengshemaoyi.cn/kongbu/6146556.htm)
+- [山姆品质暴跌？负责人回应](http://www.play.hengshemaoyi.cn/kongbu/2930988.htm)
+- [维密史上最贵FantasyBra](http://www.movie.hkepx.cn/movie/4794891.htm)
+- [90年了，我们一直在找你们的名字](http://www.movie.hkepx.cn/xiju/9142629.htm)
+- [【科学修仙】怎能命丧于此？！~~~【up动画】](http://www.play.hengshemaoyi.cn/kongbu/7682672.htm)
+- [高市早苗3天内2次拜鬼](http://www.daogukj.com/idlsclvt/)
+- [没退休就意外离世交的社保怎么办](http://www.play.hengshemaoyi.cn/kongbu/8778582.htm)
+- [梁文锋和DeepSeek，为什么配得上"国运级"三个字？](http://www.play.hengshemaoyi.cn/kongbu/8593743.htm)
+- [女子晒iPhone 18Pro订单泄露物流单号，骗子找5人接力跑腿冒领，快递、跑腿平台该承担多少责任？](http://www.play.hengshemaoyi.cn/xiju/0951279.htm)
+- [网友吐槽金鸡奖提名](http://www.daogukj.com/hjqvdxzs/)
+- [宋佳 金鸡奖](http://www.play.hengshemaoyi.cn/kongbu/8650529.htm)
+- [【英雄联盟】K/DA官方MV - “FIRESTARTER（燃）”正式上线](http://www.play.hengshemaoyi.cn/xiju/5579870.htm)
+- [陈奕迅开启重录旧唱片「现场录音式演唱会」，要求封存手机且禁止跟唱鼓掌，如何看待这一观演规定？](http://www.daogukj.com/7619632)
 
 </details>
 
 ## 原始来源
 
-- [李秀满新女团 A2O 被曝最小成员仅 13 岁引发争议，如何看待 K-pop 偶像低龄化趋势？](https://www.zhihu.com/question/2093069795629573489)
+- [如何评价DeepSeek 开放自研搜索API，单价为每1000次成功请求5元？](https://www.zhihu.com/question/2094892066190915387)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ee198071e6fc56ff660d -->
+<!-- content-fingerprint: 3abad61561a5acc335f5 -->

@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 保持自己对少前系列作品的理解和坚持——《少女前线2：追放》全新搜打撤玩法【危区探遗】幕后开发访谈
+# “这才是许愿池真正的意义，每一枚硬币都藏着人间善意”
 
-> 来源：哔哩哔哩热门 · 排名：第 15 位 · 热度：293312 · 分类：手机游戏 · 更新：2026-10-19T09:25:05+08:00
+> 来源：哔哩哔哩热门 · 排名：第 15 位 · 热度：4268991 · 分类：音乐综合 · 更新：2026-10-19T14:25:30+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“保持自己对少前系列作品的理解和坚持——《少女前线2：追放》全新搜打撤玩法【危区探遗】幕后开发访谈”位列第 15 位，公开热度指标为 293312，榜单分类为“手机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，““这才是许愿池真正的意义，每一枚硬币都藏着人间善意””位列第 15 位，公开热度指标为 4268991，榜单分类为“音乐综合”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：本期视频，让我们跟随羽中的视角，一起来看看【危区探遗】的幕后开发团队，为新玩法的落地做了哪些努力和尝试！ 《少女前线2：追放》全新搜打撤玩法【危区探遗】将于10月19日12:00 正式开启！指挥官们敬请期待！ ================ 《少女前线2：追放》下载&gt;&gt; 安卓游戏客户端：https://www.biligame.com/detail/?id=106059 PC游戏客户端：https://www.biligame.com/detail/?id=107242
+来源公开摘要显示：00：00 III 05：52 Luvsic+夜，萤火虫和你 08：05 Collapsing World 11：15 Eutopia 16：08 The truth that you leave 19：51 You 25：40 Time is broken 28：39 snowfall 30：43 In The Shadow Of The Sun 33：26 鸟之诗（八音盒）
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `手机游戏`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `音乐综合`
 
 ## 相关热点
 
-- [吴越质问“花姐”骗了多少钱](jiao-ta-shi-di.md)
-- [iG抽到GEN](shi-shi-qiu-shi.md)
-- [为什么要把社保缴费的尺子统一起来](chi-zhi-yi-heng.md)
-- [李秀满新女团 A2O 被曝最小成员仅 13 岁引发争议，如何看待 K-pop 偶像低龄化趋势？](jian-ren-bu-ba.md)
+- [宋佳 金鸡奖](jiao-ta-shi-di.md)
+- [志愿军女主 张子枫](shi-shi-qiu-shi.md)
+- [刘雯第10次登上维密大秀](chi-zhi-yi-heng.md)
+- [如何评价DeepSeek 开放自研搜索API，单价为每1000次成功请求5元？](jian-ren-bu-ba.md)
 
 ## 站内推荐
 
 - [法国千所学校抗议演变成暴力骚乱，背后深层原因是什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/si-hai-wei-jia.md)
-- [同事保胎请假，我接手她的工作，回来后不但没感谢，还各种挑刺，这是为什么？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
-- [一艘货轮在霍尔木兹海峡触雷沉没，大量全新iphone漂浮在海面，为何货轮会误入危险航道？损失有多大？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
-- [【盲人无障碍电影】冰雪奇缘第一部](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
-- [夫妻花67.3万元买劳力士手表，店员劝说2小时无果只好报警！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
+- [【科学修仙】怎能命丧于此？！~~~【up动画】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wo-xin-chang-dan.md)
+- [长乐夜未央丨全新主题区域「未央城」即将上线](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mai-du-huan-zhu.md)
+- [儿时追过的第一部电视剧！明明抄袭但却依然挥之不去？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/nang-ying-ying-xue.md)
+- [90年了，我们一直在找你们的名字](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xiong-you-cheng-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [没退休就意外离世交的社保怎么办](http://www.movie.hkepx.cn/movie/4451376.htm)
-- [贺聪拿下维密小开](http://www.play.hengshemaoyi.cn/kongbu/7965655.htm)
-- [客观来看，贫困生能花三千块治牙吗？为何这会引发热议，和之前的贫困生看演唱会、9.9元咖啡等区别在哪？](http://www.play.hengshemaoyi.cn/xiju/8628967.htm)
-- [也是当上外卖大法官了【第三集】](http://www.daogukj.com/0493771)
-- [人生不是一条直线](http://www.movie.hkepx.cn/xiju/2801529.htm)
-- [郑州警方辟谣“一家五口烧炭自杀”](http://www.movie.hkepx.cn/xiju/0380313.htm)
-- [🐧谁的大吉他最好玩!?🐧](http://www.movie.hkepx.cn/xiju/7224535.htm)
-- [iPhoneDuo商家近百万元订单遭压价](http://www.daogukj.com/xzonyqff/)
-- [如何评价张雪机车德比斯获年度亚军，张雪机车夺制造商年度第 3 名？](http://www.daogukj.com/orjovtkz/)
-- [钧正平就中国留学生身披旭日旗发声](http://www.daogukj.com/ehivavka/)
-- [欧洲多国爆发示威](http://www.play.hengshemaoyi.cn/kongbu/7217009.htm)
-- [男子称入狱20多天网贷记录多了十几万](http://www.movie.hkepx.cn/xiju/8835780.htm)
-- [建议售价1980元的眼镜片批发价30元](http://www.movie.hkepx.cn/xiju/9038119.htm)
-- [宋仲基听到路人说宋慧乔的反应](http://www.daogukj.com/oiypmejy/)
-- [白宇 刘萌萌](http://www.daogukj.com/8015684)
-- [结婚偶遇跑男录制 新人喜提站姐神图](http://www.movie.hkepx.cn/movie/3984102.htm)
-- [同事保胎请假，我接手她的工作，回来后不但没感谢，还各种挑刺，这是为什么？](http://www.daogukj.com/6250249)
-- [新一股冷空气将影响我国](http://www.daogukj.com/2025214)
-- [特朗普新任白宫发言人上任仅5天就被解雇，创下史上最短纪录，为什么会这样？](http://www.daogukj.com/5970893)
-- [吴越质问“花姐”骗了多少钱](http://www.play.hengshemaoyi.cn/xiju/3897460.htm)
-- [如何看待有学者提出的慢科研，但是自己一年却写 40 篇论文？](http://www.daogukj.com/fmnczhof/)
-- [日本出现取消吃饭现象](http://www.play.hengshemaoyi.cn/xiju/4734100.htm)
-- [每一位认真谋生的人都值得被仰望](http://www.daogukj.com/kqpwtmnb/)
-- [2026维秘大秀](http://www.daogukj.com/vnlihxyn/)
-- [男子1个拥抱妻子断了5根肋骨](http://www.play.hengshemaoyi.cn/kongbu/4489916.htm)
-- [李昀锐下意识护着孟子义](http://www.movie.hkepx.cn/xiju/4834258.htm)
-- [儿时追过的第一部电视剧！明明抄袭但却依然挥之不去？](http://www.movie.hkepx.cn/movie/4108451.htm)
-- [贾宝玉吃丫鬟嘴上的胭脂，放今天就是性骚扰，为什么在男女授受不亲的《红楼梦》里不是大问题？](http://www.play.hengshemaoyi.cn/kongbu/9792272.htm)
-- [维密大秀](http://www.daogukj.com/gzwgwxon/)
-- [【科学修仙】怎能命丧于此？！~~~【up动画】](http://www.movie.hkepx.cn/xiju/9996146.htm)
-- [全宇宙最team的一把救世主模式！！！](http://www.movie.hkepx.cn/xiju/4008832.htm)
-- [李秀满新女团 A2O 被曝最小成员仅 13 岁引发争议，如何看待 K-pop 偶像低龄化趋势？](http://www.daogukj.com/yrmlvnvb/)
-- [超强台风“蔷琵”预计逼近我国](http://www.movie.hkepx.cn/movie/2452830.htm)
-- [【独家】牧神记 第105集 屈山神殿](http://www.movie.hkepx.cn/movie/6358459.htm)
-- [Deepseek对百度搜索的冲击有多大？](http://www.play.hengshemaoyi.cn/kongbu/9664292.htm)
-- [【盲人无障碍电影】冰雪奇缘第一部](http://www.play.hengshemaoyi.cn/kongbu/8762273.htm)
-- [医院哪个临床科室处在技术变革的前夜？](http://www.movie.hkepx.cn/movie/0811470.htm)
-- [盛艾敬哭了](http://www.daogukj.com/7601488)
-- [建议售价1980的眼镜片批发价30](http://www.daogukj.com/lmhgfutz/)
-- [南大教授孙智伟自掏工资悬赏解题并提出上千个猜想，这对数学研究有何价值？](http://www.play.hengshemaoyi.cn/kongbu/6263764.htm)
-- [AI剧真实到几乎可以替代演员](http://www.daogukj.com/4937221)
-- [朝鲜队退出乒乓球亚锦赛全部比赛项目](http://www.play.hengshemaoyi.cn/kongbu/3765846.htm)
-- [伪造演员吴越形象带货账号被封](http://www.play.hengshemaoyi.cn/kongbu/8405143.htm)
-- [你加的油可能不够量](http://www.movie.hkepx.cn/movie/8789536.htm)
-- [为什么不建议在简历上撒谎？](http://www.play.hengshemaoyi.cn/kongbu/5405888.htm)
-- [广交会见证中国制造硬核升级](http://www.daogukj.com/6912318)
-- [欧洲多国爆发示威 法国2000多人被捕](http://www.movie.hkepx.cn/xiju/4818547.htm)
-- [【特摄吐槽】谁家漫画给贝利亚加吻戏？](http://www.movie.hkepx.cn/xiju/2301829.htm)
-- [枪手携2500发弹药血洗商场！警员孤身迎战，80米外击毙！](http://www.play.hengshemaoyi.cn/xiju/0829282.htm)
-- [“最牛文科生”赌中AI](http://www.movie.hkepx.cn/xiju/2953119.htm)
+- [汇源集团：不再生产“汇源”果汁](http://www.movie.hkepx.cn/movie/4451376.htm)
+- [女局长遭“仙人跳”被敲诈19万](http://www.play.hengshemaoyi.cn/kongbu/7965655.htm)
+- [不是 AI 特效！这才是《中国功夫》的魅力！](http://www.play.hengshemaoyi.cn/xiju/8628967.htm)
+- [【特摄吐槽】谁家漫画给贝利亚加吻戏？](http://www.daogukj.com/0493771)
+- [囤50台iPhone Duo从赚10万到亏2.5万](http://www.movie.hkepx.cn/xiju/2801529.htm)
+- [何猷君说奚梦瑶是家族骄傲](http://www.movie.hkepx.cn/xiju/0380313.htm)
+- [年轻人又爱上钢笔了](http://www.movie.hkepx.cn/xiju/7224535.htm)
+- [苏姿丰父亲称台北市长不需权贵](http://www.daogukj.com/xzonyqff/)
+- [陈奕迅开启重录旧唱片「现场录音式演唱会」，要求封存手机且禁止跟唱鼓掌，如何看待这一观演规定？](http://www.daogukj.com/orjovtkz/)
+- [女子晒iPhone 18Pro订单泄露物流单号，骗子找5人接力跑腿冒领，快递、跑腿平台该承担多少责任？](http://www.daogukj.com/ehivavka/)
+- [女子离婚6天用AI救了前夫一命](http://www.play.hengshemaoyi.cn/kongbu/7217009.htm)
+- [金鸡奖提名](http://www.movie.hkepx.cn/xiju/8835780.htm)
+- [员工办完离职手续后回家途中遇车祸，全身多处骨折，人社局认定为工伤，如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/9038119.htm)
+- [宋佳 志愿军女配](http://www.daogukj.com/oiypmejy/)
+- [奚妃回宫](http://www.daogukj.com/8015684)
+- [汇源集团严正声明：不再生产汇源果汁](http://www.movie.hkepx.cn/movie/3984102.htm)
+- [【科学修仙】怎能命丧于此？！~~~【up动画】](http://www.daogukj.com/6250249)
+- [如何看待代驾称喝酒顾客为赖50元等候费骂人，被其反手举报改装+酒驾+违停，车主最终一共被罚2200元？](http://www.daogukj.com/2025214)
+- [《鸣潮》共鸣者战斗演示 | 锁暝](http://www.daogukj.com/5970893)
+- [宋佳 金鸡奖](http://www.play.hengshemaoyi.cn/xiju/3897460.htm)
+- [【新宿决战】真人版-史上最拽与现代最彪](http://www.daogukj.com/fmnczhof/)
+- [网友高铁上偶遇114岁长寿老人](http://www.play.hengshemaoyi.cn/xiju/4734100.htm)
+- [河南一村子在荒郊野地安装健身器材](http://www.daogukj.com/kqpwtmnb/)
+- [高市早苗3天内2次拜鬼](http://www.daogukj.com/vnlihxyn/)
+- [辛芷蕾掉提金鸡](http://www.play.hengshemaoyi.cn/kongbu/4489916.htm)
+- [VCTCN八支合作队伍官宣](http://www.movie.hkepx.cn/xiju/4834258.htm)
+- [每一位认真谋生的人都值得被仰望](http://www.movie.hkepx.cn/movie/4108451.htm)
+- [梁文锋和DeepSeek，为什么配得上"国运级"三个字？](http://www.play.hengshemaoyi.cn/kongbu/9792272.htm)
+- [日本网友受不了中日校园反差](http://www.daogukj.com/gzwgwxon/)
+- [全宇宙最team的一把救世主模式！！！](http://www.movie.hkepx.cn/xiju/9996146.htm)
+- [中国留学生身披旭日旗 钧正平发声](http://www.movie.hkepx.cn/xiju/4008832.htm)
+- [如何评价DeepSeek 开放自研搜索API，单价为每1000次成功请求5元？](http://www.daogukj.com/yrmlvnvb/)
+- [丰田将在中国生产新卡罗拉](http://www.movie.hkepx.cn/movie/2452830.htm)
+- [微信聊天记录截图 如何当证据使用](http://www.movie.hkepx.cn/movie/6358459.htm)
+- [同样大小的伤口，为什么有的几天就愈合，有的却一直好不了？](http://www.play.hengshemaoyi.cn/kongbu/9664292.htm)
+- [儿时追过的第一部电视剧！明明抄袭但却依然挥之不去？](http://www.play.hengshemaoyi.cn/kongbu/8762273.htm)
+- [该如何评论中国南京籍留学生，在莫斯科国立大学历史系课堂，身披旭日旗、桌上摆放日军军帽的事件？](http://www.movie.hkepx.cn/movie/0811470.htm)
+- [孙颖莎已获20个世界冠军](http://www.daogukj.com/7601488)
+- [披旭日旗中国留学生鞠躬道歉](http://www.daogukj.com/lmhgfutz/)
+- [同事保胎请假，我接手她的工作，回来后不但没感谢，还各种挑刺，这是为什么？](http://www.play.hengshemaoyi.cn/kongbu/6263764.htm)
+- [白鹿曼谷见面会宣布取消](http://www.daogukj.com/4937221)
+- [如何评价潘斌龙电影《杯雪·一战成名》？](http://www.play.hengshemaoyi.cn/kongbu/3765846.htm)
+- [知情人称身披旭日旗留学生是南京人](http://www.play.hengshemaoyi.cn/kongbu/8405143.htm)
+- [Deepseek对百度搜索的冲击有多大？](http://www.movie.hkepx.cn/movie/8789536.htm)
+- [法国小龙虾泛滥，下笼就是200只？](http://www.play.hengshemaoyi.cn/kongbu/5405888.htm)
+- [“China Haul”火到广交会](http://www.daogukj.com/6912318)
+- [山姆品质暴跌？负责人回应](http://www.movie.hkepx.cn/xiju/4818547.htm)
+- [“肖战演唱会前排门票25万”系谣言](http://www.movie.hkepx.cn/xiju/2301829.htm)
+- [这款游戏出现在21世纪还是太超前了](http://www.play.hengshemaoyi.cn/xiju/0829282.htm)
+- [真人版“胡闹厨房” 还能火多久](http://www.movie.hkepx.cn/xiju/2953119.htm)
 
 </details>
 
 ## 原始来源
 
-- [保持自己对少前系列作品的理解和坚持——《少女前线2：追放》全新搜打撤玩法【危区探遗】幕后开发访谈](https://b23.tv/BV1cfnu67EFm)
+- [“这才是许愿池真正的意义，每一枚硬币都藏着人间善意”](https://b23.tv/BV16GJv6SEeE)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: c60bc5c8d9e39a25a980 -->
+<!-- content-fingerprint: b2b803c75b777529b161 -->
