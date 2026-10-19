@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 《是我嘴太小了吗》
+# 加拿大军事基地发生重大爆炸火灾事故，已致4死数十伤，这场致命事故有哪些关键细节？暴露了什么问题？
 
-> 来源：哔哩哔哩热门 · 排名：第 13 位 · 热度：679670 · 分类：日常 · 更新：2026-10-19T21:45:04+08:00
+> 来源：知乎热榜 · 排名：第 13 位 · 热度：128 万热度 · 分类：问答 · 更新：2026-10-20T03:29:32+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“《是我嘴太小了吗》”位列第 13 位，公开热度指标为 679670，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“加拿大军事基地发生重大爆炸火灾事故，已致4死数十伤，这场致命事故有哪些关键细节？暴露了什么问题？”位列第 13 位，公开热度指标为 128 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：-
+来源公开摘要显示：加拿大总理马克·卡尼18日在渥太华证实该国西部艾伯塔省韦恩赖特军事基地17日发生的火灾已造成4名军人死亡、数十人受伤。 卡尼说：“这是加拿大军队和平时期在本国领土上发生的最严重悲剧之一。” 据加拿大方面消息，加拿大国防部18日排除此次事故为恐怖活动所致。加国防部证实，当地时间17日16时左右，韦恩赖特军事基地训练区内发生火灾，火势迅速蔓延至训练区边界之外。 北约军事委员会主席朱塞佩·卡沃·德拉戈内18日在社交媒体上发表声明表示哀悼。他称，该军事基地不仅是加拿大士兵的训练地，也是许多盟军的训练地。 据悉，事发时基地内正在进行实弹训练演习，可能有枪弹击中天然
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [广州一村每人发3.65元补偿款](zao-bi-tou-guang.md)
-- [谭松韵刘学义直播避嫌避成啥样了](nang-ying-ying-xue.md)
-- [谢霆锋打卡江西小炒](cheng-men-li-xue.md)
-- [如何看待模仿王源博主「王扁」被前经纪人用锤子击打头部约 10 分钟，双方有什么矛盾？](shou-bu-shi-juan.md)
+- [巴克什全新阵营玩法！不同阵营互相通缉！塔内翻新更多通路！堵电梯井成为绝唱！](zao-bi-tou-guang.md)
+- [留学生披旭日旗细节：被同学当场控制](nang-ying-ying-xue.md)
+- [田曦薇跳娆黛摇](cheng-men-li-xue.md)
+- [科比23岁女儿首登维密T台大秀](shou-bu-shi-juan.md)
 
 ## 站内推荐
 
-- [汇源集团发布严正声明，宣布和「汇源」品牌切割、推出新品牌咱家果源，具体怎么回事？会带来哪些市场影响？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [昆明一事业编岗位九千人报名，这种「卷王岗」都是怎么出现的？实际备考难度有多大？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [何以中国当惊世界殊](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [汇源集团：不再生产“汇源”果汁](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
 - [梁文锋和DeepSeek，为什么配得上"国运级"三个字？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [枪手携2500发弹药血洗商场！警员孤身迎战，80米外击毙！](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [“当人生变成曲线，你会看见谁一直陪着你”【把回忆拼好给你-DJ变速】【生命线の小曲】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [如果胡卫东和刘玉栋去NBA，在NBA能打上主力吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [如何评价DeepSeek 开放自研搜索API，单价为每1000次成功请求5元？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [180斤大码超模回归维密大秀](http://www.movie.hkepx.cn/xiju/1653219.htm)
-- [人民日报评中国留学生身披旭日旗](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
-- [仙人跳后报警被强奸多名受害人被抓](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
-- [动能向新、结构向优](http://www.daogukj.com/ceegkpfb/)
-- [帅气小伙追脑瘫女孩半年成功求婚](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
-- [Deepseek对传统搜索的冲击有多大？](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
-- [知情人称身披旭日旗留学生是南京人](http://www.movie.hkepx.cn/xiju/2935808.htm)
-- [央行宣布将出台多项政策举措](http://www.movie.hkepx.cn/movie/6067835.htm)
+- [枪手携2500发弹药血洗商场！警员孤身迎战，80米外击毙！](http://www.movie.hkepx.cn/xiju/1653219.htm)
+- [披旭日旗的中国留学生已被遣返开除](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
+- [女子离婚6天用AI救了前夫一命](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
+- [读懂中国经济的韧性和活力](http://www.daogukj.com/ceegkpfb/)
+- [绝密核电站！引入毒圈机制！虚幻5加持天际港沉浸拉满！](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
+- [李小冉前夫及关联公司被执行2111万](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
+- [萨摩耶走秀时突然憋不住了](http://www.movie.hkepx.cn/xiju/2935808.htm)
+- [何猷君炫妻狂魔](http://www.movie.hkepx.cn/movie/6067835.htm)
 - [新疆一5A景区出售工程抵账票？不实](http://www.movie.hkepx.cn/movie/1919789.htm)
-- [昆明一事业编岗位九千人报名，这种「卷王岗」都是怎么出现的？实际备考难度有多大？](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
-- [广州一村每人发3.65元补偿款](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
-- [兰香如故直播](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
-- [迪丽热巴羽毛碎钻长裙](http://www.movie.hkepx.cn/xiju/8738765.htm)
+- [汇源集团：不再生产“汇源”果汁](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
+- [巴克什全新阵营玩法！不同阵营互相通缉！塔内翻新更多通路！堵电梯井成为绝唱！](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
+- [这些话鲁迅真说过](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
+- [巴黎骚乱街头有人cos美国队长](http://www.movie.hkepx.cn/xiju/8738765.htm)
 - [梁文锋和DeepSeek，为什么配得上"国运级"三个字？](http://www.play.hengshemaoyi.cn/xiju/4131259.htm)
-- [人民日报：对“精日”言行零容忍](http://www.daogukj.com/5961107)
-- [徐佳宁求婚时说给你五个亿让你作](http://www.daogukj.com/4005019)
-- [最强修仙宇宙！炼丹、御剑、渡劫、炉鼎，这些修仙设定到底从哪来的？](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
-- [孙颖莎拒应援河北卫视下场引导](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
-- [带着100万，我们见了成人网红...](http://www.movie.hkepx.cn/xiju/3802162.htm)
-- [如何评价DeepSeek 开放自研搜索API，单价为每1000次成功请求5元？](http://www.daogukj.com/4160322)
-- [枪手携2500发弹药血洗商场！警员孤身迎战，80米外击毙！](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
-- [外网称奚梦瑶维秘秀是艺术](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
-- [证监会发布证券市场先行赔付指导意见](http://www.movie.hkepx.cn/movie/5796961.htm)
-- [大学生生活费到底一个月多少合适](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
-- [司美格鲁肽在美遭批量起诉，因患者用后患上可致盲的眼病，这真是GLP-1导致的吗？此类药物还有哪些风险？](http://www.daogukj.com/6018961)
+- [孩子上班父母也能领工资](http://www.daogukj.com/5961107)
+- [岳云鹏演出 听不清](http://www.daogukj.com/4005019)
+- [法国千所学校抗议演变成暴力骚乱，背后深层原因是什么？](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
+- [乒乓球名将王曼昱等3人拟记大功](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
+- [同样是生活成本抗议，法国这轮骚乱和 2018 年黄背心差在哪？](http://www.movie.hkepx.cn/xiju/3802162.htm)
+- [人民日报：对“精日”言行零容忍](http://www.daogukj.com/4160322)
+- [如果胡卫东和刘玉栋去NBA，在NBA能打上主力吗？](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
+- [张雪求助：谁能把食堂米饭做好吃](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
+- [谭松韵刘学义直播避嫌避成啥样了](http://www.movie.hkepx.cn/movie/5796961.htm)
+- [高反支帐篷躺卧男子去世目击者发声](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
+- [原来学霸是这样背书的](http://www.daogukj.com/6018961)
 - [“重庆一车从60米高架桥坠落”不实](http://www.daogukj.com/efehcbta/)
-- [老人去见苦命“小海” 上车才知是AI](http://www.daogukj.com/7846527)
-- [“当人生变成曲线，你会看见谁一直陪着你”【把回忆拼好给你-DJ变速】【生命线の小曲】](http://www.movie.hkepx.cn/movie/2779517.htm)
-- [法国多地将局部宵禁](http://www.daogukj.com/5137842)
-- [星巴克 消费入座](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
-- [嫁金钗直播](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
-- [李小冉结婚超十年没要孩子](http://www.daogukj.com/2275454)
-- [如何看待模仿王源博主「王扁」被前经纪人用锤子击打头部约 10 分钟，双方有什么矛盾？](http://www.movie.hkepx.cn/movie/8955518.htm)
-- [汇源集团发布严正声明，宣布和「汇源」品牌切割、推出新品牌咱家果源，具体怎么回事？会带来哪些市场影响？](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
-- [前护士张水华破赛会纪录夺得西马冠军，如何评价她的表现？](http://www.daogukj.com/3040545)
-- [暴力骚乱蔓延至整个欧洲](http://www.movie.hkepx.cn/movie/0072136.htm)
-- [iPhone Duo 溢价从超5万元跌至3000元，首销价格为什么会快速回落？](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
-- [谭松韵刘学义直播避嫌避成啥样了](http://www.movie.hkepx.cn/xiju/2548466.htm)
-- [女子离婚6天用AI救了前夫一命](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
-- [女儿用拼多多给农村父母远程装修](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
-- [法国社会动荡背后的现实矛盾](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
-- [法国马赛临时禁止公共集会](http://www.movie.hkepx.cn/movie/0563740.htm)
-- [男子高速故意压速堵路称脾气上来了](http://www.play.hengshemaoyi.cn/xiju/5085308.htm)
-- [汉庭快捷“欢聚六人房”走红](http://www.movie.hkepx.cn/xiju/6484379.htm)
-- [芬兰小龙虾泛滥！现钓现吃小龙虾干爆桶太炸裂！中式小龙虾盛宴蒜蓉麻辣花式做法震碎芬兰人！](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
-- [金融监管总局：整治无序竞争取得成效](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
-- [央行将推动实现退出存贷款基准利率](http://www.movie.hkepx.cn/movie/4954417.htm)
-- [上课同学穿披日本军旗戴侵略军帽怎么办？](http://www.daogukj.com/8556378)
-- [【英雄联盟】K/DA官方MV - “FIRESTARTER（燃）”正式上线](http://www.daogukj.com/0551116)
-- [买扫地机别被“活水”两个字骗了，要热要薄还要省心才能走的稳！](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
+- [重阳节，以此摇滚，缅怀逝去的姐妹。](http://www.daogukj.com/7846527)
+- [如何评价DeepSeek 开放自研搜索API，单价为每1000次成功请求5元？](http://www.movie.hkepx.cn/movie/2779517.htm)
+- [徐佳宁求婚时说给你五个亿让你作](http://www.daogukj.com/5137842)
+- [南太行徒步失联的33岁女子已找到](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
+- [高校回应举报学术不端调查3个月无果](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
+- [高反去世男子母亲付了救援相关费用](http://www.daogukj.com/2275454)
+- [科比23岁女儿首登维密T台大秀](http://www.movie.hkepx.cn/movie/8955518.htm)
+- [何以中国当惊世界殊](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
+- [大学生生活费到底一个月多少合适](http://www.daogukj.com/3040545)
+- [【新赛季内容前瞻】阵营对决，绝密核电站，巴克什大更新！](http://www.movie.hkepx.cn/movie/0072136.htm)
+- [谭松韵刘学义像疲惫了一天的新郎新娘](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
+- [留学生披旭日旗细节：被同学当场控制](http://www.movie.hkepx.cn/xiju/2548466.htm)
+- [马斯克宣布明年给美国每名儿童送 1 股 SpaceX 股票，这相当于多少钱？他的目的是什么？](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
+- [救场李克勤走红草根歌手3周涨粉40万](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
+- [男子出狱发现账户50多万只剩六块四](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
+- [赖岳谦：解放军“四海联动”盯住美日](http://www.movie.hkepx.cn/movie/0563740.htm)
+- [以色列和英国的文明内斗](http://www.play.hengshemaoyi.cn/xiju/5085308.htm)
+- [最强修仙宇宙！炼丹、御剑、渡劫、炉鼎，这些修仙设定到底从哪来的？](http://www.movie.hkepx.cn/xiju/6484379.htm)
+- [马斯克已砸下3.66亿美元帮助共和党，他曾宣布减少政治支出，为何再次加码？](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
+- [李小冉离婚后找闺蜜疗伤](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
+- [法国骚乱反差一幕](http://www.movie.hkepx.cn/movie/4954417.htm)
+- [身披旭日旗中国留学生或被开除遣返](http://www.daogukj.com/8556378)
+- [星巴克店员称 10 月 20 日起实施「消费入座」新规，你支持吗？落地难度大吗？](http://www.daogukj.com/0551116)
+- [司美格鲁肽在美遭批量起诉，因患者用后患上可致盲的眼病，这真是GLP-1导致的吗？此类药物还有哪些风险？](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
 
 </details>
 
 ## 原始来源
 
-- [《是我嘴太小了吗》](https://b23.tv/BV1omnG6nEUJ)
+- [加拿大军事基地发生重大爆炸火灾事故，已致4死数十伤，这场致命事故有哪些关键细节？暴露了什么问题？](https://www.zhihu.com/question/2095269037022492235)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b3cd45dc40dcc69aa46b -->
+<!-- content-fingerprint: 0c1fa44cd2505ec61d6e -->
