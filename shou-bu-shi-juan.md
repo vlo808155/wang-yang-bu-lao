@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 鲁豫对话王凯：出道20年，一个演员的「不妥协」| 陈鲁豫·慢谈EP27【视频播客】
+# 如何看待媒体评中国留学生身披旭日旗事件，称要对「精日」言行零容忍？
 
-> 来源：哔哩哔哩热门 · 排名：第 14 位 · 热度：439659 · 分类：日常 · 更新：2026-10-20T09:41:13+08:00
+> 来源：知乎热榜 · 排名：第 14 位 · 热度：133 万热度 · 分类：问答 · 更新：2026-10-20T14:37:04+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“鲁豫对话王凯：出道20年，一个演员的「不妥协」| 陈鲁豫·慢谈EP27【视频播客】”位列第 14 位，公开热度指标为 439659，榜单分类为“日常”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待媒体评中国留学生身披旭日旗事件，称要对「精日」言行零容忍？”位列第 14 位，公开热度指标为 133 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：从新华书店库管员到中戏科班生，他是手握多部热剧的实力派演员。从《丑女无敌》到《伪装者》、《琅琊榜》、《大江大河》，再到《交锋》，人生的不同阶段，他总能带来令人印象深刻的角色和作品。出道20年，他习惯藏在角色背后，带要拍好戏的使命，一头扎进生活和表演中。 本期《陈鲁豫·慢谈》，鲁豫对话王凯。他们聊角色演绎的幕后故事，聊14岁萌生表演梦想的准备，也谈迈入40岁之后的状态变化。
+来源公开摘要显示：近日，莫斯科大学一名中国留学生，在课堂上身披旭日旗引发愤慨。事发时其他中国留学生当场制止，体现广大青年铭记历史、心怀家国。 对“精日”分子的挑衅需时刻警惕，他们拿民族苦难娱乐、为侵略开脱，暴露的是历史观与价值观的扭曲。 而错误认知反复滋长，与一些圈群中的相互鼓动有关。既制止公开挑衅，也阻断恶意串联，才能消除“精日”分子的活动空间。如今爱国主义教育融入社会生活。要讲清历史事实、回应青年疑问，使感动沉淀为全面理解，使认同建立在深入思考之上，促进形成不随杂音摇摆的价值判断，有效滋养每一位国民的家国情怀。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `日常`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [蒙古国草原火灾疑似是日本人“点的”](xue-fu-wu-che.md)
-- [李勒优生病都是一个人去医院](bo-wen-qiang-ji.md)
-- [一线城市二手房价环比连续7个月上涨](wen-gu-zhi-xin.md)
-- [MiniMax 发布新模型 M3.1-Flash，主打多模态编程，其实际性能表现如何？](ju-yi-fan-san.md)
+- [《听见你的心声》08“初恋要来我家住，所以爸，你还是去住院吧……”（本故事纯属虚构，请相信科学）](xue-fu-wu-che.md)
+- [LPL四队承包S16瑞士轮前四场](bo-wen-qiang-ji.md)
+- [女子每天2杯咖啡打喷嚏震断肋骨](wen-gu-zhi-xin.md)
+- [人民日报钟声：日本再次撕下和平伪装](ju-yi-fan-san.md)
 
 ## 站内推荐
 
-- [董明珠称格力技工学校禁止谈恋爱](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
-- [评论员：日美军演炫耀武力乱搅局](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
-- ["早期的豺狼"](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
-- [《三角洲行动》新干员档案：维罗妮卡·卡尔多佐—代号野火](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
-- [【微恐/无跳脸杀】错位的比奇堡](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
+- [退休时间是按生日当天还是当月算](https://github.com/vlo808155/hua-she-tian-zu/blob/main/feng-he-ri-li.md)
+- [东北悬疑片终于开始松弛了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-gu-zuo-qi.md)
+- [谁能认出来这是周深](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dui-niu-tan-qin.md)
+- [李小冉官宣去年已经与徐佳宁离婚，他们的婚姻可能出现了什么问题？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shi-shi-qiu-shi.md)
+- [疫苗大退潮](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/sheng-dong-huo-po.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [李小冉：一忍再忍不想占用公共资源](http://www.daogukj.com/8478676)
-- [【NMIXX】"긴 소원(Birthday Wish)" M/V](http://www.daogukj.com/3239411)
-- [带着100万，我们见了成人网红...](http://www.play.hengshemaoyi.cn/kongbu/6693593.htm)
-- [董明珠关掉格力技校小卖部](http://www.play.hengshemaoyi.cn/kongbu/3393647.htm)
-- [网传大闸蟹“全面滞销” 记者调查](http://www.daogukj.com/5177434)
-- [维密靠什么赚钱](http://www.daogukj.com/9757981)
-- [六个字读懂中国经济新亮点](http://www.play.hengshemaoyi.cn/kongbu/5254314.htm)
-- [董明珠称格力技工学校禁止谈恋爱](http://www.play.hengshemaoyi.cn/kongbu/6062543.htm)
-- [21 岁男子在稻城亚丁徒步时因严重高反去世，官方称「事发地不在景区，系非法穿越」，有哪些警示？](http://www.daogukj.com/vvhxfmlz/)
-- [LPL四队承包S16瑞士轮前四场](http://www.play.hengshemaoyi.cn/kongbu/6868011.htm)
-- [如何看待C罗遭葡萄牙足协处罚停赛30天、罚款255欧，仍可入选下期大名单？你觉得处罚力度轻吗？](http://www.play.hengshemaoyi.cn/xiju/0581687.htm)
-- [荒郊野地安装健身器材 这不是摆设吗](http://www.play.hengshemaoyi.cn/xiju/3249372.htm)
-- [仙人跳后报警被强奸多名受害人被抓](http://www.movie.hkepx.cn/xiju/6239174.htm)
-- [圆通深夜致歉](http://www.movie.hkepx.cn/xiju/9361968.htm)
-- [iPhone Duo 溢价从超5万元跌至3000元，首销价格为什么会快速回落？](http://www.play.hengshemaoyi.cn/xiju/0141985.htm)
-- [李勒优生病都是一个人去医院](http://www.daogukj.com/3639582)
-- [【微恐/无跳脸杀】错位的比奇堡](http://www.daogukj.com/olcgjzxy/)
-- ["早期的豺狼"](http://www.play.hengshemaoyi.cn/xiju/4459303.htm)
-- [他用团长的名字 走过了传奇的一生](http://www.daogukj.com/ogctigmk/)
-- [谭松韵刘学义像疲惫了一天的新郎新娘](http://www.play.hengshemaoyi.cn/kongbu/4101569.htm)
-- [山姆为何一边口碑崩塌一边规模狂奔](http://www.play.hengshemaoyi.cn/kongbu/1623587.htm)
-- [首个二手房涨价的城市出现了](http://www.movie.hkepx.cn/xiju/2974024.htm)
-- [葡萄牙足协宣布禁赛C罗30天](http://www.daogukj.com/qduaipey/)
-- [《潜伏》晚秋看起来并不是一个忠诚坚韧之人，为何片尾也进行潜伏任务？](http://www.play.hengshemaoyi.cn/xiju/8227935.htm)
-- [蒙古国草原火灾疑似是日本人“点的”](http://www.play.hengshemaoyi.cn/kongbu/4160027.htm)
-- [C罗被禁赛30天](http://www.play.hengshemaoyi.cn/kongbu/9952478.htm)
-- [中国留学生俄罗斯课堂披旭日旗后道歉且已被遣返，如何评价？他在俄罗斯当地及回国后可能面临哪些实质追责？](http://www.movie.hkepx.cn/xiju/1449526.htm)
-- [长鑫科技股价跳水，市值跌破3万亿元，前三季度预赚 1300 多亿还推出回购，为什么股价反而大跌？](http://www.play.hengshemaoyi.cn/kongbu/5233867.htm)
-- [《三角洲行动》新干员档案：维罗妮卡·卡尔多佐—代号野火](http://www.daogukj.com/foorujpq/)
-- [情侣无视火焰在抗议现场淡定饮酒交谈](http://www.movie.hkepx.cn/xiju/1941094.htm)
-- [咒回传奇人物志——虎杖悠仁（上）](http://www.movie.hkepx.cn/movie/4257941.htm)
-- [2026年前三季度国内生产总值1071071亿元，同比增长4.6%，如何解读这一数据？](http://www.play.hengshemaoyi.cn/kongbu/5339935.htm)
-- [上课同学穿披日本军旗戴侵略军帽怎么办？](http://www.daogukj.com/ailrualr/)
+- [南部战区回应美舰冲闯中国仙宾礁海域](http://www.daogukj.com/8478676)
+- [iG出征单曲《仁川共鸣》](http://www.daogukj.com/3239411)
+- [《绝区零》菲欧妮EP | 1% Battery Girl 低电量女孩](http://www.play.hengshemaoyi.cn/kongbu/6693593.htm)
+- [特朗普：中方在乌问题上立场很公允](http://www.play.hengshemaoyi.cn/kongbu/3393647.htm)
+- [十通陌生电话七通没人接](http://www.daogukj.com/5177434)
+- [从35楼坠落生还网红再发声](http://www.daogukj.com/9757981)
+- [何以中国当惊世界殊](http://www.play.hengshemaoyi.cn/kongbu/5254314.htm)
+- [退休时间是按生日当天还是当月算](http://www.play.hengshemaoyi.cn/kongbu/6062543.htm)
+- [中国留学生俄罗斯课堂披旭日旗后道歉且已被遣返，如何评价？他在俄罗斯当地及回国后可能面临哪些实质追责？](http://www.daogukj.com/vvhxfmlz/)
+- [Lindt瑞士莲](http://www.play.hengshemaoyi.cn/kongbu/6868011.htm)
+- [智驾小蓝灯颜色进入新国标](http://www.play.hengshemaoyi.cn/xiju/0581687.htm)
+- [觉得自己压力大的人可以看一下369](http://www.play.hengshemaoyi.cn/xiju/3249372.htm)
+- [知情人讲述“精日”留学生处置细节](http://www.movie.hkepx.cn/xiju/6239174.htm)
+- [小天才手表回应封闭社交](http://www.movie.hkepx.cn/xiju/9361968.htm)
+- [【科学修仙】怎能命丧于此？！~~~【up动画】](http://www.play.hengshemaoyi.cn/xiju/0141985.htm)
+- [LPL四队承包S16瑞士轮前四场](http://www.daogukj.com/3639582)
+- [疫苗大退潮](http://www.daogukj.com/olcgjzxy/)
+- [谁能认出来这是周深](http://www.play.hengshemaoyi.cn/xiju/4459303.htm)
+- [如何评价美国国土安全部将 DeepSeek 及相关第三方产品排除出联邦文职采购？](http://www.daogukj.com/ogctigmk/)
+- [《是我嘴太小了吗》](http://www.play.hengshemaoyi.cn/kongbu/4101569.htm)
+- [教妹妹开车，用我的声音，我成功了！](http://www.play.hengshemaoyi.cn/kongbu/1623587.htm)
+- [台风蔷琵来了](http://www.movie.hkepx.cn/xiju/2974024.htm)
+- [长鑫科技股价跳水，市值跌破3万亿元，前三季度预赚 1300 多亿还推出回购，为什么股价反而大跌？](http://www.daogukj.com/qduaipey/)
+- [2026年前三季度国内生产总值1071071亿元，同比增长4.6%，如何解读这一数据？](http://www.play.hengshemaoyi.cn/xiju/8227935.htm)
+- [《听见你的心声》08“初恋要来我家住，所以爸，你还是去住院吧……”（本故事纯属虚构，请相信科学）](http://www.play.hengshemaoyi.cn/kongbu/4160027.htm)
+- [刘诗诗杀进东北悬疑赛道？开场就是冻尸，一集死一人？！最新悬疑剧《醉梦》【以片概全】](http://www.play.hengshemaoyi.cn/kongbu/9952478.htm)
+- [法国爆发严重暴力骚乱，超50万人上街抗议，马克龙公开谴责，冲突的深层根源是什么？折射出法国怎样的危机？](http://www.movie.hkepx.cn/xiju/1449526.htm)
+- [一次只偷一瓶 偷了104次](http://www.play.hengshemaoyi.cn/kongbu/5233867.htm)
+- [李小冉官宣去年已经与徐佳宁离婚，他们的婚姻可能出现了什么问题？](http://www.daogukj.com/foorujpq/)
+- [刘恺威黎纪君承认恋情](http://www.movie.hkepx.cn/xiju/1941094.htm)
+- [Key 社核心创作者麻枝准确诊咽喉癌并放弃积极治疗专注创作，如何看待其选择？](http://www.movie.hkepx.cn/movie/4257941.htm)
+- [“当人生变成曲线，你会看见谁一直陪着你”【把回忆拼好给你-DJ变速】【生命线の小曲】](http://www.play.hengshemaoyi.cn/kongbu/5339935.htm)
+- [带着100万，我们见了成人网红...](http://www.daogukj.com/ailrualr/)
 - [如何评价DeepSeek V4.1 Flash 1017登顶「史上最差AI模型名称排行榜」?](http://www.play.hengshemaoyi.cn/xiju/5385609.htm)
-- [李小冉前夫及关联公司被执行2111万](http://www.movie.hkepx.cn/movie/0789293.htm)
-- [为什么嘴吹燃着的木炭，木炭会加速燃烧，呼出来的不是二氧化碳吗?](http://www.movie.hkepx.cn/xiju/4446039.htm)
-- [评论员：美国不会放弃西太平洋](http://www.play.hengshemaoyi.cn/kongbu/7816841.htm)
-- [王自如喊话罗永浩，称想与其和解，他们之间有啥过往恩怨？能成功和解吗？](http://www.play.hengshemaoyi.cn/kongbu/9613360.htm)
-- [看我把你创飞！全新突击野火技能详解！雷斯这品味真不错啊！](http://www.daogukj.com/cdrpkogq/)
-- [动能向新、结构向优](http://www.movie.hkepx.cn/movie/2665746.htm)
-- [东风-21D导弹为何让美航母如坐针毡](http://www.daogukj.com/zobrwsba/)
-- [如何一句话激怒古法程序员？](http://www.daogukj.com/0656524)
-- [【英雄联盟】K/DA官方MV - “FIRESTARTER（燃）”正式上线](http://www.movie.hkepx.cn/movie/2963324.htm)
-- [小天才手表封闭社交被质疑](http://www.daogukj.com/oapvfaci/)
-- [英伟达宣布新突破](http://www.daogukj.com/1720245)
-- [马斯克向特朗普账户捐80亿美元](http://www.play.hengshemaoyi.cn/xiju/2000340.htm)
-- [田曦薇剧宣真穿的婚纱](http://www.play.hengshemaoyi.cn/kongbu/4181508.htm)
-- [女子出车祸鲨鱼夹插入后脑勺](http://www.play.hengshemaoyi.cn/kongbu/7488097.htm)
-- [官方辟谣艾滋病患者到济南恶意传播](http://www.play.hengshemaoyi.cn/xiju/5445185.htm)
-- [浪姐 离婚玄学](http://www.movie.hkepx.cn/movie/7058284.htm)
+- [天猫双11首次卖整车](http://www.movie.hkepx.cn/movie/0789293.htm)
+- [身披旭日旗留学生就读于历史专业](http://www.movie.hkepx.cn/xiju/4446039.htm)
+- [何宣林 高铭辰](http://www.play.hengshemaoyi.cn/kongbu/7816841.htm)
+- [刘恺威承认新恋情](http://www.play.hengshemaoyi.cn/kongbu/9613360.htm)
+- [乌军无人机前线撤离伤员视频被质疑](http://www.daogukj.com/cdrpkogq/)
+- [一组数字看2026前三季度中国经济](http://www.movie.hkepx.cn/movie/2665746.htm)
+- [小天才手表封闭社交被质疑](http://www.daogukj.com/zobrwsba/)
+- [台退将：解放军南海实弹射击一举两得](http://www.daogukj.com/0656524)
+- [官方辟谣艾滋病患者到济南恶意传播](http://www.movie.hkepx.cn/movie/2963324.htm)
+- [星巴克回应“消费才能入座”提示牌](http://www.daogukj.com/oapvfaci/)
+- [一锅开水直接加进肉馅里？这样做出来的包子馅汤汁竟然这么多？ 到底是什么原理？](http://www.daogukj.com/1720245)
+- [如何一句话激怒古法程序员？](http://www.play.hengshemaoyi.cn/xiju/2000340.htm)
+- [一辆车，为什么要给座椅装“空气悬架”？](http://www.play.hengshemaoyi.cn/kongbu/4181508.htm)
+- [【Day 0】我是DeepSeek鲸鱼娘，这个B站账号现在归我了](http://www.play.hengshemaoyi.cn/kongbu/7488097.htm)
+- [《潜伏》晚秋看起来并不是一个忠诚坚韧之人，为何片尾也进行潜伏任务？](http://www.play.hengshemaoyi.cn/xiju/5445185.htm)
+- [浙江宣传批中国留学生披旭日旗](http://www.movie.hkepx.cn/movie/7058284.htm)
 
 </details>
 
 ## 原始来源
 
-- [鲁豫对话王凯：出道20年，一个演员的「不妥协」| 陈鲁豫·慢谈EP27【视频播客】](https://b23.tv/BV1wZJD6NEku)
+- [如何看待媒体评中国留学生身披旭日旗事件，称要对「精日」言行零容忍？](https://www.zhihu.com/question/2095627907880019601)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: af078ef6e856130158e8 -->
+<!-- content-fingerprint: 2177f01b787816a69ade -->
