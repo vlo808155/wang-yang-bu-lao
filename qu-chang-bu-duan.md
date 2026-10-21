@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 男童没唱歌被老师踢倒 警方终止调查
+# 伊朗已有超3万名女性忍者，熟练使用弓、剑、飞镖等武器等训练画面走热，背后是怎样的社会文化环境？
 
-> 来源：百度热搜 · 排名：第 15 位 · 热度：6374533 · 更新：2026-10-21T14:30:02+08:00
+> 来源：知乎热榜 · 排名：第 15 位 · 热度：185 万热度 · 分类：问答 · 更新：2026-10-21T20:15:18+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“男童没唱歌被老师踢倒 警方终止调查”位列第 15 位，公开热度指标为 6374533。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“伊朗已有超3万名女性忍者，熟练使用弓、剑、飞镖等武器等训练画面走热，背后是怎样的社会文化环境？”位列第 15 位，公开热度指标为 185 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：日前，华北某市一4岁男童家长准备提起行政复议。今年8月，其子因不开口唱歌被幼儿园老师踢倒跪地，涉事老师道歉后被开除。但一个月后，警方称此事不适用治安管理处罚法，终止案件调查。家长向区教委申请撤销涉事老师资格证，教委回复需先等公安机关调查认定结果。
+来源公开摘要显示：近日，一段展示伊朗全女性忍者学校训练场景的视频在社交平台走热。 视频中，伊朗姑娘们个个身手矫捷，能熟练使用弓、剑、双截棍、飞镖等各种武器，格斗技能满分！ 事实上，在伊朗，女性忍者被称为 “库内奇”，目前伊朗已有超3万名女性忍者。 伊朗女性忍者运动始于1989年，由教练阿克巴尔·法拉吉在德黑兰附近创立了第一家忍术俱乐部。在学校，姑娘们的训练内容非常全面。体能上包括空翻、攀爬墙壁、穿越障碍等；武器上则要熟练使用武士刀、双节棍、弓箭、手里剑等。 此前伊朗媒体报道，伊朗女性忍者学校的教练和学员反复强调，练习忍术的核心目的并非战斗，而是修身养性。 虽然练习忍术不是
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [武志红李雪分手多年恩怨](jing-yi-qiu-jing.md)
-- [媒体：董明珠办技校先别急着叫好](jiao-ta-shi-di.md)
-- [一家三口被困酒店卫生间超4小时，其间消防喷淋失控致婴儿险失温，当事人索赔15万，从法律角度如何解读？](shi-shi-qiu-shi.md)
-- [《南屏晚钟》来啦！](chi-zhi-yi-heng.md)
+- [入局](jing-yi-qiu-jing.md)
+- [曝自费高定艺人把品牌pr气坏了](jiao-ta-shi-di.md)
+- [洪超：长征途中牺牲的第一位红军师长](shi-shi-qiu-shi.md)
+- [如何看待人民锐评发表文章「特斯拉能飞，我们就被甩开了？」，中国汽车行业未来该如何发展？](chi-zhi-yi-heng.md)
 
 ## 站内推荐
 
-- [国际油价昨夜上演大逆转](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [宝马员工争着离职挤崩系统](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [一辆车，为什么要给座椅装“空气悬架”？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [今天吃红糖糍粑](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [癞蛤蟆被捧成萌宠](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [解放军“围观”美日演习？学者解读](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [学者：中方应对美舰南海试探手段充裕](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [人民日报评特斯拉能飞：不必妄自菲薄](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [DeepSeek推理框架对等支持华为英伟达](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [《绝区零》菲欧妮EP | 1% Battery Girl 低电量女孩](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [未央何处丨燕云X张良仁教授的“考古之旅”](http://www.daogukj.com/baxpihzh/)
-- [胖东来式的高待遇，是好生意的结果，还是好生意的原因？](http://www.play.hengshemaoyi.cn/kongbu/2062726.htm)
-- [怎么看DeepSeek官宣单集群日均吞吐达 155 万亿 Token，单卡每小时收入38 美金？](http://www.daogukj.com/1315659)
-- [陕西问界M9碰撞后起火](http://www.play.hengshemaoyi.cn/xiju/2704335.htm)
-- [媒体：董明珠办技校先别急着叫好](http://www.daogukj.com/lumregqz/)
-- [男孩因耐克鞋挑衅殴打同学致重伤](http://www.daogukj.com/kwbyfzbo/)
-- [PCL出事了？那MC下载和联机，我们先顶上了](http://www.movie.hkepx.cn/movie/4575020.htm)
-- [星巴克中国称10月22日起将在全国开始施行消费入座，你支持吗？消费入座对门店业绩和顾客体验有哪些影响？](http://www.daogukj.com/1670070)
-- [全球手机销量暴跌](http://www.play.hengshemaoyi.cn/xiju/3416396.htm)
-- [“小天才”就不能安安心心做块表吗](http://www.daogukj.com/1634277)
-- [多家高校家长吐槽大学课太少，担心孩子没课时睡懒觉，你怎么看待这件事？](http://www.daogukj.com/5380912)
-- [今天吃红糖糍粑](http://www.movie.hkepx.cn/xiju/8054512.htm)
-- [自己写的遗嘱，不经过公证，有法律效力吗？](http://www.daogukj.com/7644617)
-- [特朗普施压泽连斯基同俄达成协议](http://www.daogukj.com/5432364)
-- [雷霆马刺大冲突](http://www.play.hengshemaoyi.cn/xiju/0868894.htm)
-- [OpenAl 证明的朗道-西格尔零点问题被数学家重新解释，是否意味着这个问题被解决？](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
-- [《三过车门而不入》](http://www.play.hengshemaoyi.cn/xiju/2616443.htm)
-- [女子下班后绕道买菜，遭遇车祸身亡，人社部门不予认定工伤，法院判决算工伤，如何理解？](http://www.daogukj.com/0678164)
-- [律师谈肖战二开不予退票：值得点赞](http://www.daogukj.com/4244457)
-- [法国55万人大游行！但马克龙和夫人在跳舞](http://www.movie.hkepx.cn/movie/9295074.htm)
-- [医保个人账户跨省共济落地全国，意味着什么？将带来哪些利好？](http://www.play.hengshemaoyi.cn/xiju/0913157.htm)
-- [“中国AI禁令”拟出台 震动全球](http://www.movie.hkepx.cn/movie/2532435.htm)
-- [美舰冲闯仙宾礁是要为菲律宾撑腰吗](http://www.play.hengshemaoyi.cn/kongbu/9083706.htm)
-- [国台办正告日方停止在台湾问题上挑衅](http://www.movie.hkepx.cn/xiju/0437055.htm)
-- [宝马员工争着离职挤崩系统](http://www.play.hengshemaoyi.cn/xiju/0405943.htm)
-- [手机市场为何突然入冬了](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
-- [曝艺人自费高定](http://www.daogukj.com/8118057)
-- [我得到了，能看到表白率的超能力……](http://www.play.hengshemaoyi.cn/xiju/3197658.htm)
-- [星巴克明日起在中国施行消费入座](http://www.play.hengshemaoyi.cn/kongbu/3085425.htm)
-- [揭秘新兴赛博生意：谁在给机器人“卖命”？【晚点LatePost】](http://www.movie.hkepx.cn/movie/4468433.htm)
-- [马刺雷霆爆发冲突](http://www.movie.hkepx.cn/xiju/0951693.htm)
-- [丈夫1个拥抱 妻子断了5根肋骨](http://www.movie.hkepx.cn/movie/5267051.htm)
-- [甲状腺癌为何越来越多](http://www.daogukj.com/3228319)
-- [网友高铁偶遇自称114岁老人，能熟练使用智能手机，年龄真实性如何？横跨民国到AI时代的人生会是怎样的？](http://www.movie.hkepx.cn/xiju/0255674.htm)
-- [财神窦占龙 第12集 宿仇【8月国创】](http://www.play.hengshemaoyi.cn/kongbu/6482335.htm)
-- [魏娆 配阴婚](http://www.daogukj.com/cmwhbpsa/)
-- [「红果短剧降智」引发广泛热议，为什么越是剧情粗糙的短剧越让人停不下来？](http://www.daogukj.com/6408302)
-- [武志红李雪分手多年恩怨](http://www.play.hengshemaoyi.cn/kongbu/6504187.htm)
-- [国际油价昨夜上演大逆转](http://www.movie.hkepx.cn/xiju/8353840.htm)
-- [世界乱成一锅粥 中国安心过日子](http://www.daogukj.com/jhhicgnj/)
-- [多项惠民政策加速落地](http://www.play.hengshemaoyi.cn/xiju/2201754.htm)
-- [国家癌症中心公布发病前五癌症](http://www.movie.hkepx.cn/xiju/9904424.htm)
-- [拟出台的中国AI禁令震动全球](http://www.play.hengshemaoyi.cn/xiju/7993084.htm)
-- [国家数据集团成立，作为新央企以数据资源开发利用为主责主业，会如何重塑国内数据产业格局？](http://www.movie.hkepx.cn/xiju/2553336.htm)
-- [魏娆养母 伥鬼](http://www.play.hengshemaoyi.cn/kongbu/6028567.htm)
-- [网友称可用「蟑螂粉」作为蛋白粉平替，商家还强调「野生蟑螂」，先抛开味道，这「蟑螂粉」有可能安全有效吗？](http://www.play.hengshemaoyi.cn/xiju/6306862.htm)
-- [高铁座椅是HPV感染来源？专家辟谣](http://www.movie.hkepx.cn/xiju/2775713.htm)
-- [如何看待电视剧《兰香如故》中 兵部尚书韩粱被冻死这一情节？](http://www.movie.hkepx.cn/movie/5485785.htm)
-- [刚开完防欺凌大会学生就被打成重伤](http://www.play.hengshemaoyi.cn/xiju/5094963.htm)
-- [毛不易在朋友婚礼上的致辞](http://www.play.hengshemaoyi.cn/kongbu/1178935.htm)
+- [豆奶虫之殇【AI全民制作人】](http://www.daogukj.com/baxpihzh/)
+- [郭一鸣：A股压力究竟来自哪里](http://www.play.hengshemaoyi.cn/kongbu/2062726.htm)
+- [樊振东发文称不管啥心态，都无法改变偷拍不尊重人的本质，如何看待以爱为名的侵扰？怎样算真正支持运动员？](http://www.daogukj.com/1315659)
+- [3小时内连杀3人 49岁男子被判死刑](http://www.play.hengshemaoyi.cn/xiju/2704335.htm)
+- [曝自费高定艺人把品牌pr气坏了](http://www.daogukj.com/lumregqz/)
+- [如何评价山东“仙人跳”犯罪团伙作案38起，其中3名受害者拒不付款被采取强制措施，有哪些细节值得关注？](http://www.daogukj.com/kwbyfzbo/)
+- [连英伟达都承认消费级显卡已超出其控制，AI 显卡内存涨价狂潮何时结束?](http://www.movie.hkepx.cn/movie/4575020.htm)
+- [如何看待电视剧《兰香如故》兵部尚书韩粱被冻死这一情节？](http://www.daogukj.com/1670070)
+- [广东一小区现大量骨灰房？当地回应](http://www.play.hengshemaoyi.cn/xiju/3416396.htm)
+- [14家银行叫停或限制个人异地存款](http://www.daogukj.com/1634277)
+- [罗晋和唐嫣讨论女儿画的画](http://www.daogukj.com/5380912)
+- [DeepSeek推理框架对等支持华为英伟达](http://www.movie.hkepx.cn/xiju/8054512.htm)
+- [大衣哥朱之文拟再次起诉黑粉](http://www.daogukj.com/7644617)
+- [毛不易称结婚越来越不意味着什么](http://www.daogukj.com/5432364)
+- [大难不死的男孩爱上纯血家族的女孩【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/0868894.htm)
+- [杨幂压轴](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
+- [事关公积金贷款宁波辟谣](http://www.play.hengshemaoyi.cn/xiju/2616443.htm)
+- [国乒男团3比0伊朗](http://www.daogukj.com/0678164)
+- [《南屏晚钟》来啦！](http://www.daogukj.com/4244457)
+- [自己写的遗嘱，不经过公证，有法律效力吗？](http://www.movie.hkepx.cn/movie/9295074.htm)
+- [你是否认同当下电子游戏供给过于“丰富”，导致很多人不缺游戏玩，也根本玩不完？](http://www.play.hengshemaoyi.cn/xiju/0913157.htm)
+- [泽连斯基：愿保留75%领土控制权达协议](http://www.movie.hkepx.cn/movie/2532435.htm)
+- [张凌赫赴台被拒他们到底在怕什么](http://www.play.hengshemaoyi.cn/kongbu/9083706.htm)
+- [宇树发布H2-X功夫传奇](http://www.movie.hkepx.cn/xiju/0437055.htm)
+- [学者：中方应对美舰南海试探手段充裕](http://www.play.hengshemaoyi.cn/xiju/0405943.htm)
+- [电视剧三平台破万的演员只有7位](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
+- [艺 术 求 生](http://www.daogukj.com/8118057)
+- [《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约](http://www.play.hengshemaoyi.cn/xiju/3197658.htm)
+- [女子被自家12斤猫咪踹进手术室](http://www.play.hengshemaoyi.cn/kongbu/3085425.htm)
+- [如何看待武志红和李雪公开互撕，互相指控对方是 NPD？他们之间有什么恩怨？](http://www.movie.hkepx.cn/movie/4468433.htm)
+- [老板被限高11年坐绿皮车跑生意还债](http://www.movie.hkepx.cn/xiju/0951693.htm)
+- [法国爆发大规模示威，距离 2027 法国总统大选仅剩半年，这次事件会对大选造成什么影响？](http://www.movie.hkepx.cn/movie/5267051.htm)
+- [⚡赵本山 《绅士Gentle Man》⚡](http://www.daogukj.com/3228319)
+- [DeepSeek为何一周内接连推出三个产品](http://www.movie.hkepx.cn/xiju/0255674.htm)
+- [日本稀土供应链困局何解](http://www.play.hengshemaoyi.cn/kongbu/6482335.htm)
+- [有长寿潜质的人 身体大多有这5个表现](http://www.daogukj.com/cmwhbpsa/)
+- [为啥这几年双十一、双十二活动周期被拉长、玩法不断改进，反而热度好像还不如以前了？你今年有「剁手」吗？](http://www.daogukj.com/6408302)
+- [入局](http://www.play.hengshemaoyi.cn/kongbu/6504187.htm)
+- [解放军“围观”美日演习？学者解读](http://www.movie.hkepx.cn/xiju/8353840.htm)
+- [马天宇张萌十年后重聚 节目中大哭](http://www.daogukj.com/jhhicgnj/)
+- [外国友人镜头里的中国乡村全面振兴](http://www.play.hengshemaoyi.cn/xiju/2201754.htm)
+- [“神探”李昌钰将安葬于扬州](http://www.movie.hkepx.cn/xiju/9904424.htm)
+- [12306回应女子迟到错过检票失控哀求](http://www.play.hengshemaoyi.cn/xiju/7993084.htm)
+- [ES高定暗夜玫瑰裙](http://www.movie.hkepx.cn/xiju/2553336.htm)
+- [红果短剧自砍摇钱树](http://www.play.hengshemaoyi.cn/kongbu/6028567.htm)
+- [医保个人账户跨省共济落地全国，意味着什么？将带来哪些利好？](http://www.play.hengshemaoyi.cn/xiju/6306862.htm)
+- [五部门发布骗局风险提示](http://www.movie.hkepx.cn/xiju/2775713.htm)
+- [国家癌症中心公布发病前五癌症](http://www.movie.hkepx.cn/movie/5485785.htm)
+- [无法想象一个南京的历史系学生精日](http://www.play.hengshemaoyi.cn/xiju/5094963.htm)
+- [荣耀Robot Phone上手体验：形态特别，用起来咋样？](http://www.play.hengshemaoyi.cn/kongbu/1178935.htm)
 
 </details>
 
 ## 原始来源
 
-- [男童没唱歌被老师踢倒 警方终止调查](https://www.baidu.com/s?wd=%E7%94%B7%E7%AB%A5%E6%B2%A1%E5%94%B1%E6%AD%8C%E8%A2%AB%E8%80%81%E5%B8%88%E8%B8%A2%E5%80%92+%E8%AD%A6%E6%96%B9%E7%BB%88%E6%AD%A2%E8%B0%83%E6%9F%A5&sa=fyb_news&rsv_dl=fyb_news)
+- [伊朗已有超3万名女性忍者，熟练使用弓、剑、飞镖等武器等训练画面走热，背后是怎样的社会文化环境？](https://www.zhihu.com/question/2095115972684112468)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6e98a16672cd3b3f8780 -->
+<!-- content-fingerprint: ad07b47a3b8f934d153a -->
