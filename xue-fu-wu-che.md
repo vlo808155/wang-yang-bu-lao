@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 泽连斯基表示，乌克兰愿在保留至少75%领土控制权的基础上达成和平协议，你怎么看？
+# 到底是谁开着空调还要裹毯子啊？！
 
-> 来源：知乎热榜 · 排名：第 14 位 · 热度：222 万热度 · 分类：问答 · 更新：2026-10-22T14:40:07+08:00
+> 来源：哔哩哔哩热门 · 排名：第 14 位 · 热度：427360 · 分类：家居房产 · 更新：2026-10-22T20:27:29+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“泽连斯基表示，乌克兰愿在保留至少75%领土控制权的基础上达成和平协议，你怎么看？”位列第 14 位，公开热度指标为 222 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“到底是谁开着空调还要裹毯子啊？！”位列第 14 位，公开热度指标为 427360，榜单分类为“家居房产”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：据央视新闻消息，当地时间10月21日，乌克兰总统泽连斯基在接受采访时表示，乌方可在保留至少75%领土控制权的基础上达成和平协议。 主持人向泽连斯基提问称，他是否愿意接受一项和平协议，把一切按现状冻结下来，乌方仍然保有75%或更多的国土。泽连斯基予以肯定回答，称“现在我们必须冻结（战线），这是结束这场战争的切实办法。”（总台记者 董薇）泽连斯基：愿在保留至少75%领土控制权的基础上达成和平协议 - 新京报泽连斯基：愿在保留75%领土控制权的基础上达成和平协议
+来源公开摘要显示：我老婆总爱开着空调裹毯子，这不纯纯浪费电吗？！
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `家居房产`
 
 ## 相关热点
 
-- [不鸽了！饥来了！《饥困荒野》定档特别节目](bo-wen-qiang-ji.md)
-- [全球首款乙肝功能性治愈药物](wen-gu-zhi-xin.md)
-- [严浩翔欧阳娣娣身高差](ju-yi-fan-san.md)
-- [湖三疯VS勇三崩 湖人大胜勇士22分](rong-hui-guan-tong.md)
+- [亡父存款取不出 男子发现多出个姐姐](bo-wen-qiang-ji.md)
+- [VOGUE阵容](wen-gu-zhi-xin.md)
+- [泽连斯基对领土态度为什么突然松动](ju-yi-fan-san.md)
+- [民进党当局拒绝艺人张凌赫赴台交流，国台办回应称「与广大台湾同胞的意愿背道而驰」，如何看待这件事？](rong-hui-guan-tong.md)
 
 ## 站内推荐
 
-- [张萌后悔找马天宇上节目](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
-- [怎么看解放军4艘大型登陆舰实弹演练](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
-- [为什么我国的中学生大部分都不会做引体向上？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
-- [3Blue1Brown 称「现在是学数学的最佳时机」，如何看待此观点？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
-- [《清微观来的插班生》EP02 ：报告老师！有蛇精！ 【UP动画】](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
+- [女子离婚后发现前夫婚内继承 400 多万房款，起诉要求分割这笔钱财，法院判决支持，如何从法律角度解读？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/chun-nuan-hua-kai.md)
+- [儿子逼父母贷款替其还债被拒，欲断绝父子关系被父亲打致轻伤二级，如何理解法院判父亲免予刑事处罚？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-zi-qian-jin.md)
+- [腾讯股价跌破 400 港元创新低，市值较高点缩水近四成，问题出在哪？市场对腾讯的估值逻辑发生哪些转变？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/mang-ren-mo-xiang.md)
+- [老人因星巴克店员没倒满热水出言斥责](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/chi-zhi-yi-heng.md)
+- [iPhone Duo折叠3000次后折痕加深](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/xu-xu-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [新华社在美国找到红军长征时珍贵照片](http://www.play.hengshemaoyi.cn/xiju/7605701.htm)
-- [网友称黄豆吃多在列车连放128个闷屁，疑多位同车厢乘客称被臭到怀疑人生，黄豆吃多「危害」真有这么大吗？](http://www.daogukj.com/7763134)
-- [吴艳妮面对采访说自己训练强度能达到12秒7、12秒6的程度，但是比赛就是达不到，你怎么看？](http://www.movie.hkepx.cn/movie/9676418.htm)
-- [湖三疯VS勇三崩 湖人大胜勇士22分](http://www.daogukj.com/glgoceuy/)
-- [工业机器人为什么难普及](http://www.daogukj.com/orzdfsse/)
-- [医生说现在的鸡都是快速养殖，激素多，吃了对孩子身体不好，是这样吗？](http://www.play.hengshemaoyi.cn/xiju/8405399.htm)
-- [3Blue1Brown 称「现在是学数学的最佳时机」，如何看待此观点？](http://www.daogukj.com/eymflmzk/)
-- [地铁站内看书5小时被扣15元](http://www.play.hengshemaoyi.cn/kongbu/7715467.htm)
-- [贾乃亮从早播到晚](http://www.movie.hkepx.cn/movie/6971182.htm)
-- [越南明年GDP至少增长10%目标能实现吗](http://www.movie.hkepx.cn/movie/4395855.htm)
-- [为什么我国的中学生大部分都不会做引体向上？](http://www.daogukj.com/qotrqcnx/)
-- [张杰演唱会流泪发言被吐槽](http://www.movie.hkepx.cn/movie/3034740.htm)
-- [折1万次，会坏吗？iPhone Duo深度评测](http://www.play.hengshemaoyi.cn/xiju/2234210.htm)
-- [少女沦为工具，主角才是幕后黑手？腾讯最新大世界游戏这么癫？！](http://www.play.hengshemaoyi.cn/xiju/4074352.htm)
-- [半月谈：别让片面比较带偏AI讨论](http://www.daogukj.com/6535873)
-- [黄婷婷 李艺彤](http://www.play.hengshemaoyi.cn/kongbu/0771677.htm)
-- [南京警方回应「留学生在俄身披旭日旗」，称已有专门的部门在处理，哪些信息值得关注？](http://www.play.hengshemaoyi.cn/xiju/3926740.htm)
-- [揭露骗局 红军伟大长征不容消费](http://www.play.hengshemaoyi.cn/kongbu/0629663.htm)
-- [孟羽童晒与董明珠合照](http://www.movie.hkepx.cn/xiju/4618462.htm)
-- [《最绝望の守门员》](http://www.play.hengshemaoyi.cn/kongbu/4226628.htm)
-- [《代号：神不言》UFSH2026参会实机技术演示&实机特别影像](http://www.play.hengshemaoyi.cn/xiju/1687476.htm)
-- [国家癌症中心公布发病前五癌症，较二十年前发生变动，胃癌食管癌跌出前五，背后有哪些原因？反映了什么趋势？](http://www.daogukj.com/7225995)
-- [全球首款乙肝功能性治愈药物](http://www.movie.hkepx.cn/xiju/2047156.htm)
-- [张萌后悔找马天宇上节目](http://www.daogukj.com/9963303)
-- [严浩翔欧阳娣娣身高差](http://www.play.hengshemaoyi.cn/kongbu/1215997.htm)
-- [精油馆对会员洗脑把精油当中药喝](http://www.daogukj.com/ybrclrlt/)
-- [【战双帕弥什】「流光抛诸寰宇」版本PV](http://www.play.hengshemaoyi.cn/xiju/1146323.htm)
-- [广州白云代孕窝点无人开门难处置](http://www.daogukj.com/0361450)
-- [现实可比电影荒谬多了！这些看似鬼扯的桥段，一查资料全是真事！](http://www.daogukj.com/2827507)
-- [中国体操女队终结美国7连冠](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
-- [A股继续探底](http://www.movie.hkepx.cn/xiju/4072931.htm)
-- [《人间异想计划》22分钟实机首曝｜间章：如果之事与未践之约](http://www.movie.hkepx.cn/movie/5903663.htm)
-- [经纪公司回应崔秀彬照片事件](http://www.daogukj.com/vhjggfrk/)
-- [开超市到底该不该赊账？](http://www.play.hengshemaoyi.cn/kongbu/3924344.htm)
-- [国家癌症中心发布数据，甲状腺癌跃居发病第 3 位，20～39 岁男女发病率最高，为什么会这样？](http://www.movie.hkepx.cn/movie/9473120.htm)
-- [《嫁金钗》把观众当傻子](http://www.play.hengshemaoyi.cn/kongbu/1478965.htm)
-- [手握10篇SCI医学生盲猜病情引争议](http://www.daogukj.com/tfijfvel/)
-- [黄金](http://www.daogukj.com/dazlebgh/)
-- [抗日神剧逆天剧情！女兵战场睡觉？睡醒还要给她找吃的！](http://www.play.hengshemaoyi.cn/kongbu/6412162.htm)
-- [如何看待乘客错过高铁检票后情绪崩溃跪求工作人员，12306 回应无论是否发车不会例外放行？](http://www.play.hengshemaoyi.cn/kongbu/1040618.htm)
-- [女子地铁站内看书 5 个小时被扣 15 元，怎么看待地铁超时收费？其中读书空间等消费场景的设置合理吗？](http://www.movie.hkepx.cn/xiju/5518395.htm)
-- [李大霄：稳定市场正当其时](http://www.play.hengshemaoyi.cn/kongbu/5070757.htm)
-- [张凌赫赴台被拒他们到底在怕什么](http://www.movie.hkepx.cn/movie/5067570.htm)
-- [回望长征岁月 奋进复兴征程](http://www.movie.hkepx.cn/xiju/7472860.htm)
-- [iPhone Duo折叠3000次后折痕加深](http://www.daogukj.com/wzbnsgim/)
-- [坚持吃糙米6个月体检可能有哪些变化](http://www.movie.hkepx.cn/movie/6034324.htm)
-- [超强厄尔尼诺 秋台风](http://www.daogukj.com/skozyuih/)
-- [古代穷人为什么不搬到海边去？海边鱼多不是饿不死吗？](http://www.play.hengshemaoyi.cn/kongbu/7371955.htm)
-- [杭州大二学生开一人公司营收破60万](http://www.play.hengshemaoyi.cn/kongbu/2749128.htm)
-- [车灯新国标公布后，「外显大屏」形态的像素灯将成为历史，汽车大灯的技术发展方向将如何调整？](http://www.play.hengshemaoyi.cn/xiju/7990952.htm)
+- [参与过四级手术](http://www.play.hengshemaoyi.cn/xiju/7605701.htm)
+- [燕云×1818黄金眼 | 长乐未央，天下无诈](http://www.daogukj.com/7763134)
+- [北京市副市长夏林茂被查](http://www.movie.hkepx.cn/movie/9676418.htm)
+- [民进党当局拒绝艺人张凌赫赴台交流，国台办回应称「与广大台湾同胞的意愿背道而驰」，如何看待这件事？](http://www.daogukj.com/glgoceuy/)
+- [日本人为了让你吃蛋包饭的时候也不要忘了吃碗拉面有多拼](http://www.daogukj.com/orzdfsse/)
+- [折1万次，会坏吗？iPhone Duo深度评测](http://www.play.hengshemaoyi.cn/xiju/8405399.htm)
+- [老人因星巴克店员没倒满热水出言斥责](http://www.daogukj.com/eymflmzk/)
+- [张本智和被打0-11惨败](http://www.play.hengshemaoyi.cn/kongbu/7715467.htm)
+- [乒乓球亚锦赛男团半决赛，国乒3-1中国台北队，将在决赛对阵韩国队，如何评价本场比赛？](http://www.movie.hkepx.cn/movie/6971182.htm)
+- [外地患者组团到高校传播艾滋病不实](http://www.movie.hkepx.cn/movie/4395855.htm)
+- [腾讯股价跌破 400 港元创新低，市值较高点缩水近四成，问题出在哪？市场对腾讯的估值逻辑发生哪些转变？](http://www.daogukj.com/qotrqcnx/)
+- [沈阳商场保洁大叔高颜值出圈](http://www.movie.hkepx.cn/movie/3034740.htm)
+- [长征 永远在路上](http://www.play.hengshemaoyi.cn/xiju/2234210.htm)
+- [【逗鱼时刻】第500期 我还要再更500期！](http://www.play.hengshemaoyi.cn/xiju/4074352.htm)
+- [美国能靠芯片拖慢中国AI发展速度吗](http://www.daogukj.com/6535873)
+- [刘德华杭州演唱会“3+3”模式曝光](http://www.play.hengshemaoyi.cn/kongbu/0771677.htm)
+- [男子把银行卡藏鞋里寄出 父亲报案](http://www.play.hengshemaoyi.cn/xiju/3926740.htm)
+- [孙坚一边拍戏一边还债](http://www.play.hengshemaoyi.cn/kongbu/0629663.htm)
+- [多款 3A 老游戏被 AI 光速反编译并移植网页端，将对游戏行业带来哪些冲击？](http://www.movie.hkepx.cn/xiju/4618462.htm)
+- [李子祺回应自称参加过4级手术](http://www.play.hengshemaoyi.cn/kongbu/4226628.htm)
+- [姚明问机器人打篮球能不能做假动作](http://www.play.hengshemaoyi.cn/xiju/1687476.htm)
+- [曝某明星长期借不到高定，自费购买礼服后引该品牌PR暴怒，可能会是谁？为啥自费购买也会引起高奢品牌不满？](http://www.daogukj.com/7225995)
+- [VOGUE阵容](http://www.movie.hkepx.cn/xiju/2047156.htm)
+- [女子离婚后发现前夫婚内继承 400 多万房款，起诉要求分割这笔钱财，法院判决支持，如何从法律角度解读？](http://www.daogukj.com/9963303)
+- [泽连斯基对领土态度为什么突然松动](http://www.play.hengshemaoyi.cn/kongbu/1215997.htm)
+- [（2026·双11电脑配置推荐）爆肝一个月！教你把预算花在刀刃上，组装一台高性价比电脑，全实拍实测！超详细攻略！2000-5W预算，共22套配置！](http://www.daogukj.com/ybrclrlt/)
+- [羽泉老歌《叶子》为何掀起集体回忆杀](http://www.play.hengshemaoyi.cn/xiju/1146323.htm)
+- [日本关键稀土钇储备将耗尽，求助美国敦促中方放宽管制，稀土将耗尽一事将对日方产生多大影响？](http://www.daogukj.com/0361450)
+- [虞书欣95花首位三平台一番全集有广](http://www.daogukj.com/2827507)
+- [iPhone Duo测评出炉，折叠3000次后，折痕明显加深，高负载下发热明显，还有哪些问题值得关注？](http://www.play.hengshemaoyi.cn/kongbu/4402417.htm)
+- [北京市委常委夏林茂被查](http://www.movie.hkepx.cn/xiju/4072931.htm)
+- [明天尚公主就抬嫁金钗在单更什么](http://www.movie.hkepx.cn/movie/5903663.htm)
+- [解放军13艘次船舰位台岛周边活动](http://www.daogukj.com/vhjggfrk/)
+- [多地辟谣外地患者到高校传播艾滋病](http://www.play.hengshemaoyi.cn/kongbu/3924344.htm)
+- [人民日报评医学生盲猜病情引争议](http://www.movie.hkepx.cn/movie/9473120.htm)
+- [亚锦赛国乒女团0比1日本](http://www.play.hengshemaoyi.cn/kongbu/1478965.htm)
+- [国家癌症中心公布发病前五癌症，较二十年前发生变动，胃癌食管癌跌出前五，背后有哪些原因？反映了什么趋势？](http://www.daogukj.com/tfijfvel/)
+- [吴艳妮面对采访说自己训练强度能达到12秒7、12秒6的程度，但是比赛就是达不到，你怎么看？](http://www.daogukj.com/dazlebgh/)
+- [参加过四级手术](http://www.play.hengshemaoyi.cn/kongbu/6412162.htm)
+- [王兴兴：最快明年机器人就能整理房间](http://www.play.hengshemaoyi.cn/kongbu/1040618.htm)
+- [因为智商不够，从EXO到生子，被打脸的嘴硬的一生。【黄子韬徐艺洋官宣生子】](http://www.movie.hkepx.cn/xiju/5518395.htm)
+- [法国55万人大游行！但马克龙和夫人在跳舞](http://www.play.hengshemaoyi.cn/kongbu/5070757.htm)
+- [女子地铁站内看书 5 个小时被扣 15 元，怎么看待地铁超时收费？其中读书空间等消费场景的设置合理吗？](http://www.movie.hkepx.cn/movie/5067570.htm)
+- [中国经济运行的3个突出特点](http://www.movie.hkepx.cn/xiju/7472860.htm)
+- [张本智和输球后扶桌跪地](http://www.daogukj.com/wzbnsgim/)
+- [阿根廷男足与主帅斯卡洛尼续约，新合同将延续到2030年7月，对此你怎么看？](http://www.movie.hkepx.cn/movie/6034324.htm)
+- [许飞退出06超女群](http://www.daogukj.com/skozyuih/)
+- [日本教练队员都没等张本智和先行离开](http://www.play.hengshemaoyi.cn/kongbu/7371955.htm)
+- [医生说现在的鸡都是快速养殖，激素多，吃了对孩子身体不好，是这样吗？](http://www.play.hengshemaoyi.cn/kongbu/2749128.htm)
+- [《影之刃零》最终预告](http://www.play.hengshemaoyi.cn/xiju/7990952.htm)
 
 </details>
 
 ## 原始来源
 
-- [泽连斯基表示，乌克兰愿在保留至少75%领土控制权的基础上达成和平协议，你怎么看？](https://www.zhihu.com/question/2096328160241633097)
+- [到底是谁开着空调还要裹毯子啊？！](https://b23.tv/BV1QynB6EE7Z)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 2ddb8ca7870b60696b07 -->
+<!-- content-fingerprint: 22ed0d853855e1e0c79c -->
