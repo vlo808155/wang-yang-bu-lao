@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 西安阿达西称现在没有利润还贴钱
+# 央行将退出存贷款基准利率，用市场化利率指标来替代，如何解读这一变化带来的影响？
 
-> 来源：今日头条热榜 · 排名：第 15 位 · 热度：2545620 · 更新：2026-10-22T07:38:06+08:00
+> 来源：知乎热榜 · 排名：第 15 位 · 热度：179 万热度 · 分类：问答 · 更新：2026-10-22T09:51:50+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“西安阿达西称现在没有利润还贴钱”位列第 15 位，公开热度指标为 2545620。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“央行将退出存贷款基准利率，用市场化利率指标来替代，如何解读这一变化带来的影响？”位列第 15 位，公开热度指标为 179 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：在2026金融街论坛年会开幕式上，中国人民银行行长潘功胜表示，退出存贷款基准利率。随着利率市场化改革推进，存贷款基准利率逐步被市场化的定价基准替代。 银行贷款利率已经有贷款市场报价利率、银行间隔夜回购利率等多个定价基准；自今年一季度开始，人民银行对外公布了各个期限的存款平均利率，作为银行存款定价的参考。下一步，人民银行将推动这些领域的计息依据用市场化的利率指标来替代，实现退出金融机构存贷款基准利率。（财联社）潘功胜：将退出存贷款基准利率 用市场化利率指标来替代
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [宁德时代 A 股盘中跌超 10％，本轮大跌有哪些诱因？动力电池行业增长逻辑要变了吗？](jing-yi-qiu-jing.md)
-- [一起命案竟有三十多个嫌疑人？光天化日行凶，却没人看到？《谜探路德维希》第二季 上](jiao-ta-shi-di.md)
-- [问界回应车辆起火](shi-shi-qiu-shi.md)
-- [日本79岁女护理员上18小时夜班](chi-zhi-yi-heng.md)
+- [给91岁的超级玩家老爷爷爆改电竞房](jing-yi-qiu-jing.md)
+- [田曦薇演恶女 用力过猛](jiao-ta-shi-di.md)
+- [张小斐 救场](shi-shi-qiu-shi.md)
+- [意政府增派军人并批准法令以应对骚乱](chi-zhi-yi-heng.md)
 
 ## 站内推荐
 
-- [泽连斯基：愿保留75%领土以达和平](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
-- [传国玉玺究竟去哪了](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
-- [女子称被自家12斤猫踹进手术室](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
-- [李胜峰：大陆做好迎接任何挑战的准备](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
-- [女子下班后绕道买菜，遭遇车祸身亡，人社部门不予认定工伤，法院判决算工伤，如何理解？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
+- [中国限制盾构机出口对印度影响有多大](https://github.com/vlo808155/hua-she-tian-zu/blob/main/san-xin-er-yi.md)
+- [“小天才”就不能安安心心做块表吗](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wen-ji-qi-wu.md)
+- [媒体：中蒙边境火灾日企应向中国道歉](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/nan-yuan-bei-zhe.md)
+- [如何评价BioWare于10月22日宣布关闭，为何一个诞生过博德之门等游戏的公司最终走向如此下场？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zao-bi-tou-guang.md)
+- [26-27 赛季欧冠联赛阶段曼联 1-4 科莫，如何评价这场比赛？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gao-zhan-yuan-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [联想词](http://www.daogukj.com/baxpihzh/)
-- [蔡天凤案邻居证词曝光案发细节](http://www.play.hengshemaoyi.cn/kongbu/2062726.htm)
-- [如何看待乘客错过高铁检票后情绪崩溃跪求工作人员，12306 回应无论是否发车不会例外放行？](http://www.daogukj.com/1315659)
-- [艺 术 求 生](http://www.play.hengshemaoyi.cn/xiju/2704335.htm)
-- [一起命案竟有三十多个嫌疑人？光天化日行凶，却没人看到？《谜探路德维希》第二季 上](http://www.daogukj.com/lumregqz/)
-- [辛芷蕾凭《日掛中天》获威尼斯影后却未入围金鸡奖，如何看待这一结果？](http://www.daogukj.com/kwbyfzbo/)
-- [于东来：已拿出2000万投资爱情研究](http://www.movie.hkepx.cn/movie/4575020.htm)
-- [PHP 曝两个 Critical RCE 漏洞，影响有多大？](http://www.daogukj.com/1670070)
-- [PHP出现严重漏洞 多国紧急下线](http://www.play.hengshemaoyi.cn/xiju/3416396.htm)
-- [王虹再获大奖](http://www.daogukj.com/1634277)
-- [曝自费高定艺人名字](http://www.daogukj.com/5380912)
-- [李胜峰：大陆做好迎接任何挑战的准备](http://www.movie.hkepx.cn/xiju/8054512.htm)
-- [盛艾敬妈妈疑似涉嫌诈骗](http://www.daogukj.com/7644617)
-- [“把我撂得高高的 我都哭了”](http://www.daogukj.com/5432364)
-- [“汉末三杰”的皇甫嵩、朱儁和卢植三人谁最厉害？](http://www.play.hengshemaoyi.cn/xiju/0868894.htm)
-- [原来明星租一次高定这么贵啊](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
-- [事关公积金贷款宁波辟谣](http://www.play.hengshemaoyi.cn/xiju/2616443.htm)
-- [肖战刘铮亮当群演了](http://www.daogukj.com/0678164)
-- [抗日神剧逆天剧情！女兵战场睡觉？睡醒还要给她找吃的！](http://www.daogukj.com/4244457)
-- [12306回应Z114次列车开售即售罄](http://www.movie.hkepx.cn/movie/9295074.htm)
-- [已知西瓜瓤在西瓜被切开后是红色的，那切开之前是什么颜色的？](http://www.play.hengshemaoyi.cn/xiju/0913157.htm)
-- [年轻人盯上养老院里的新职业](http://www.movie.hkepx.cn/movie/2532435.htm)
-- [人民日报评特斯拉能飞：不必妄自菲薄](http://www.play.hengshemaoyi.cn/kongbu/9083706.htm)
-- [中国体操女团12套全顺](http://www.movie.hkepx.cn/xiju/0437055.htm)
-- [传国玉玺究竟去哪了](http://www.play.hengshemaoyi.cn/xiju/0405943.htm)
-- [全国流行“拼大学”](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
-- [《三过车门而不入》](http://www.daogukj.com/8118057)
-- [一束光，怎样变成你眼前的游戏世界？](http://www.play.hengshemaoyi.cn/xiju/3197658.htm)
-- [地铁站内看书5小时被扣15元](http://www.play.hengshemaoyi.cn/kongbu/3085425.htm)
-- [有长寿潜质的人身体大多有这5个表现](http://www.movie.hkepx.cn/movie/4468433.htm)
-- [《南屏晚钟》来啦！](http://www.movie.hkepx.cn/xiju/0951693.htm)
-- [两部门发布公告，对盾构机、挖泥船、高端无人机等实施出口管制，释放了哪些信号？](http://www.movie.hkepx.cn/movie/5267051.htm)
-- [高市早苗推荐，暴打东大情报组织！日本大火的抗中神剧看瞎了我的眼【毒舌的南瓜】](http://www.daogukj.com/3228319)
-- [意政府增派军人并批准法令以应对骚乱](http://www.movie.hkepx.cn/xiju/0255674.htm)
-- [“小天才”就不能安安心心做块表吗](http://www.play.hengshemaoyi.cn/kongbu/6482335.htm)
-- [抽象历史人物志——张作霖](http://www.daogukj.com/cmwhbpsa/)
-- [武志红李雪被指缺乏爱的体验](http://www.daogukj.com/6408302)
-- [宁德时代 A 股盘中跌超 10％，本轮大跌有哪些诱因？动力电池行业增长逻辑要变了吗？](http://www.play.hengshemaoyi.cn/kongbu/6504187.htm)
-- [泽连斯基：愿保留75%领土以达和平](http://www.movie.hkepx.cn/xiju/8353840.htm)
-- [陶哲轩和邓煜的对谈《数学与 AI 究竟是什么关系？》，如何理解他们各自的观点？](http://www.daogukj.com/jhhicgnj/)
+- [高市早苗推荐，暴打东大情报组织！日本大火的抗中神剧看瞎了我的眼【毒舌的南瓜】](http://www.daogukj.com/baxpihzh/)
+- [原来用AI写论文是会有痕迹的](http://www.play.hengshemaoyi.cn/kongbu/2062726.htm)
+- [已知西瓜瓤在西瓜被切开后是红色的，那切开之前是什么颜色的？](http://www.daogukj.com/1315659)
+- [不抛弃不放弃，摩托老哥双排，七星大佬化身如来！](http://www.play.hengshemaoyi.cn/xiju/2704335.htm)
+- [田曦薇演恶女 用力过猛](http://www.daogukj.com/lumregqz/)
+- [白宫新闻发言人五天光速离职，我的评价是不如我](http://www.daogukj.com/kwbyfzbo/)
+- [女子称被自家12斤猫踹进手术室](http://www.movie.hkepx.cn/movie/4575020.htm)
+- [如何评价《offer8》医学季定档后引发医学生集体吐槽？真实的医学生规培现状与节目呈现差别有多大？](http://www.daogukj.com/1670070)
+- [中国这一冠 等了20年](http://www.play.hengshemaoyi.cn/xiju/3416396.htm)
+- [地铁站内看书5小时被扣15元](http://www.daogukj.com/1634277)
+- [周杰伦说我是中国人有什么可讨论的](http://www.daogukj.com/5380912)
+- [如何评价BioWare于10月22日宣布关闭，为何一个诞生过博德之门等游戏的公司最终走向如此下场？](http://www.movie.hkepx.cn/xiju/8054512.htm)
+- [伊朗最高领袖会见议会议长卡利巴夫](http://www.daogukj.com/7644617)
+- [体检查出这6种病基本不用治](http://www.daogukj.com/5432364)
+- [看中国使馆对线菲律宾魔怔人爽过AI短剧](http://www.play.hengshemaoyi.cn/xiju/0868894.htm)
+- [骗子冒充儿子朋友上门取走5万](http://www.play.hengshemaoyi.cn/kongbu/9610382.htm)
+- [台风蔷琵周末将给江浙沪台带去风雨](http://www.play.hengshemaoyi.cn/xiju/2616443.htm)
+- [iPhoneDuo3.2万次折叠后手感无变化](http://www.daogukj.com/0678164)
+- [入局](http://www.daogukj.com/4244457)
+- [为什么做豆腐用黄豆，不用其他豆类？](http://www.movie.hkepx.cn/movie/9295074.htm)
+- [《边缘行者 2》开播获外媒满分评价，该作水准究竟如何？](http://www.play.hengshemaoyi.cn/xiju/0913157.htm)
+- [年轻人开始喝水了 超市货架也在变](http://www.movie.hkepx.cn/movie/2532435.htm)
+- [《小城良方》开播口碑](http://www.play.hengshemaoyi.cn/kongbu/9083706.htm)
+- [中国体操女团时隔20年夺冠](http://www.movie.hkepx.cn/xiju/0437055.htm)
+- [“小天才”就不能安安心心做块表吗](http://www.play.hengshemaoyi.cn/xiju/0405943.htm)
+- [红果把观众的时间标好了价](http://www.play.hengshemaoyi.cn/kongbu/2600123.htm)
+- [重庆：拟追责问责公职人员94人](http://www.daogukj.com/8118057)
+- [一起命案竟有三十多个嫌疑人？光天化日行凶，却没人看到？《谜探路德维希》第二季 上](http://www.play.hengshemaoyi.cn/xiju/3197658.htm)
+- [致敬伟大的胜利](http://www.play.hengshemaoyi.cn/kongbu/3085425.htm)
+- [广东台山通报“住宅疑存放骨灰”](http://www.movie.hkepx.cn/movie/4468433.htm)
+- [杭州大二学生开一人公司营收破60万](http://www.movie.hkepx.cn/xiju/0951693.htm)
+- [红果短剧宣布将下线金币功能，这一商业决策背后有哪些考虑？是不需要靠「薅羊毛」引流实现增长了吗？](http://www.movie.hkepx.cn/movie/5267051.htm)
+- [超强台风来了：江浙沪台周末要下台风雨，华南福建先降温后又升温](http://www.daogukj.com/3228319)
+- [法国总统：坚决杜绝骚乱重演](http://www.movie.hkepx.cn/xiju/0255674.htm)
+- [传国玉玺究竟去哪了](http://www.play.hengshemaoyi.cn/kongbu/6482335.htm)
+- [《三过车门而不入》](http://www.daogukj.com/cmwhbpsa/)
+- [中国体操女团夺冠解说哽咽了](http://www.daogukj.com/6408302)
+- [给91岁的超级玩家老爷爷爆改电竞房](http://www.play.hengshemaoyi.cn/kongbu/6504187.htm)
+- [中国限制盾构机出口对印度影响有多大](http://www.movie.hkepx.cn/xiju/8353840.htm)
+- [PHP 曝两个 Critical RCE 漏洞，影响有多大？](http://www.daogukj.com/jhhicgnj/)
 - [中国经济发展绿色化底色愈加鲜明](http://www.play.hengshemaoyi.cn/xiju/2201754.htm)
-- [唐驳虎：中国老板已准备放弃越南了](http://www.movie.hkepx.cn/xiju/9904424.htm)
-- [邱祺缘 体操世锦赛](http://www.play.hengshemaoyi.cn/xiju/7993084.htm)
-- [田曦薇演恶女 用力过猛](http://www.movie.hkepx.cn/xiju/2553336.htm)
-- [长生 AG](http://www.play.hengshemaoyi.cn/kongbu/6028567.htm)
-- [丹麦男子卖中国包子一天赚 5 万元，中式面食在海外有多受欢迎？还有哪些中国传统小吃最有可能在海外走红？](http://www.play.hengshemaoyi.cn/xiju/6306862.htm)
+- [普京称首艘油轮将向美国运4万吨柴油](http://www.movie.hkepx.cn/xiju/9904424.htm)
+- [宇树机器人展示举起汽车救人](http://www.play.hengshemaoyi.cn/xiju/7993084.htm)
+- [负债7w另有1万信用卡即将逾期](http://www.movie.hkepx.cn/xiju/2553336.htm)
+- [陆濯知道魏娆身份后就开始放飞自我了](http://www.play.hengshemaoyi.cn/kongbu/6028567.htm)
+- [张雪公开求助如何让食堂的米饭好吃，不少人送米上门，张雪称不是米的问题，食堂做米饭有哪些技术难点？](http://www.play.hengshemaoyi.cn/xiju/6306862.htm)
 - [五部门发布骗局风险提示](http://www.movie.hkepx.cn/xiju/2775713.htm)
-- [泽连斯基做出重大让步释放什么信号](http://www.movie.hkepx.cn/movie/5485785.htm)
-- [白宫新闻发言人五天光速离职，我的评价是不如我](http://www.play.hengshemaoyi.cn/xiju/5094963.htm)
-- [大难不死的男孩爱上纯血家族的女孩【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/1178935.htm)
+- [泽连斯基：愿保留75%领土以达和平](http://www.movie.hkepx.cn/movie/5485785.htm)
+- [电脑总是卡顿掉帧？原来是ACE 根本没有彻底卸载干净！](http://www.play.hengshemaoyi.cn/xiju/5094963.htm)
+- [【何同学】能折！但代价呢？iPhone Duo首发体验](http://www.play.hengshemaoyi.cn/kongbu/1178935.htm)
 
 </details>
 
 ## 原始来源
 
-- [西安阿达西称现在没有利润还贴钱](https://www.toutiao.com/trending/7699007565690162729/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%221%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227699007565690162729%22%2C%22hot_board_impr_id%22%3A%222026102207380527F9AC017ABC4B7CE6AB%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [央行将退出存贷款基准利率，用市场化利率指标来替代，如何解读这一变化带来的影响？](https://www.zhihu.com/question/2095816410123298108)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 26fe41197fda6e1ea6e9 -->
+<!-- content-fingerprint: 9c84b45113aeb62f6719 -->
