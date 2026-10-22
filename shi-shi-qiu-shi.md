@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 日本人为了让你吃蛋包饭的时候也不要忘了吃碗拉面有多拼
+# 张家齐和妈妈的关系触痛网友
 
-> 来源：哔哩哔哩热门 · 排名：第 16 位 · 热度：423201 · 分类：美食侦探 · 更新：2026-10-22T20:27:29+08:00
+> 来源：微博热搜 · 排名：第 16 位 · 热度：174423 · 分类：情感 · 更新：2026-10-23T01:32:32+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“日本人为了让你吃蛋包饭的时候也不要忘了吃碗拉面有多拼”位列第 16 位，公开热度指标为 423201，榜单分类为“美食侦探”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“张家齐和妈妈的关系触痛网友”位列第 16 位，公开热度指标为 174423，榜单分类为“情感”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：-
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `美食侦探`
+`微博热搜` `实时热搜` `热点资讯` `情感`
 
 ## 相关热点
 
-- [老人因星巴克店员没倒满热水出言斥责](chi-zhi-yi-heng.md)
-- [虞书欣95花首位三平台一番全集有广](jian-ren-bu-ba.md)
-- [美国能靠芯片拖慢中国AI发展速度吗](zi-qiang-bu-xi.md)
-- [吴艳妮面对采访说自己训练强度能达到12秒7、12秒6的程度，但是比赛就是达不到，你怎么看？](fen-fa-tu-qiang.md)
+- [胡塞武装称袭击沙特国防部](chi-zhi-yi-heng.md)
+- [日本关键稀土钇储备将耗尽，求助美国敦促中方放宽管制，稀土将耗尽一事将对日方产生多大影响？](jian-ren-bu-ba.md)
+- [全民撒钱，团队暴雷，民调狂跌，特朗普中期选举有点烧心！](zi-qiang-bu-xi.md)
+- [一张快递单能扒出多少秘密](fen-fa-tu-qiang.md)
 
 ## 站内推荐
 
-- [人民日报谈星巴克消费入座](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [北京市委常委夏林茂被查](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [特朗普为何给内塔尼亚胡送“大礼”](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [女子地铁站内看书 5 个小时被扣 15 元，怎么看待地铁超时收费？其中读书空间等消费场景的设置合理吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [法国55万人大游行！但马克龙和夫人在跳舞](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [全球70%网站都危险了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [马天宇低谷期找杨幂谈心](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [直击西藏那曲7.0级地震](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [美股](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [人民日报评医学生盲猜病情](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [女子离婚后发现前夫婚内继承 400 多万房款，起诉要求分割这笔钱财，法院判决支持，如何从法律角度解读？](http://www.movie.hkepx.cn/xiju/7278435.htm)
-- [因为智商不够，从EXO到生子，被打脸的嘴硬的一生。【黄子韬徐艺洋官宣生子】](http://www.daogukj.com/eaozjceu/)
-- [麻六记回应阿宽食品应收账款](http://www.daogukj.com/xtfvegvn/)
-- [人民日报评医学生盲猜病情](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
-- [演唱会黄牛一个月获利100万](http://www.daogukj.com/fkuewdzb/)
-- [李子祺回应自称参加过4级手术](http://www.movie.hkepx.cn/xiju/4307844.htm)
-- [牛市逻辑真的不在了吗](http://www.daogukj.com/8791893)
-- [VOGUE阵容](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
-- [腾讯股价跌破 400 港元创新低，市值较高点缩水近四成，问题出在哪？市场对腾讯的估值逻辑发生哪些转变？](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
-- [虞书欣95花首位三平台一番全集有广](http://www.daogukj.com/2165140)
-- [这一刻突然明白了有车的意义](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
-- [亚锦赛国乒女团0比1日本](http://www.movie.hkepx.cn/xiju/1440611.htm)
-- [人民日报谈星巴克消费入座](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
-- [张本智和被打0-11惨败](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
-- [中国经济运行的3个突出特点](http://www.daogukj.com/9837121)
-- [姚明问机器人打篮球能不能做假动作](http://www.movie.hkepx.cn/movie/5334415.htm)
-- [人民日报评星巴克“消费入座”](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
-- [日本关键稀土钇储备将耗尽，求助美国敦促中方放宽管制，稀土将耗尽一事将对日方产生多大影响？](http://www.movie.hkepx.cn/movie/2391374.htm)
-- [女子地铁站内看书 5 个小时被扣 15 元，怎么看待地铁超时收费？其中读书空间等消费场景的设置合理吗？](http://www.movie.hkepx.cn/movie/4276791.htm)
-- [外地患者组团到高校传播艾滋病不实](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
-- [北京市委常委夏林茂被查](http://www.daogukj.com/6612016)
-- [FPS游戏必学两大焚诀，学会胜率直接飙升！](http://www.movie.hkepx.cn/movie/4045624.htm)
-- [迪迦领衔平成三杰们激情演唱《uptown funk》 【AI MV大赛】](http://www.daogukj.com/9217972)
-- [为什么我国的中学生大部分都不会做引体向上？](http://www.daogukj.com/eecjrkxr/)
-- [国家癌症中心公布发病前五癌症，较二十年前发生变动，胃癌食管癌跌出前五，背后有哪些原因？反映了什么趋势？](http://www.movie.hkepx.cn/xiju/0864553.htm)
-- [多国政府网站连夜下线](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
-- [大火逼近中国 日本道歉岂能只道一半](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
-- [【逗鱼时刻】第500期 我还要再更500期！](http://www.daogukj.com/chnejvmg/)
-- [到底是谁开着空调还要裹毯子啊？！](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
-- [参与过四级手术](http://www.daogukj.com/dmyshqkp/)
-- [解放军13艘次船舰位台岛周边活动](http://www.daogukj.com/hxjdxwxy/)
-- [韩国要收回美国权力指挥美军](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
-- [贾乃亮从早播到晚](http://www.movie.hkepx.cn/movie/5093289.htm)
-- [泽连斯基表示，乌克兰愿在保留至少75%领土控制权的基础上达成和平协议，你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
-- [电影《沙丘 3》中国内地定档 12 月 31 日上映，晚于北美 12 天，对此你有何期待？](http://www.movie.hkepx.cn/movie/7746903.htm)
-- [折1万次，会坏吗？iPhone Duo深度评测](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
-- [张本智和输球后扶桌跪地](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
-- [法国55万人大游行！但马克龙和夫人在跳舞](http://www.daogukj.com/2551047)
-- [24岁美国乡下大学天才"讲师"：叛逆狂人的潇洒生活！](http://www.daogukj.com/7700423)
-- [刘德华杭州演唱会“3+3”模式曝光](http://www.daogukj.com/0062100)
-- [【Day 3】致B站所有大肥鱼：鲸鱼娘内部会议，现在开始~](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
-- [张萌后悔找马天宇上节目](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
-- [捷达M6正式上市](http://www.daogukj.com/qzcflnda/)
-- [日本教练队员都没等张本智和先行离开](http://www.movie.hkepx.cn/movie/1098440.htm)
-- [吴艳妮面对采访说自己训练强度能达到12秒7、12秒6的程度，但是比赛就是达不到，你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
-- [车灯新国标公布后，「外显大屏」形态的像素灯将成为历史，汽车大灯的技术发展方向将如何调整？](http://www.daogukj.com/2428628)
-- [亡父存款取不出 男子发现多出个姐姐](http://www.daogukj.com/uftxwefl/)
-- [泽连斯基对领土态度为什么突然松动](http://www.movie.hkepx.cn/movie/6056833.htm)
-- [纪念长征胜利90周年文艺晚会](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
-- [解放军演练海岛起降](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
+- [后会友期 想请不敢请的都放观察室了](http://www.movie.hkepx.cn/xiju/7278435.htm)
+- [如何看待 HLE 以「未带多余队服婉拒 TES 交换队服请求」转头 iG 与 Guma 交换成功？](http://www.daogukj.com/eaozjceu/)
+- [这个视频到底加了什么看得我哈特软软](http://www.daogukj.com/xtfvegvn/)
+- [西藏7级地震](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
+- [国乒男团3比0韩国 亚锦赛4连冠](http://www.daogukj.com/fkuewdzb/)
+- [红果短剧日活超「爱优腾芒」四家总和，原因有哪些？](http://www.movie.hkepx.cn/xiju/4307844.htm)
+- [你只是怕了](http://www.daogukj.com/8791893)
+- [再鉴定几个洛克王国的精灵](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
+- [“大9”车型混战 万辆爆款也站不稳了](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
+- [日本关键稀土钇储备将耗尽，求助美国敦促中方放宽管制，稀土将耗尽一事将对日方产生多大影响？](http://www.daogukj.com/2165140)
+- [厉娜 许飞](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
+- [捷达M6上市 售价7.98万起](http://www.movie.hkepx.cn/xiju/1440611.htm)
+- [全球70%网站都危险了](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
+- [伟大的发现: 曼的一半是man](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
+- [红军为何总能绝处逢生](http://www.daogukj.com/9837121)
+- [如何评价英雄联盟 S16 全球总决赛入围赛因阴间时间，解说及二路主播集体加班播到「神志不清」？](http://www.movie.hkepx.cn/movie/5334415.htm)
+- [赵丽颖霍建华 剧播不好别怪妆造](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
+- [孙俪手机上几乎没有社交媒体](http://www.movie.hkepx.cn/movie/2391374.htm)
+- [美股](http://www.movie.hkepx.cn/movie/4276791.htm)
+- [人民日报评张凌赫申请赴台遭拒](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
+- [马天宇低谷期找杨幂谈心](http://www.daogukj.com/6612016)
+- [黄婷婷李艺彤闹掰谁在释怀谁在获利](http://www.movie.hkepx.cn/movie/4045624.htm)
+- [女子称地铁站内看5小时书被扣15元](http://www.daogukj.com/9217972)
+- [新兴领域良性循环加快形成](http://www.daogukj.com/eecjrkxr/)
+- [国乒男团夺亚锦赛第26冠](http://www.movie.hkepx.cn/xiju/0864553.htm)
+- [“锁暝 好高好高哦~”](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
+- [西藏那曲市7.0级地震](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
+- [女子地铁站内看书 5 个小时被扣 15 元，怎么看待地铁超时收费？其中读书空间等消费场景的设置合理吗？](http://www.daogukj.com/chnejvmg/)
+- [马天宇与张萌重聚修复好友关系](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
+- [国乒女团2比3日本 获亚锦赛亚军](http://www.daogukj.com/dmyshqkp/)
+- [刘嘉玲谈与梁朝伟近40年相处](http://www.daogukj.com/hxjdxwxy/)
+- [iPhone Duo测评出炉，折叠3000次后，折痕明显加深，高负载下发热明显，还有哪些问题值得关注？](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
+- [41岁女子存百万后去世](http://www.movie.hkepx.cn/movie/5093289.htm)
+- [乌克兰外长会见中国大使：感谢中方](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
+- [腾讯股价跌破 400 港元创新低，市值较高点缩水近四成，问题出在哪？市场对腾讯的估值逻辑发生哪些转变？](http://www.movie.hkepx.cn/movie/7746903.htm)
+- [中国拟出台的「AI 出口禁令」会影响使用 AI 产品和中企海外业务吗？将对中美 AI 竞争有何影响？](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
+- [李雪健这段无声演绎看哭了](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
+- [人民日报评医学生盲猜病情](http://www.daogukj.com/2551047)
+- [张本智和被打0-11惨败](http://www.daogukj.com/7700423)
+- [婚礼发言说虽然不是我的妻子](http://www.daogukj.com/0062100)
+- [儿子逼父母贷款替其还债被拒，欲断绝父子关系被父亲打致轻伤二级，如何理解法院判父亲免予刑事处罚？](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
+- [孙坚 一边拍戏一边还债](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
+- [在星巴克开会1小时被提醒点单5次](http://www.daogukj.com/qzcflnda/)
+- [人民日报评综艺里医学生盲猜病情](http://www.movie.hkepx.cn/movie/1098440.htm)
+- [一张快递单能扒出多少秘密](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
+- [北京市委就夏林茂被查表态](http://www.daogukj.com/2428628)
+- [你知道的最冷最冷的冷知识是啥？](http://www.daogukj.com/uftxwefl/)
+- [奥迪中国 首位中国籍总裁](http://www.movie.hkepx.cn/movie/6056833.htm)
+- [张萌后悔找马天宇上节目](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
+- [白鹿工作室注销](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
 
 </details>
 
 ## 原始来源
 
-- [日本人为了让你吃蛋包饭的时候也不要忘了吃碗拉面有多拼](https://b23.tv/BV1monB6gEnQ)
+- [张家齐和妈妈的关系触痛网友](https://s.weibo.com/weibo?q=%E5%BC%A0%E5%AE%B6%E9%BD%90%E5%92%8C%E5%A6%88%E5%A6%88%E7%9A%84%E5%85%B3%E7%B3%BB%E8%A7%A6%E7%97%9B%E7%BD%91%E5%8F%8B)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f78b8efbaca845011cd8 -->
+<!-- content-fingerprint: 7b9a0b83dbc33ca04274 -->
