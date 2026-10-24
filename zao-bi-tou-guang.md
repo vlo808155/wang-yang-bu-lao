@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 派大星跳伞是什么梗【梗指南】
+# 大爷一把抓住两米长的眼镜王蛇
 
-> 来源：哔哩哔哩热门 · 排名：第 13 位 · 热度：1503961 · 分类：搞笑 · 更新：2026-10-24T22:47:14+08:00
+> 来源：百度热搜 · 排名：第 13 位 · 热度：6564398 · 更新：2026-10-25T01:40:07+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“派大星跳伞是什么梗【梗指南】”位列第 13 位，公开热度指标为 1503961，榜单分类为“搞笑”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“大爷一把抓住两米长的眼镜王蛇”位列第 13 位，公开热度指标为 6564398。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：派大星跳伞是什么梗 *本视频仅作为了解该梗的辅助，不能仅靠该视频作为对该梗的全面了解，真正深入了解可以观看原出处以及更多方面~
+来源公开摘要显示：近日，云南玉溪罗大爷在砍烟杆时发现一条两米多长的眼镜王蛇并报警。在民警拿取装备时，罗大爷满脸淡定地一把抓住蛇的七寸。民警对其危险行为开展安全教育，提醒“下次不能抓了，小心被咬到”。最终，该眼镜王蛇交由林草部门专业人员处置。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `搞笑`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [胡彦斌自曝一个半月消耗52亿token](nang-ying-ying-xue.md)
-- [曝手机平板产品线将停更](cheng-men-li-xue.md)
-- [肖战《竹石》现场太燃了](shou-bu-shi-juan.md)
-- [帕里斯选择把苹果给谁，才能达成最好的个人结局？](xue-fu-wu-che.md)
+- [虞书欣侯明昊行程](nang-ying-ying-xue.md)
+- [媒体评迪丽热巴造型师被指“逼宫”](cheng-men-li-xue.md)
+- [领导让你去他车里拿茅台，但车里没有怎么办？](shou-bu-shi-juan.md)
+- [“非洲优等生”成功密码是什么？天降猛男的得与失【中非04丨卢旺达】](xue-fu-wu-che.md)
 
 ## 站内推荐
 
 - [子弟兵为西藏震区受灾群众煮上热饭](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [96岁老人因高龄被旅行社拒收，独自乘火车43小时进藏旅行，完成走遍全国的心愿，此事带给我们怎样的触动？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [证监会核准设立花旗证券（中国）有限公司，将对国内券商行业带来哪些影响？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [女子离婚12年后接前婆婆一起生活](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [文荣奖红毯女明星各放异彩](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [菲防长叫嚣“战争行为”恐吓中国](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [穿越战锤24年，你终靠实力拿下星球总督王座，你的余生会如何度过？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [王俊凯 甲乙丙丁](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [曝手机平板产品线将停更](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [「缘缘庄爱情故事」 - 终末地](http://www.movie.hkepx.cn/movie/7696059.htm)
-- [古代到处是荒地，穷人为何不自己开荒？](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
-- [评论员：辽宁舰或正为山东舰积累经验](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
-- [人工智能都卷到收废品赛道了](http://www.daogukj.com/xbqcnyun/)
+- [水库发现被掩埋医疗垃圾 当地回应](http://www.movie.hkepx.cn/movie/7696059.htm)
+- [你需要多少钱，才能财富自由？](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
+- [请问为啥网上很多人说大众高尔夫好开？](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
+- [38岁产妇催产时突发羊水栓塞至今未醒](http://www.daogukj.com/xbqcnyun/)
 - [《绝区零》先导演示丨挽昼](http://www.daogukj.com/3076909)
-- [我的天呐！这S赛太让人痛苦了，突破历史的首日全败！观众做了什么坏事要熬夜看这种比赛？【1酱赛评S赛瑞士轮Day1】](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
-- [10名省部级干部同日履新](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
-- [女子离婚12年后接前婆婆一起生活](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
-- [毛不易婚礼发言引网友争议](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
-- [突然get到了杨超越毫不费力的绝美](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
-- [招豆包当客服也是没救了](http://www.daogukj.com/7832374)
-- [新郎新娘回应毛不易婚礼发言](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
+- [农村拼豆店走红 有公司送去442斤拼豆](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
+- [证监会核准设立花旗证券（中国）有限公司，将对国内券商行业带来哪些影响？](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
+- [王俊凯 甲乙丙丁](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
+- [俄乌同意局部停火](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
+- [养孩子，到底算投资还是算爱？](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
+- [毛不易出席多年好友婚礼致辞引争议](http://www.daogukj.com/7832374)
+- [四价流感疫苗消失了？真相来了](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
 - [金正恩访问丹东 王沪宁陪同](http://www.movie.hkepx.cn/movie/5380543.htm)
-- [第一批拿到iPhone Duo的人心态有点崩](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
-- [文荣奖红毯女明星各放异彩](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
-- [帕里斯选择把苹果给谁，才能达成最好的个人结局？](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
-- [宇树机器人侧空翻表演时甩断腿，问题可能出在哪里？出现这种情况正常吗？](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
-- [蒯曼3比1桥本帆乃香](http://www.daogukj.com/whdogfom/)
+- [iPhone Duo开售，每人限购两部，你买到了吗？很多人刚开箱就屏幕开裂，你遇到了吗？使用感受如何？](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
+- [曝手机平板产品线将停更](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
+- [“非洲优等生”成功密码是什么？天降猛男的得与失【中非04丨卢旺达】](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
+- [2025年全国初婚人数1042.33万](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
+- [西藏震区小学墙体裂缝比拳头还大](http://www.daogukj.com/whdogfom/)
 - [菲防长提着纸糊的盾牌对中国发起冲锋](http://www.daogukj.com/owjemlxs/)
-- [美国新一批UFO文件公布](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
-- [胡彦斌自曝一个半月消耗52亿token](http://www.movie.hkepx.cn/xiju/8272307.htm)
-- [《罗德岛学院》PV](http://www.movie.hkepx.cn/xiju/5503803.htm)
-- [为什么现在很多公立的幼儿园不教拼音，但是到了小学默认你是会拼音的状态？](http://www.movie.hkepx.cn/movie/5517829.htm)
-- [证监会核准设立花旗证券（中国）有限公司，将对国内券商行业带来哪些影响？](http://www.daogukj.com/kfcenimf/)
-- [红果「把观众的时间换成钱」引发热议，靠曝光变现作为商业化基础，怎么看待这一模式？竞争优势能稳住吗？](http://www.movie.hkepx.cn/xiju/1284306.htm)
-- [半夜偷吃的生死体验 3.0](http://www.movie.hkepx.cn/movie/9628674.htm)
+- [第一批拿到iPhone Duo的人心态有点崩](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
+- [虞书欣侯明昊行程](http://www.movie.hkepx.cn/xiju/8272307.htm)
+- [男孩偷超市饮料，被父亲拿着戒尺送到派出所「自首」，感受手铐重量后向店主道歉，你支持这种教育方式吗？](http://www.movie.hkepx.cn/xiju/5503803.htm)
+- [2026年中国票房第三名《功夫女足》跌至 5.9 分，是否可以印证冯小刚当年的话是对的？](http://www.movie.hkepx.cn/movie/5517829.htm)
+- [穿越战锤24年，你终靠实力拿下星球总督王座，你的余生会如何度过？](http://www.daogukj.com/kfcenimf/)
+- [【纪录片】中国救护2 06 此去仍有光](http://www.movie.hkepx.cn/xiju/1284306.htm)
+- [年轻人吐槽扔垃圾时小区老人当面翻垃圾、伸手拿纸箱，这种「扔垃圾羞耻症」背后折射出什么？](http://www.movie.hkepx.cn/movie/9628674.htm)
 - [女生不要谈太久的恋爱](http://www.daogukj.com/1857926)
-- [年轻人吐槽扔垃圾时小区老人当面翻垃圾、伸手拿纸箱，这种「扔垃圾羞耻症」背后折射出什么？](http://www.daogukj.com/dauszqqt/)
-- [医生：别让肾病拖成尿毒症](http://www.movie.hkepx.cn/movie/0907691.htm)
-- [金智媛居然跳了说出你的愿望](http://www.daogukj.com/5817227)
-- [11天，我们干掉祸害20多年的传销头目！](http://www.daogukj.com/wotljoso/)
+- [“即便司凤！仍要前行！”-思老凤乐队的故事！本家原创投稿！](http://www.daogukj.com/dauszqqt/)
+- [如果小时候的你看到现在的育儿方式，会羡慕还是不理解？](http://www.movie.hkepx.cn/movie/0907691.htm)
+- [李冰冰任泉在清华被偶遇](http://www.daogukj.com/5817227)
+- [马尔芙小姐，我能请你共舞一曲吗？｜PV](http://www.daogukj.com/wotljoso/)
 - [出口首破8万亿 “新”字挑大梁](http://www.daogukj.com/8049323)
-- [西藏巴青县地震前后遥感图发布](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
+- [有哪些曾经只有专业车手才能做的事，现在普通人开车也能体验到？](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
 - [国务院办公厅称要「有效减缓人工智能应用就业替代影响」，释放出什么信号？可能带来哪些实际影响？](http://www.movie.hkepx.cn/xiju/0261792.htm)
-- [短剧女王王小亿红毯状态](http://www.movie.hkepx.cn/movie/6726833.htm)
-- [乌鸦喝水不扔石子了直接找人帮忙](http://www.movie.hkepx.cn/xiju/1828380.htm)
-- [全麻手术后记性会变差吗](http://www.movie.hkepx.cn/xiju/1222939.htm)
-- [夫妻花67.3万买劳力士却不挑选不试戴，店员果断报警，最终证实夫妻两人遭遇诈骗，这背后有着怎样的骗局？](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
-- [俄首次立法接纳中国标准轨有何影响](http://www.daogukj.com/2594309)
-- [如何评价博主称“游戏劫持了人生最珍贵的算力，导致现实问题一个都没碰”的观点？](http://www.daogukj.com/qdasdjom/)
-- [96岁老人因高龄被旅行社拒收，独自乘火车43小时进藏旅行，完成走遍全国的心愿，此事带给我们怎样的触动？](http://www.daogukj.com/3136388)
-- [《尚公主》编剧水平被吐槽](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
+- [iPhoneDuo破发](http://www.movie.hkepx.cn/movie/6726833.htm)
+- [博主：预计下周汽油调价](http://www.movie.hkepx.cn/xiju/1828380.htm)
+- [鸡蛋别放冰箱门格子里](http://www.movie.hkepx.cn/xiju/1222939.htm)
+- [《明日方舟》SideStory「时间啊，向前！」活动先导PV](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
+- [毛不易婚礼发言引网友争议](http://www.daogukj.com/2594309)
+- [他再也不用去卫生间了](http://www.daogukj.com/qdasdjom/)
+- [菲防长叫嚣“战争行为”恐吓中国](http://www.daogukj.com/3136388)
+- [李健演唱会结束反复向观众道谢](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
 - [子弟兵为西藏震区受灾群众煮上热饭](http://www.daogukj.com/4275576)
-- [曝刘学义张予曦差点结婚](http://www.daogukj.com/lpknevub/)
-- [四价流感疫苗消失了？真相来了](http://www.daogukj.com/3012939)
-- [《星溯》首曝PV丨重启停滞的轮回](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
-- [2026年中国票房第三名《功夫女足》跌至 5.9 分，是否可以印证冯小刚当年的话是对的？](http://www.movie.hkepx.cn/xiju/9870181.htm)
-- [菲防长叫嚣“战争行为”恐吓中国](http://www.movie.hkepx.cn/movie/2656535.htm)
-- [车企不能随便“整活儿”了](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
+- [新郎新娘回应毛不易婚礼发言](http://www.daogukj.com/lpknevub/)
+- [你怎么看毛不易在女性好友婚礼上的致辞，算越界吗？为什么「结婚越来越不意味着什么」引发热议？](http://www.daogukj.com/3012939)
+- [曹操头风病的病根找到了](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
+- [为什么现在很多公立的幼儿园不教拼音，但是到了小学默认你是会拼音的状态？](http://www.movie.hkepx.cn/xiju/9870181.htm)
+- [内娱这种瘦成骷髅的风气可以停止了吗](http://www.movie.hkepx.cn/movie/2656535.htm)
+- [⚡⚡逆 天 复 仇 者⚡⚡](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
 - [为什么腾讯有了QQ这么庞大的用户基础群之后要开发微信呢？](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
 
 </details>
 
 ## 原始来源
 
-- [派大星跳伞是什么梗【梗指南】](https://b23.tv/BV11kn86mEjg)
+- [大爷一把抓住两米长的眼镜王蛇](https://www.baidu.com/s?wd=%E5%A4%A7%E7%88%B7%E4%B8%80%E6%8A%8A%E6%8A%93%E4%BD%8F%E4%B8%A4%E7%B1%B3%E9%95%BF%E7%9A%84%E7%9C%BC%E9%95%9C%E7%8E%8B%E8%9B%87&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b831e16552547b7d9611 -->
+<!-- content-fingerprint: 70c4acfeec691cbdfa2a -->
