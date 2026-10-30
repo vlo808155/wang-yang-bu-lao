@@ -1,35 +1,35 @@
 [热点索引](README.md)
 
-# 肖战退后一步的动作熟练得让人心疼
+# 宜家、霸王茶姬等品牌开始试点「消费入座」，如何看待这一措施？你支持吗？
 
-> 来源：微博热搜 · 排名：第 15 位 · 热度：55309 · 分类：艺人 · 更新：2026-10-31T04:16:55+08:00
+> 来源：知乎热榜 · 排名：第 15 位 · 热度：114 万热度 · 分类：问答 · 更新：2026-10-31T07:52:11+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“肖战退后一步的动作熟练得让人心疼”位列第 15 位，公开热度指标为 55309，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“宜家、霸王茶姬等品牌开始试点「消费入座」，如何看待这一措施？你支持吗？”位列第 15 位，公开热度指标为 114 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，星巴克全国门店启动“消费入座”的倡议，商家消费空间与座位资源该如何管理引发关注。目前，多个品牌门店出现了类似“消费入座”的提示。 据澎湃新闻10月29日报道，有网友反映，上海徐汇宜家餐厅开始实行“消费入座”，周二、周四还有保安劝离占座的消费者。 对此，宜家上海徐汇商场表示，餐厅内出现了长时间占座、喧哗、食用自带食物等非用餐行为，一定程度上影响了部分顾客的正常就餐，采取每周二和周四“用餐就座”引导，是希望确保座位资源能更好地服务于有实际用餐需求的顾客。据悉，国内其余宜家商场餐厅还没有同步出现同类措施。 另外，还有成都的消费者在网上晒出10月24拍到一
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [72岁成龙展示一身紧实肌肉](rong-hui-guan-tong.md)
-- [传统武术为什么会有“掌”这种离谱的攻击方式？](ji-si-guang-yi.md)
-- [《星游记》前传电影启动，方向黑洞，目标彩虹海！](qu-chang-bu-duan.md)
-- [孙颖莎3比2申裕斌](jing-yi-qiu-jing.md)
+- [《此弟不宜久留》](rong-hui-guan-tong.md)
+- [33岁小伙坚持“秋冻”诱发脑出血](ji-si-guang-yi.md)
+- [万圣节](qu-chang-bu-duan.md)
+- [孟加拉国总理无视引导不向日国旗鞠躬](jing-yi-qiu-jing.md)
 
 ## 站内推荐
 
-- [作家大冰 不是靠直播翻红](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [住家保姆偷转失能老人30万元](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [姜乘澜结婚了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [中国女子在西班牙因赖床错过事故列车](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [如何看待法国足协主席称姆巴佩无意冒犯中国人民，希望这件事到此为止？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [【独家】《罗小黑战记》第41话 开始学习吧小黑同学【10月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [苹果反超英伟达成全球市值最高公司](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [现货黄金失守 4000 美元，这个位置对黄金行情来说意义有多大？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [大学生用四年codex，每天进步一点，四年之后，与没用上codex的同学会有很大的差距么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [【丧病中配】当2077的CV来配音《赛博朋克：边缘行者2》（第一话）](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
@@ -37,62 +37,62 @@
 <summary>展开更多相关内容</summary>
 
 - [披荆斩棘成团名单](http://www.movie.hkepx.cn/xiju/5307975.htm)
-- [为什么医院每天那么大的现金流还是不挣钱，甚至还亏钱？](http://www.movie.hkepx.cn/movie/2609609.htm)
-- [如何看待2026年10月30日A股集体收跌，双创指数月跌超23%，红利股逆势走强？](http://www.daogukj.com/0409437)
-- [美股](http://www.movie.hkepx.cn/xiju/9563004.htm)
-- [中方驳斥女情报人员接触黄仁勋报道](http://www.daogukj.com/irdcrmjv/)
+- [姆巴佩仍未在1.3亿粉丝平台上发布道歉声明，言论风波期间还更新个人照，只用小号道歉体现了怎样的态度？](http://www.movie.hkepx.cn/movie/2609609.htm)
+- [我军首型舰载察打一体隐身无人机「攻击-21」在四川舰成功起降，这意味着什么？哪些亮点值得关注？](http://www.daogukj.com/0409437)
+- [小沈阳发文告别《披荆斩棘》](http://www.movie.hkepx.cn/xiju/9563004.htm)
+- [黄金大跌 铜价为何创新高](http://www.daogukj.com/irdcrmjv/)
 - [开创新时代管党治党兴党强党新局面](http://www.play.hengshemaoyi.cn/kongbu/8052623.htm)
-- [如何评价《后会友期》中王子璇文吉儿这对旧友，为何网友说她们的友情令人窒息？](http://www.play.hengshemaoyi.cn/xiju/2544606.htm)
-- [72岁成龙展示一身紧实肌肉](http://www.daogukj.com/yxaiauxe/)
-- [忙着跟生活对线的你，有多久没上号了？谨以此片，致和游戏一起长大的我们。【AI全民制作人】](http://www.daogukj.com/hfysjbhb/)
-- [员工被辞退后，若劳动仲裁时是按公司违法辞退诉求赔偿金即2N，仲裁失败的，一审还能改诉经济补偿金N吗？](http://www.play.hengshemaoyi.cn/xiju/9852517.htm)
-- [一喝水，尿就多，是肾坏了吗？](http://www.movie.hkepx.cn/movie/6952786.htm)
-- [今年全国实现生娃基本不花钱](http://www.play.hengshemaoyi.cn/kongbu/6044698.htm)
-- [证监会：全力稳市场稳预期](http://www.play.hengshemaoyi.cn/kongbu/2966437.htm)
-- [英特尔跌30%市值蒸发近1500亿美元](http://www.movie.hkepx.cn/xiju/5545431.htm)
-- [传统武术为什么会有“掌”这种离谱的攻击方式？](http://www.daogukj.com/7790597)
-- [《当爱已成往事》夯爆了](http://www.movie.hkepx.cn/xiju/8694011.htm)
-- [退款的风竟然吹到了友谊界](http://www.movie.hkepx.cn/movie/5422234.htm)
+- [为什么老一辈人觉得“搭伙过日子”很幸福，而现在的年轻人却很排斥？](http://www.play.hengshemaoyi.cn/xiju/2544606.htm)
+- [《此弟不宜久留》](http://www.daogukj.com/yxaiauxe/)
+- [【逆水寒×中国歌剧舞剧院】再见仍是初遇的惊艳，国家队跳阿初祈月舞！](http://www.daogukj.com/hfysjbhb/)
+- [退款的风竟然吹到了友谊界](http://www.play.hengshemaoyi.cn/xiju/9852517.htm)
+- [“攻击-21”成功起降](http://www.movie.hkepx.cn/movie/6952786.htm)
+- [攻击21在四川舰上完成起降意味什么](http://www.play.hengshemaoyi.cn/kongbu/6044698.htm)
+- [护：什么叫哥单三把挂队杀了？ 什么叫我工作没了？ 售后冲进办公室见人就打！](http://www.play.hengshemaoyi.cn/kongbu/2966437.htm)
+- [魏娆陆濯圆房了](http://www.movie.hkepx.cn/xiju/5545431.htm)
+- [33岁小伙坚持“秋冻”诱发脑出血](http://www.daogukj.com/7790597)
+- [普通人每天吃多少鸡蛋才科学](http://www.movie.hkepx.cn/xiju/8694011.htm)
+- [赵丽颖不鸣则已一鸣惊人](http://www.movie.hkepx.cn/movie/5422234.htm)
 - [这件“关系民生的大事”务必抓实抓好](http://www.daogukj.com/hygudrhy/)
-- [股票群再度“鸦雀无声”](http://www.movie.hkepx.cn/xiju/6712464.htm)
+- [金价降了卖爆了 银价已腰斩](http://www.movie.hkepx.cn/xiju/6712464.htm)
 - [全面从严治党和鼓励担当作为内在统一](http://www.movie.hkepx.cn/xiju/3635472.htm)
-- [马天宇劝文吉儿不要做的太绝情](http://www.daogukj.com/1094500)
-- [墨香铜臭的《魔道祖师》是否是被资本营销出来的？](http://www.daogukj.com/kjnonujn/)
-- [张雪自掏30万给员工付首付](http://www.movie.hkepx.cn/movie/2005213.htm)
-- [证监会](http://www.movie.hkepx.cn/xiju/4140224.htm)
-- [我觉得我都要爱上厉娜了](http://www.movie.hkepx.cn/xiju/2598641.htm)
-- [住家保姆偷转失能老人30万元](http://www.daogukj.com/idbcchjh/)
-- [孟加拉国总理无视引导不向日国旗鞠躬](http://www.movie.hkepx.cn/xiju/2099126.htm)
-- [付辛博这段发言可以去后会友期了](http://www.daogukj.com/fqrljege/)
-- [Bin 国际赛场与 369 交手记录 1 胜 5 负，为什么大家潜意识总默认 Bin 会更强些？](http://www.daogukj.com/gjlzfppj/)
-- [广东一医院因收入持续下降全面停诊](http://www.movie.hkepx.cn/movie/2153704.htm)
-- [外网爆火的心脏病征兆](http://www.daogukj.com/cxpctjvk/)
-- [赵丽颖不鸣则已一鸣惊人](http://www.movie.hkepx.cn/xiju/0125063.htm)
-- [最逆天的一节课！！](http://www.movie.hkepx.cn/movie/5966591.htm)
-- [一次性内裤终于有了“底”线](http://www.play.hengshemaoyi.cn/xiju/2133033.htm)
-- [《崩坏：星穹铁道》4.7版本PV：「此刻，将群星付之一笑」](http://www.daogukj.com/tyanyuwx/)
-- [令人愤怒的“卖1元火鸡面”视频，炸出了多少被毁掉的中国小孩](http://www.movie.hkepx.cn/xiju/0508741.htm)
-- [邵永灵：乌克兰低头了](http://www.play.hengshemaoyi.cn/kongbu/9417431.htm)
-- [33岁小伙坚持“秋冻”诱发脑出血](http://www.movie.hkepx.cn/movie/9354072.htm)
-- [三阶段了 杀手一曲Golden Hour征服老哥](http://www.movie.hkepx.cn/xiju/0708358.htm)
-- [王濛对唐艺昕说“我喜欢你老公”](http://www.daogukj.com/ozjlrwei/)
-- [邵永灵：乌克兰要把俄罗斯赶出联合国](http://www.play.hengshemaoyi.cn/xiju/7882271.htm)
-- [蔡磊妻子落泪称不甘心](http://www.movie.hkepx.cn/xiju/7392987.htm)
-- [53岁阿姨减重15.8公斤 血糖实现逆转](http://www.movie.hkepx.cn/xiju/3057735.htm)
-- [如何看待红果短剧跃升为国内第四大app？它瓜分了谁的市场？](http://www.daogukj.com/7724415)
-- [金银杀跌原因](http://www.movie.hkepx.cn/xiju/7394575.htm)
-- [作家大冰 不是靠直播翻红](http://www.play.hengshemaoyi.cn/kongbu/1461320.htm)
-- [透明的镜片居然有影子？观众的问题让我脑洞大开！](http://www.movie.hkepx.cn/movie/9245741.htm)
-- [国际油价大幅上涨，国家出手继续对成品油价临时调控，汽油每吨应涨440元实涨345元，如何解读？](http://www.movie.hkepx.cn/movie/4514053.htm)
-- [如何评价 369 采访称「想赢才会兴奋，怕输才会紧张」？](http://www.daogukj.com/8315110)
-- [于东来：建议制度支持消费入座](http://www.play.hengshemaoyi.cn/kongbu/1549451.htm)
+- [小沈阳获《披荆斩棘》总冠军](http://www.daogukj.com/1094500)
+- [李艺彤和黄婷婷关系破裂的原因是什么？](http://www.daogukj.com/kjnonujn/)
+- [一次性内裤终于有了“底”线](http://www.movie.hkepx.cn/movie/2005213.htm)
+- [英特尔预警PC低迷将持续到2027](http://www.movie.hkepx.cn/xiju/4140224.htm)
+- [撞脸王祖贤女生去景区上班](http://www.movie.hkepx.cn/xiju/2598641.htm)
+- [苹果反超英伟达成全球市值最高公司](http://www.daogukj.com/idbcchjh/)
+- [今年全国实现生娃基本不花钱](http://www.movie.hkepx.cn/xiju/2099126.htm)
+- [如何评价米哈游新作《星布谷地》官宣将在12月4日公测上线？](http://www.daogukj.com/fqrljege/)
+- [为什么医院每天那么大的现金流还是不挣钱，甚至还亏钱？](http://www.daogukj.com/gjlzfppj/)
+- [周启豪展望四分之一决赛](http://www.movie.hkepx.cn/movie/2153704.htm)
+- [《披荆斩棘2026》滚烫家族诞生](http://www.daogukj.com/cxpctjvk/)
+- [国产 3A 新作《影之刃零》本体容量达 145G 引热议，为何现在大作体积越来越膨胀？](http://www.movie.hkepx.cn/xiju/0125063.htm)
+- [《崩坏：星穹铁道》4.7版本「此刻，将群星付之一笑」前瞻特别节目](http://www.movie.hkepx.cn/movie/5966591.htm)
+- [沈腾马丽 《一年一度笑声大会》](http://www.play.hengshemaoyi.cn/xiju/2133033.htm)
+- [肖战退后一步的动作熟练得让人心疼](http://www.daogukj.com/tyanyuwx/)
+- [【影之刃零】刀光剑影的武侠厮杀！](http://www.movie.hkepx.cn/xiju/0508741.htm)
+- [小沈阳披荆斩棘冠军](http://www.play.hengshemaoyi.cn/kongbu/9417431.htm)
+- [何炅被杨丽萍当场说哭](http://www.movie.hkepx.cn/movie/9354072.htm)
+- [一喝水，尿就多，是肾坏了吗？](http://www.movie.hkepx.cn/xiju/0708358.htm)
+- [CPOPwave出海长红IP——《原神》让世界认识中国游戏](http://www.daogukj.com/ozjlrwei/)
+- [如何评价亏损王万科2026年1-9月亏损239.4亿元？](http://www.play.hengshemaoyi.cn/xiju/7882271.htm)
+- [姜乘澜结婚了](http://www.movie.hkepx.cn/xiju/7392987.htm)
+- [透明的镜片居然有影子？观众的问题让我脑洞大开！](http://www.movie.hkepx.cn/xiju/3057735.htm)
+- [如何评价 369 采访称「想赢才会兴奋，怕输才会紧张」？](http://www.daogukj.com/7724415)
+- [周启豪3比1F勒布伦](http://www.movie.hkepx.cn/xiju/7394575.htm)
+- [【独家】《罗小黑战记》第41话 开始学习吧小黑同学【10月国创】](http://www.play.hengshemaoyi.cn/kongbu/1461320.htm)
+- [最逆天的一节课！！](http://www.movie.hkepx.cn/movie/9245741.htm)
+- [G.E.M.邓紫棋【自由的你】MV（官方｜4K超清）](http://www.movie.hkepx.cn/movie/4514053.htm)
+- [《崩坏：星穹铁道》4.7版本PV：「此刻，将群星付之一笑」](http://www.daogukj.com/8315110)
+- [乌干达宣布涉嫌15年杀害并吃掉38人的「食人魔」落网，哪些案情值得关注？食用人肉会对人造成什么影响？](http://www.play.hengshemaoyi.cn/kongbu/1549451.htm)
 
 </details>
 
 ## 原始来源
 
-- [肖战退后一步的动作熟练得让人心疼](https://s.weibo.com/weibo?q=%E8%82%96%E6%88%98%E9%80%80%E5%90%8E%E4%B8%80%E6%AD%A5%E7%9A%84%E5%8A%A8%E4%BD%9C%E7%86%9F%E7%BB%83%E5%BE%97%E8%AE%A9%E4%BA%BA%E5%BF%83%E7%96%BC)
+- [宜家、霸王茶姬等品牌开始试点「消费入座」，如何看待这一措施？你支持吗？](https://www.zhihu.com/question/2099436533199783614)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 337917108d1f93f9e915 -->
+<!-- content-fingerprint: 02a0019b878cd41f5d49 -->
