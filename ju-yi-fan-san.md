@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 23岁抗癌网红夏夏去世，18岁确诊骨肉瘤，截肢后父母失联，怎样看待她的抗癌经历？骨肉瘤是种怎样的疾病？
+# 肖战退后一步的动作熟练得让人心疼
 
-> 来源：知乎热榜 · 排名：第 15 位 · 热度：247 万热度 · 分类：问答 · 更新：2026-10-30T23:55:27+08:00
+> 来源：微博热搜 · 排名：第 15 位 · 热度：55309 · 分类：艺人 · 更新：2026-10-31T04:16:55+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“23岁抗癌网红夏夏去世，18岁确诊骨肉瘤，截肢后父母失联，怎样看待她的抗癌经历？骨肉瘤是种怎样的疾病？”位列第 15 位，公开热度指标为 247 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“肖战退后一步的动作熟练得让人心疼”位列第 15 位，公开热度指标为 55309，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：10月27日，23岁的抗癌网红“夏夏”在上海病逝。 夏夏在18岁高考后确诊为骨肉瘤，确诊后遭到家人放弃，父亲从未露面，母亲也在一年后失去联系，夏夏独自抗癌5年经历过6次大手术，右腿截肢后独立签字、摆摊筹钱、辗转于医院。最终因癌细胞多次转移离世。 10月28日中午，抗癌博主“奇迹夏夏（血槽40%）”的社交账号发布了一条讣告，坚强乐观勇敢善良的夏夏，于2026年10月27日20时28分在上海不幸病逝，享年23岁。 10月28日下午，夏夏生前好友沈先生告诉现代快报记者，夏夏患癌后与其断联的父母，在她临终前赶到病房送别了最后一程，夏夏也如愿和一直想见的奶奶视频通
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `艺人`
 
 ## 相关热点
 
-- [做个八鲜捞饭！海鲜一锅端，黏糊糊太上头了！配葱油海肠，嘎吱脆啊](rong-hui-guan-tong.md)
-- [超市集体下架姆巴佩形象代言商品](ji-si-guang-yi.md)
-- [张睿没成团](qu-chang-bu-duan.md)
-- [全球最大加密货币交易所疑遭黑客盗窃](jing-yi-qiu-jing.md)
+- [72岁成龙展示一身紧实肌肉](rong-hui-guan-tong.md)
+- [传统武术为什么会有“掌”这种离谱的攻击方式？](ji-si-guang-yi.md)
+- [《星游记》前传电影启动，方向黑洞，目标彩虹海！](qu-chang-bu-duan.md)
+- [孙颖莎3比2申裕斌](jing-yi-qiu-jing.md)
 
 ## 站内推荐
 
-- [【独家】《罗小黑战记》第41话 开始学习吧小黑同学【10月国创】](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
-- [律师回应小城良方告白衣山猫](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
-- [为什么李白的书法作品只有《上阳台帖》流传下来了？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
-- [怎么看 DeepSeek 官网 JS 出现 Cyber申请，以后开源模型都会削弱网络安全能力吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
-- [全网搬大润发第一人！！！](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
+- [作家大冰 不是靠直播翻红](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ri-xin-yue-yi.md)
+- [住家保姆偷转失能老人30万元](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-jian-shuang-diao.md)
+- [姜乘澜结婚了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yin-zhen-zhi-ke.md)
+- [中国女子在西班牙因赖床错过事故列车](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/fen-fa-tu-qiang.md)
+- [如何看待法国足协主席称姆巴佩无意冒犯中国人民，希望这件事到此为止？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/yin-ren-ru-sheng.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [黄金](http://www.movie.hkepx.cn/xiju/5307975.htm)
-- [最逆天的一节课！！](http://www.movie.hkepx.cn/movie/2609609.htm)
+- [披荆斩棘成团名单](http://www.movie.hkepx.cn/xiju/5307975.htm)
+- [为什么医院每天那么大的现金流还是不挣钱，甚至还亏钱？](http://www.movie.hkepx.cn/movie/2609609.htm)
 - [如何看待2026年10月30日A股集体收跌，双创指数月跌超23%，红利股逆势走强？](http://www.daogukj.com/0409437)
-- [于东来：建议制度支持消费入座](http://www.movie.hkepx.cn/xiju/9563004.htm)
-- [孟加拉国总理无视引导不向日国旗鞠躬](http://www.daogukj.com/irdcrmjv/)
-- [透过三季报看中国经济向新向优](http://www.play.hengshemaoyi.cn/kongbu/8052623.htm)
-- [怎么解读比亚迪2026年三季报，高额研发投入意味着什么？](http://www.play.hengshemaoyi.cn/xiju/2544606.htm)
-- [做个八鲜捞饭！海鲜一锅端，黏糊糊太上头了！配葱油海肠，嘎吱脆啊](http://www.daogukj.com/yxaiauxe/)
-- [杨幂张小斐合影互推抢后排](http://www.daogukj.com/hfysjbhb/)
-- [广东一医院因收入持续下降全面停诊](http://www.play.hengshemaoyi.cn/xiju/9852517.htm)
+- [美股](http://www.movie.hkepx.cn/xiju/9563004.htm)
+- [中方驳斥女情报人员接触黄仁勋报道](http://www.daogukj.com/irdcrmjv/)
+- [开创新时代管党治党兴党强党新局面](http://www.play.hengshemaoyi.cn/kongbu/8052623.htm)
+- [如何评价《后会友期》中王子璇文吉儿这对旧友，为何网友说她们的友情令人窒息？](http://www.play.hengshemaoyi.cn/xiju/2544606.htm)
+- [72岁成龙展示一身紧实肌肉](http://www.daogukj.com/yxaiauxe/)
+- [忙着跟生活对线的你，有多久没上号了？谨以此片，致和游戏一起长大的我们。【AI全民制作人】](http://www.daogukj.com/hfysjbhb/)
+- [员工被辞退后，若劳动仲裁时是按公司违法辞退诉求赔偿金即2N，仲裁失败的，一审还能改诉经济补偿金N吗？](http://www.play.hengshemaoyi.cn/xiju/9852517.htm)
 - [一喝水，尿就多，是肾坏了吗？](http://www.movie.hkepx.cn/movie/6952786.htm)
-- [邵永灵：乌克兰低头了](http://www.play.hengshemaoyi.cn/kongbu/6044698.htm)
-- [我用Ai让AUDI和键盘侠打了一架](http://www.play.hengshemaoyi.cn/kongbu/2966437.htm)
-- [A股暖性因子吹响集结号](http://www.movie.hkepx.cn/xiju/5545431.htm)
-- [超市集体下架姆巴佩形象代言商品](http://www.daogukj.com/7790597)
-- [普通人每天吃多少鸡蛋才科学](http://www.movie.hkepx.cn/xiju/8694011.htm)
-- [姜乘澜结婚了](http://www.movie.hkepx.cn/movie/5422234.htm)
+- [今年全国实现生娃基本不花钱](http://www.play.hengshemaoyi.cn/kongbu/6044698.htm)
+- [证监会：全力稳市场稳预期](http://www.play.hengshemaoyi.cn/kongbu/2966437.htm)
+- [英特尔跌30%市值蒸发近1500亿美元](http://www.movie.hkepx.cn/xiju/5545431.htm)
+- [传统武术为什么会有“掌”这种离谱的攻击方式？](http://www.daogukj.com/7790597)
+- [《当爱已成往事》夯爆了](http://www.movie.hkepx.cn/xiju/8694011.htm)
+- [退款的风竟然吹到了友谊界](http://www.movie.hkepx.cn/movie/5422234.htm)
 - [这件“关系民生的大事”务必抓实抓好](http://www.daogukj.com/hygudrhy/)
 - [股票群再度“鸦雀无声”](http://www.movie.hkepx.cn/xiju/6712464.htm)
 - [全面从严治党和鼓励担当作为内在统一](http://www.movie.hkepx.cn/xiju/3635472.htm)
-- [作家大冰 不是靠直播翻红](http://www.daogukj.com/1094500)
+- [马天宇劝文吉儿不要做的太绝情](http://www.daogukj.com/1094500)
 - [墨香铜臭的《魔道祖师》是否是被资本营销出来的？](http://www.daogukj.com/kjnonujn/)
-- [张雨绮自曝体检异常：少用塑料餐盒](http://www.movie.hkepx.cn/movie/2005213.htm)
-- [金价跳水400元有人抄底有人观望](http://www.movie.hkepx.cn/xiju/4140224.htm)
-- [现货黄金失守 4000 美元，这个位置对黄金行情来说意义有多大？](http://www.movie.hkepx.cn/xiju/2598641.htm)
-- [律师回应小城良方告白衣山猫](http://www.daogukj.com/idbcchjh/)
-- [英国为何要加码对乌克兰援助](http://www.movie.hkepx.cn/xiju/2099126.htm)
-- [亚马逊自由现金流「烧穿了」，谷歌的利润下降了，英特尔营收展望不及预期，三件事放一起看能说明什么？](http://www.daogukj.com/fqrljege/)
-- [《崩坏：星穹铁道》4.7版本PV：「此刻，将群星付之一笑」](http://www.daogukj.com/gjlzfppj/)
-- [玩弄“大体老师”不能止于处分学生](http://www.movie.hkepx.cn/movie/2153704.htm)
-- [陈熠3-0淘汰王曼昱](http://www.daogukj.com/cxpctjvk/)
-- [如何评价媒体锐评近期一些自媒体瞄准中青年群体，曲解社保制度，质疑养老金公平性？](http://www.movie.hkepx.cn/xiju/0125063.htm)
-- [【逆水寒×中国歌剧舞剧院】再见仍是初遇的惊艳，国家队跳阿初祈月舞！](http://www.movie.hkepx.cn/movie/5966591.htm)
-- [高校学院大洗牌](http://www.play.hengshemaoyi.cn/xiju/2133033.htm)
-- [景甜一顿早餐吃了蒋欣两天的饭](http://www.daogukj.com/tyanyuwx/)
+- [张雪自掏30万给员工付首付](http://www.movie.hkepx.cn/movie/2005213.htm)
+- [证监会](http://www.movie.hkepx.cn/xiju/4140224.htm)
+- [我觉得我都要爱上厉娜了](http://www.movie.hkepx.cn/xiju/2598641.htm)
+- [住家保姆偷转失能老人30万元](http://www.daogukj.com/idbcchjh/)
+- [孟加拉国总理无视引导不向日国旗鞠躬](http://www.movie.hkepx.cn/xiju/2099126.htm)
+- [付辛博这段发言可以去后会友期了](http://www.daogukj.com/fqrljege/)
+- [Bin 国际赛场与 369 交手记录 1 胜 5 负，为什么大家潜意识总默认 Bin 会更强些？](http://www.daogukj.com/gjlzfppj/)
+- [广东一医院因收入持续下降全面停诊](http://www.movie.hkepx.cn/movie/2153704.htm)
+- [外网爆火的心脏病征兆](http://www.daogukj.com/cxpctjvk/)
+- [赵丽颖不鸣则已一鸣惊人](http://www.movie.hkepx.cn/xiju/0125063.htm)
+- [最逆天的一节课！！](http://www.movie.hkepx.cn/movie/5966591.htm)
+- [一次性内裤终于有了“底”线](http://www.play.hengshemaoyi.cn/xiju/2133033.htm)
+- [《崩坏：星穹铁道》4.7版本PV：「此刻，将群星付之一笑」](http://www.daogukj.com/tyanyuwx/)
 - [令人愤怒的“卖1元火鸡面”视频，炸出了多少被毁掉的中国小孩](http://www.movie.hkepx.cn/xiju/0508741.htm)
-- [我觉得我都要爱上厉娜了](http://www.play.hengshemaoyi.cn/kongbu/9417431.htm)
-- [历史数据复盘：沪指11月上涨比例60%](http://www.movie.hkepx.cn/movie/9354072.htm)
-- [《此弟不宜久留》](http://www.movie.hkepx.cn/xiju/0708358.htm)
-- [撞脸王祖贤女生去景区上班](http://www.daogukj.com/ozjlrwei/)
-- [如何看待法国足协主席称姆巴佩无意冒犯中国人民，希望这件事到此为止？](http://www.play.hengshemaoyi.cn/xiju/7882271.htm)
-- [张家齐推荐陈梦上浪姐](http://www.movie.hkepx.cn/xiju/7392987.htm)
-- [“我本该命途齐天”【孙悟空＆新·与天齐】](http://www.movie.hkepx.cn/xiju/3057735.htm)
-- [国际油价大幅上涨，国家出手继续对成品油价临时调控，汽油每吨应涨440元实涨345元，如何解读？](http://www.daogukj.com/7724415)
-- [第一个15万亿经济大省要来了吗](http://www.movie.hkepx.cn/xiju/7394575.htm)
-- [【独家】《罗小黑战记》第41话 开始学习吧小黑同学【10月国创】](http://www.play.hengshemaoyi.cn/kongbu/1461320.htm)
-- [三阶段了 杀手一曲Golden Hour征服老哥](http://www.movie.hkepx.cn/movie/9245741.htm)
-- [《润魂子》1-5合集 纯享版【AI全民制作人】](http://www.movie.hkepx.cn/movie/4514053.htm)
-- [挑战点一份煎饼果子加料一只帝王蟹，老板会接单吗？](http://www.daogukj.com/8315110)
-- [「X 教授」去世，享年 86 岁,《复仇者联盟 5：毁灭之日》成为遗作，他的离去对漫威宇宙意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/1549451.htm)
+- [邵永灵：乌克兰低头了](http://www.play.hengshemaoyi.cn/kongbu/9417431.htm)
+- [33岁小伙坚持“秋冻”诱发脑出血](http://www.movie.hkepx.cn/movie/9354072.htm)
+- [三阶段了 杀手一曲Golden Hour征服老哥](http://www.movie.hkepx.cn/xiju/0708358.htm)
+- [王濛对唐艺昕说“我喜欢你老公”](http://www.daogukj.com/ozjlrwei/)
+- [邵永灵：乌克兰要把俄罗斯赶出联合国](http://www.play.hengshemaoyi.cn/xiju/7882271.htm)
+- [蔡磊妻子落泪称不甘心](http://www.movie.hkepx.cn/xiju/7392987.htm)
+- [53岁阿姨减重15.8公斤 血糖实现逆转](http://www.movie.hkepx.cn/xiju/3057735.htm)
+- [如何看待红果短剧跃升为国内第四大app？它瓜分了谁的市场？](http://www.daogukj.com/7724415)
+- [金银杀跌原因](http://www.movie.hkepx.cn/xiju/7394575.htm)
+- [作家大冰 不是靠直播翻红](http://www.play.hengshemaoyi.cn/kongbu/1461320.htm)
+- [透明的镜片居然有影子？观众的问题让我脑洞大开！](http://www.movie.hkepx.cn/movie/9245741.htm)
+- [国际油价大幅上涨，国家出手继续对成品油价临时调控，汽油每吨应涨440元实涨345元，如何解读？](http://www.movie.hkepx.cn/movie/4514053.htm)
+- [如何评价 369 采访称「想赢才会兴奋，怕输才会紧张」？](http://www.daogukj.com/8315110)
+- [于东来：建议制度支持消费入座](http://www.play.hengshemaoyi.cn/kongbu/1549451.htm)
 
 </details>
 
 ## 原始来源
 
-- [23岁抗癌网红夏夏去世，18岁确诊骨肉瘤，截肢后父母失联，怎样看待她的抗癌经历？骨肉瘤是种怎样的疾病？](https://www.zhihu.com/question/2098900391664382722)
+- [肖战退后一步的动作熟练得让人心疼](https://s.weibo.com/weibo?q=%E8%82%96%E6%88%98%E9%80%80%E5%90%8E%E4%B8%80%E6%AD%A5%E7%9A%84%E5%8A%A8%E4%BD%9C%E7%86%9F%E7%BB%83%E5%BE%97%E8%AE%A9%E4%BA%BA%E5%BF%83%E7%96%BC)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 5d07266ace8d9bcb5f51 -->
+<!-- content-fingerprint: 337917108d1f93f9e915 -->
