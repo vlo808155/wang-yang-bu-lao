@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 赵丽颖不鸣则已一鸣惊人
+# 如何评价理想、小米成欣旺达动力第二、第三大股东？
 
-> 来源：微博热搜 · 排名：第 13 位 · 热度：310068 · 分类：艺人 · 更新：2026-10-31T10:47:52+08:00
+> 来源：知乎热榜 · 排名：第 13 位 · 热度：248 万热度 · 分类：问答 · 更新：2026-10-31T16:57:53+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“赵丽颖不鸣则已一鸣惊人”位列第 13 位，公开热度指标为 310068，榜单分类为“艺人”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何评价理想、小米成欣旺达动力第二、第三大股东？”位列第 13 位，公开热度指标为 248 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：继理想汽车巨额增资欣旺达动力科技股份有限公司（简称“欣旺达动力”）后，小米也成为了该公司股东。 欣旺达（300207.SZ）10月29日晚间发布公告，旗下动力电池主体欣旺达动力完成新一轮增资，小米通过全资子公司瀚星创投投入17亿元，增资落地后持有欣旺达动力5.34%股权，成为该公司第三大股东，第二大股东理想汽车的股份从8.79%降至8.32%，第一大股东欣旺达惠州新能源有限公司的股份从24.06%降至22.78%。 欣旺达动力部分股东名单。来源：欣旺达公告 公告称，欣旺达动力将进行董事会换届选举，本次增资扩股及选举完成后，欣旺达在欣旺达动力的董事会席位将
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `艺人`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [菲军舰“跟踪”辽宁舰这场戏演给谁看](xuan-liang-ci-gu.md)
-- [阿维塔新车发布会取消，具体是咋回事？背后的原因可能是啥？](zao-bi-tou-guang.md)
-- [常态入鞘彩蛋出鞘！这剑气帅不帅吧？黑伤实际演示！影之刃零联动近战武器！](nang-ying-ying-xue.md)
-- [《当爱已成往事》夯爆了](cheng-men-li-xue.md)
+- [《此弟不宜久留》](xuan-liang-ci-gu.md)
+- [古风歌手吾恩去世](zao-bi-tou-guang.md)
+- [江苏反思2008年高考改革](nang-ying-ying-xue.md)
+- [古力娜扎直播卸妆像没卸](cheng-men-li-xue.md)
 
 ## 站内推荐
 
-- [本周中国硬核成果持续上新](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
-- [小沈阳获《披荆斩棘》总冠军](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
-- [吾恩去世](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
-- [主持人跑网约车被抽成破防](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
-- [詹姆斯20分9篮板8助攻](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
+- [广交会亮出国货新风采](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bai-fa-bai-zhong.md)
+- [日代表团：掘开侵华日军坟墓让其谢罪](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/mao-sui-zi-jian.md)
+- [波兰司法控制权争端升级，总理被指对宪法法院发动政变，目前局势如何？前因后果是怎样的？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yu-mu-hun-zhu.md)
+- [懂球帝做错了吗？为什么要开始指责传播渠道，根源不是在姆巴佩吗？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/rong-hui-guan-tong.md)
+- [《异环》角色实机战斗丨曳尔沐](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/qiao-duo-tian-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [我用Ai让AUDI和键盘侠打了一架](http://www.daogukj.com/aqvilqcv/)
-- [网友无意中摔坏孩子的双层保温碗，发现里面满是霉菌，水都是臭的，为啥会这样？使用这种碗有啥风险？](http://www.daogukj.com/6414183)
-- [CPOPwave出海长红IP——《原神》让世界认识中国游戏](http://www.daogukj.com/9692400)
-- [波兰政变](http://www.movie.hkepx.cn/movie/6535752.htm)
-- [白蚁豪宅被大象拿来擦屁股，没想到擦出了一个微观水世界！](http://www.movie.hkepx.cn/xiju/0970719.htm)
-- [经济日报：“速成车”标签不可乱贴](http://www.play.hengshemaoyi.cn/kongbu/3252379.htm)
-- [宜家、霸王茶姬等品牌开始试点「消费入座」，如何看待这一措施？你支持吗？](http://www.play.hengshemaoyi.cn/xiju/7767996.htm)
-- [小区物业退场 谁来收拾“烂摊子”](http://www.movie.hkepx.cn/xiju/4933959.htm)
-- [有地方明确：12345不再接这几类诉求](http://www.movie.hkepx.cn/movie/6277466.htm)
-- [HLE抽到BLG](http://www.movie.hkepx.cn/movie/4847983.htm)
-- [《星游记》前传电影启动，方向黑洞，目标彩虹海！](http://www.movie.hkepx.cn/movie/2816035.htm)
-- [亮记闲谈-如果恐龙活着它的肉是什么味？](http://www.movie.hkepx.cn/xiju/1480868.htm)
-- [热度过后现在该如何评价《黑神话：悟空》这款游戏?](http://www.play.hengshemaoyi.cn/kongbu/9076765.htm)
-- [工资发到数币钱包和打银行卡有何不同](http://www.movie.hkepx.cn/xiju/5940142.htm)
-- [《烂梗下桌》与其怪食客的嘴，不如让烂梗下桌](http://www.movie.hkepx.cn/movie/4965485.htm)
-- [美国3岁男童遭警方击毙现场画面](http://www.movie.hkepx.cn/xiju/9603692.htm)
-- [透明的镜片居然有影子？观众的问题让我脑洞大开！](http://www.daogukj.com/dgoqdmey/)
-- [主持人跑网约车被抽成破防](http://www.daogukj.com/jbixuceg/)
-- [常态入鞘彩蛋出鞘！这剑气帅不帅吧？黑伤实际演示！影之刃零联动近战武器！](http://www.movie.hkepx.cn/movie/3470730.htm)
-- [【丧病中配】当2077的CV来配音《赛博朋克：边缘行者2》（第一话）](http://www.play.hengshemaoyi.cn/xiju/4606749.htm)
-- [新人包双层巴士和复古铛铛车接亲](http://www.play.hengshemaoyi.cn/xiju/1809500.htm)
-- [S16抽签](http://www.play.hengshemaoyi.cn/xiju/2357926.htm)
-- [日本访华代表团鞠躬谢罪](http://www.daogukj.com/mubcstjz/)
-- [红军突围靠打不靠让 驳“放水论”](http://www.play.hengshemaoyi.cn/kongbu/1803166.htm)
-- [小沈阳获《披荆斩棘》总冠军](http://www.play.hengshemaoyi.cn/xiju/6178111.htm)
-- [党的二十届五中全会学习手账](http://www.play.hengshemaoyi.cn/kongbu/1944948.htm)
-- [攻击21在四川舰上完成起降意味什么](http://www.daogukj.com/6071545)
-- [《当爱已成往事》夯爆了](http://www.play.hengshemaoyi.cn/xiju/4544487.htm)
-- [英特尔美股暴跌科技股同步大跌](http://www.movie.hkepx.cn/movie/6450034.htm)
-- [大学生用四年codex，每天进步一点，四年之后，与没用上codex的同学会有很大的差距么？](http://www.play.hengshemaoyi.cn/xiju/9133321.htm)
-- [【独家】《罗小黑战记》第41话 开始学习吧小黑同学【10月国创】](http://www.movie.hkepx.cn/movie/2700475.htm)
-- [小沈阳披荆斩棘冠军](http://www.daogukj.com/1077827)
-- [为什么古代的食用油那么珍贵，老百姓们还能吃得起炸油条？](http://www.play.hengshemaoyi.cn/kongbu/0870154.htm)
-- [张雪机车90后专科生员工年薪五六十万，张雪对校招生直言「你们起点比他高」，现场学生真能年薪比他们高吗？](http://www.movie.hkepx.cn/movie/5323758.htm)
-- [詹姆斯20分9篮板8助攻](http://www.play.hengshemaoyi.cn/xiju/4973102.htm)
-- [波兰司法控制权争端升级，总理被指对宪法法院发动政变，目前局势如何？前因后果是怎样的？](http://www.movie.hkepx.cn/xiju/8685260.htm)
-- [撞脸王祖贤女生去景区上班](http://www.play.hengshemaoyi.cn/kongbu/1304214.htm)
-- [好剧本都要从赵丽颖手中过一遍](http://www.play.hengshemaoyi.cn/xiju/0363166.htm)
-- [传统武术为什么会有“掌”这种离谱的攻击方式？](http://www.movie.hkepx.cn/xiju/5928968.htm)
-- [四千元的冰柜被「仅退款」，买家称已销毁，商家跨千里发现商品仍在使用，买卖双方各执一词，责任该如何认定？](http://www.daogukj.com/2348227)
-- [“共享儿女”试点：每月最低199元](http://www.movie.hkepx.cn/xiju/7664029.htm)
-- [如何评价万科2026年1-9月亏损239.4亿元？](http://www.movie.hkepx.cn/xiju/6562531.htm)
-- [西藏唇腭裂男童面诊完爸爸笑了](http://www.play.hengshemaoyi.cn/kongbu/1978626.htm)
-- [退款的风竟然吹到了友谊界](http://www.movie.hkepx.cn/movie/8501679.htm)
-- [三角洲新刀皮最全细节展示-黑伤](http://www.daogukj.com/olljhjfc/)
-- [金球奖公布投票详情](http://www.movie.hkepx.cn/xiju/8131882.htm)
-- [李艺彤和黄婷婷关系破裂的原因是什么？](http://www.movie.hkepx.cn/xiju/6634802.htm)
-- [HLE抽到BLG众人反应](http://www.play.hengshemaoyi.cn/kongbu/0490106.htm)
-- [三阶段了 杀手一曲Golden Hour征服老哥](http://www.play.hengshemaoyi.cn/xiju/3496955.htm)
-- [DeepSeek 居然会对用户说「我去吃饭了」「我去睡了」，为啥会出现这样的现象？](http://www.movie.hkepx.cn/movie/9511541.htm)
+- [娜扎直播卸妆卸了个寂寞](http://www.daogukj.com/aqvilqcv/)
+- [国行苹果智能首批功能](http://www.daogukj.com/6414183)
+- [官方通报村支书威胁环保博主](http://www.daogukj.com/9692400)
+- [这几天股市为啥下滑这么大？](http://www.movie.hkepx.cn/movie/6535752.htm)
+- [【独家】《凡人修仙传之慕兰之战》第22集【总第198集】](http://www.movie.hkepx.cn/xiju/0970719.htm)
+- [今年全国实现生娃基本不花钱](http://www.play.hengshemaoyi.cn/kongbu/3252379.htm)
+- [“我本该命途齐天”【孙悟空＆新·与天齐】](http://www.play.hengshemaoyi.cn/xiju/7767996.htm)
+- [艾米 36码的脚穿40码的鞋](http://www.movie.hkepx.cn/xiju/4933959.htm)
+- [官方披露：将有两名中国人登陆月球](http://www.movie.hkepx.cn/movie/6277466.htm)
+- [梦舟载人飞船和揽月着陆器将首次飞行](http://www.movie.hkepx.cn/movie/4847983.htm)
+- [男人看似喜欢你却不推进关系](http://www.movie.hkepx.cn/movie/2816035.htm)
+- [勒布伦2比1孙颖莎](http://www.movie.hkepx.cn/xiju/1480868.htm)
+- [透明的镜片居然有影子？观众的问题让我脑洞大开！](http://www.play.hengshemaoyi.cn/kongbu/9076765.htm)
+- [卖650万捐赠房产要缴450万的税](http://www.movie.hkepx.cn/xiju/5940142.htm)
+- [43岁博士辞职因书太多开了家书店](http://www.movie.hkepx.cn/movie/4965485.htm)
+- [小沈阳披荆斩棘冠军](http://www.movie.hkepx.cn/xiju/9603692.htm)
+- [狐狸叼着高原大米饭路过王一博](http://www.daogukj.com/dgoqdmey/)
+- [懂球帝做错了吗？为什么要开始指责传播渠道，根源不是在姆巴佩吗？](http://www.daogukj.com/jbixuceg/)
+- [江苏反思2008年高考改革](http://www.movie.hkepx.cn/movie/3470730.htm)
+- [波兰政变](http://www.play.hengshemaoyi.cn/xiju/4606749.htm)
+- [假如主角身边全是奸臣(大合集)一次性看完!](http://www.play.hengshemaoyi.cn/xiju/1809500.htm)
+- [微博视界大会节目单](http://www.play.hengshemaoyi.cn/xiju/2357926.htm)
+- [意大利50多个城市爆发示威游行](http://www.daogukj.com/mubcstjz/)
+- [红军破险篇 驳“放水论”](http://www.play.hengshemaoyi.cn/kongbu/1803166.htm)
+- [日代表团：掘开侵华日军坟墓让其谢罪](http://www.play.hengshemaoyi.cn/xiju/6178111.htm)
+- [保持定力持之以恒推进全面从严治党](http://www.play.hengshemaoyi.cn/kongbu/1944948.htm)
+- [最逆天的一节课！！](http://www.daogukj.com/6071545)
+- [古力娜扎直播卸妆像没卸](http://www.play.hengshemaoyi.cn/xiju/4544487.htm)
+- [全球最赚钱公司中国占七席](http://www.movie.hkepx.cn/movie/6450034.htm)
+- [12月14日全球公测 |《白银之城》角色PV - 库拉蒂：愚者与勇者](http://www.play.hengshemaoyi.cn/xiju/9133321.htm)
+- [大金镯子又香了](http://www.movie.hkepx.cn/movie/2700475.htm)
+- [实在抱歉！我哥疯了 （阿晴教学篇op/ed）【28】](http://www.daogukj.com/1077827)
+- [白百何被曝疑似新恋情后首露面](http://www.play.hengshemaoyi.cn/kongbu/0870154.htm)
+- [孙颖莎1-2不敌大勒布伦](http://www.movie.hkepx.cn/movie/5323758.htm)
+- [《异环》角色实机战斗丨曳尔沐](http://www.play.hengshemaoyi.cn/xiju/4973102.htm)
+- [小沈阳发文回应夺冠](http://www.movie.hkepx.cn/xiju/8685260.htm)
+- [vibe知识大赏：秦始皇—嬴政](http://www.play.hengshemaoyi.cn/kongbu/1304214.htm)
+- [张雪机车90后专科生员工年薪五六十万，张雪对校招生直言「你们起点比他高」，现场学生真能年薪比他们高吗？](http://www.play.hengshemaoyi.cn/xiju/0363166.htm)
+- [灭建国的超能力](http://www.movie.hkepx.cn/xiju/5928968.htm)
+- [BLG瑞士轮生死战抽到HLE](http://www.daogukj.com/2348227)
+- [烽火地带巴克什全新阵营对抗玩法，11月5日，即刻抉择！](http://www.movie.hkepx.cn/xiju/7664029.htm)
+- [人生不只往上走，也可以往宽了过｜杨澜对话刘嘉铭](http://www.movie.hkepx.cn/xiju/6562531.htm)
+- [“假笑男孩”16岁了](http://www.play.hengshemaoyi.cn/kongbu/1978626.htm)
+- [中国找矿获重大突破](http://www.movie.hkepx.cn/movie/8501679.htm)
+- [昂跑未宣布与姆巴佩解约](http://www.daogukj.com/olljhjfc/)
+- [微博视界大会红毯](http://www.movie.hkepx.cn/xiju/8131882.htm)
+- [李昀锐向镜头展示尚公主言尚](http://www.movie.hkepx.cn/xiju/6634802.htm)
+- [日本访华代表团鞠躬谢罪](http://www.play.hengshemaoyi.cn/kongbu/0490106.htm)
+- [谁在盯着“大衣哥”](http://www.play.hengshemaoyi.cn/xiju/3496955.htm)
+- [赵今麦状态太好了](http://www.movie.hkepx.cn/movie/9511541.htm)
 
 </details>
 
 ## 原始来源
 
-- [赵丽颖不鸣则已一鸣惊人](https://s.weibo.com/weibo?q=%E8%B5%B5%E4%B8%BD%E9%A2%96%E4%B8%8D%E9%B8%A3%E5%88%99%E5%B7%B2%E4%B8%80%E9%B8%A3%E6%83%8A%E4%BA%BA)
+- [如何评价理想、小米成欣旺达动力第二、第三大股东？](https://www.zhihu.com/question/2099592453800182532)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: b1447bdd060f76683b7b -->
+<!-- content-fingerprint: e20672ab653e877f3d47 -->
