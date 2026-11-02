@@ -1,12 +1,12 @@
 [热点索引](README.md)
 
-# 孙颖莎回应夺冠
+# 胡歌自曝已经戒烟很久
 
-> 来源：今日头条热榜 · 排名：第 13 位 · 热度：2329554 · 分类：热门事件 · 更新：2026-11-02T09:50:26+08:00
+> 来源：今日头条热榜 · 排名：第 13 位 · 热度：3753843 · 更新：2026-11-02T16:25:42+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“孙颖莎回应夺冠”位列第 13 位，公开热度指标为 2329554，榜单分类为“热门事件”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“胡歌自曝已经戒烟很久”位列第 13 位，公开热度指标为 3753843。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
 今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
@@ -14,85 +14,85 @@
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `热门事件`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [2026赛季F1墨西哥站，安东内利加冕世界冠军，勒克莱尔第四，如何评价本场比赛？](zao-bi-tou-guang.md)
-- [这样建？几棵树苗能做什么？【Minecraft】](nang-ying-ying-xue.md)
-- [85花很刻意避免同台了](cheng-men-li-xue.md)
-- [刘建宏谈U17女足不敌巴西](shou-bu-shi-juan.md)
+- [为什么英雄联盟解说在提 Kanavi 时感觉有很强情绪，这是什么原因？](zao-bi-tou-guang.md)
+- [年度综艺！恨海情天！这个《后会友期》真的太好品了！！](nang-ying-ying-xue.md)
+- [赵丽颖方打假田田小阿姨](cheng-men-li-xue.md)
+- [A股农历924重大利好来了](shou-bu-shi-juan.md)
 
 ## 站内推荐
 
-- [今年乌镇峰会首次向社会开放预约](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
-- [美公务机坠机点距特朗普私宅仅几公里](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
-- [新疆禾木野生猴群下山抢手机？假的](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
-- [几百年后的人看现在，会不会觉得内燃机是人类在汽车制造上的一条弯路?](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
-- [【果然三角洲9】得众乐乐啊](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
+- [2026年世界互联网大会乌镇峰会](https://github.com/vlo808155/hua-she-tian-zu/blob/main/qian-jun-wan-ma.md)
+- [美坠机事故前驾驶员求救录音公布](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/san-gu-mao-lu.md)
+- [“西班牙列车事发前视频”不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/dong-shi-xiao-pin.md)
+- [朝谴责美韩军演是穷凶极恶核战争预演](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ji-si-guang-yi.md)
+- [六大行均已重启大额存单发行](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/gui-fu-shen-gong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [芒果台今年已推出《我家那闺女》《后会友期》《中餐厅》《乘风》等大爆综艺，为啥芒果做综艺这么有「灵性」？](http://www.movie.hkepx.cn/xiju/1653219.htm)
-- [美飞机坠毁9人遇难 地面被撞出大坑](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
-- [迪丽热巴这套造型至今无人超越](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
-- [从“看热闹”到“看门道”](http://www.daogukj.com/ceegkpfb/)
-- [创业五十天如何破产](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
-- [美公务机坠毁前女飞行员绝望尖叫](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
-- [家长：接初中生放学就像特务接头](http://www.movie.hkepx.cn/xiju/2935808.htm)
-- [中国队结束U17女足世界杯之旅](http://www.movie.hkepx.cn/movie/6067835.htm)
-- [她拽住了全城的人，可谁来拽住她？【反乌托邦】](http://www.movie.hkepx.cn/movie/1919789.htm)
-- [美公务机坠机点距特朗普私宅仅几公里](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
-- [2026赛季F1墨西哥站，安东内利加冕世界冠军，勒克莱尔第四，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
-- [全球资产遭遇洗盘](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
-- [胡歌自曝身边好友陆续因心梗离世](http://www.movie.hkepx.cn/xiju/8738765.htm)
-- [新疆禾木野生猴群下山抢手机？假的](http://www.play.hengshemaoyi.cn/xiju/4131259.htm)
-- [中国“00后”球手爆冷淘汰特鲁姆普](http://www.daogukj.com/5961107)
-- [【明日方舟】塔露拉实战测评：实力为超大杯中！打破强度疑问，重新正视自我！强烈推荐抽取！](http://www.daogukj.com/4005019)
-- [热播剧《小城良方》中男主用甲硝唑磨粉吸进鼻子治鼻炎被质疑，甲硝唑粉真的能治鼻炎吗？可能会有哪些风险？](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
-- [天 有 祀 时.exe【终末地/丹青渡】](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
-- [如何看待鸿蒙智行五界2026年10月销量合计33537辆？五界是否能生存下去？](http://www.movie.hkepx.cn/xiju/3802162.htm)
-- [OpenAI 宣布四项数学研究原则，放弃一切学术署名并捐献 500 万美元，如何理解这项举动？](http://www.daogukj.com/4160322)
-- [几百年后的人看现在，会不会觉得内燃机是人类在汽车制造上的一条弯路?](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
-- [休息日爬山5小时未回工作消息遭辞退](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
-- [吴磊婉拒蔡徐坤](http://www.movie.hkepx.cn/movie/5796961.htm)
-- [马天宇张萌 和好](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
-- [金价大跌白银价格腰斩](http://www.daogukj.com/6018961)
-- [中国女生借卫生巾震撼外国网友](http://www.daogukj.com/efehcbta/)
-- [是我呀，银月](http://www.daogukj.com/7846527)
-- [【果然三角洲9】得众乐乐啊](http://www.movie.hkepx.cn/movie/2779517.htm)
-- [孙颖莎退出法兰克福冠军赛](http://www.daogukj.com/5137842)
-- [“中国最冷小镇”降至-28℃](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
-- [林一看到穿婚纱的刘亦菲了](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
-- [乌鲁木齐辟谣“禁售马肉马肠制品”](http://www.daogukj.com/2275454)
-- [刘建宏谈U17女足不敌巴西](http://www.movie.hkepx.cn/movie/8955518.htm)
-- [今年乌镇峰会首次向社会开放预约](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
-- [孙颖莎退赛法兰克福站](http://www.daogukj.com/3040545)
-- [世界最最最烂活](http://www.movie.hkepx.cn/movie/0072136.htm)
-- [罗技跟用户干上了](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
-- [这样建？几棵树苗能做什么？【Minecraft】](http://www.movie.hkepx.cn/xiju/2548466.htm)
-- [为何AI短剧好像放弃了清宫戏，而更倾向于唐/宋/架空朝代？跟观众偏好、技术、选题、价值观有啥关系吗？](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
-- [老法师把自己当馒头蒸，结果蒸成了中微子](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
-- [拐弯指路牌火了 网友建议全国推广](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
-- [侯明昊感谢环节被喊倒闭](http://www.movie.hkepx.cn/movie/0563740.htm)
-- [【独家】牧神记 第107集 上苍](http://www.play.hengshemaoyi.cn/xiju/5085308.htm)
-- [⚡️⚡️⚡️猫咖倒闭，救救我们⚡️⚡️⚡️](http://www.movie.hkepx.cn/xiju/6484379.htm)
-- [韩网炸了！BLG淘汰HLE送全队十六强，韩国人怎么评价韩华突然回家？](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
-- [A股开盘：创业板指高开1.05%](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
-- [A股](http://www.movie.hkepx.cn/movie/4954417.htm)
-- [评论员：中国要在黄岩岛关门了](http://www.daogukj.com/8556378)
-- [江苏多地物业引入巡逻机器人「一台抵 5 个保安」，这会成为未来趋势吗？](http://www.daogukj.com/0551116)
-- [德国30多城爆发抗议，抗议高昂生活成本并要求改善教育，本次席卷欧洲抗议浪潮影响有多大？可能会如何收尾？](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
+- [红果日活1.68亿，AI短剧一集可能只赚一块钱，对此你怎么看？AI短剧为何不赚钱？](http://www.movie.hkepx.cn/xiju/1653219.htm)
+- [微信转账加一个动作](http://www.play.hengshemaoyi.cn/xiju/6501967.htm)
+- [你真睡醒了吗哥？](http://www.play.hengshemaoyi.cn/kongbu/7273931.htm)
+- [世界眼中的“中国机遇2.0”](http://www.daogukj.com/ceegkpfb/)
+- [韩网炸了！BLG淘汰HLE送全队十六强，韩国人怎么评价韩华突然回家？Viper Gumayusi Bin 左手](http://www.play.hengshemaoyi.cn/xiju/9134839.htm)
+- [曝时代峰峻高会客服骂人](http://www.play.hengshemaoyi.cn/kongbu/4320644.htm)
+- [大额存单来了！六大行全部重启发行](http://www.movie.hkepx.cn/xiju/2935808.htm)
+- [被赞国泰民安脸 颁奖礼仪小姐回应](http://www.movie.hkepx.cn/movie/6067835.htm)
+- [《明日方舟》「卫戍协议：规程」宣传PV](http://www.movie.hkepx.cn/movie/1919789.htm)
+- [美坠机事故前驾驶员求救录音公布](http://www.play.hengshemaoyi.cn/kongbu/7273017.htm)
+- [为什么英雄联盟解说在提 Kanavi 时感觉有很强情绪，这是什么原因？](http://www.play.hengshemaoyi.cn/xiju/5015756.htm)
+- [吴彦祖咖啡店送饼干 观众：阿祖收手吧](http://www.play.hengshemaoyi.cn/kongbu/6220563.htm)
+- [每天跑3公里，100天后我的身体有什么变化？](http://www.movie.hkepx.cn/xiju/8738765.htm)
+- [“西班牙列车事发前视频”不实](http://www.play.hengshemaoyi.cn/xiju/4131259.htm)
+- [喜欢吃烤红薯的人天塌了 真的吗](http://www.daogukj.com/5961107)
+- [世界最最最烂活](http://www.daogukj.com/4005019)
+- [能“横着走”的中国车在海外社媒走红](http://www.play.hengshemaoyi.cn/xiju/2937776.htm)
+- [⚡️⚡️⚡️猫咖倒闭，救救我们⚡️⚡️⚡️](http://www.play.hengshemaoyi.cn/xiju/9923216.htm)
+- [美国一公务机在居民区坠毁致9死，距特朗普的海湖庄园仅七八公里，具体情况如何？可能是什么原因？](http://www.movie.hkepx.cn/xiju/3802162.htm)
+- [我画地为牢谢娜](http://www.daogukj.com/4160322)
+- [朝谴责美韩军演是穷凶极恶核战争预演](http://www.play.hengshemaoyi.cn/kongbu/6938259.htm)
+- [4941抽，67塔露拉](http://www.play.hengshemaoyi.cn/kongbu/2312131.htm)
+- [外交部：中方多位特使特代将赴中东](http://www.movie.hkepx.cn/movie/5796961.htm)
+- [斯诺克国锦赛：丁俊晖vs张安达](http://www.play.hengshemaoyi.cn/kongbu/2925343.htm)
+- [你家可能囤着致癌日用品](http://www.daogukj.com/6018961)
+- [马斯克称别逼我买下微软](http://www.daogukj.com/efehcbta/)
+- [美国中期选举临近，捐款榜前十里七家倒向共和党，支持率却不如民主党，为啥金钱失去了以往一锤定音的威力？](http://www.daogukj.com/7846527)
+- [六大行均已重启大额存单发行](http://www.movie.hkepx.cn/movie/2779517.htm)
+- [文吉儿上后会友期原因](http://www.daogukj.com/5137842)
+- [美飞机急坠近万米全员遇难 原因分析](http://www.play.hengshemaoyi.cn/xiju/8997178.htm)
+- [好消息好消息！买智能体手机送Token了！](http://www.play.hengshemaoyi.cn/xiju/9209429.htm)
+- [员工举报公司“制毒”系凭空编造](http://www.daogukj.com/2275454)
+- [A股农历924重大利好来了](http://www.movie.hkepx.cn/movie/8955518.htm)
+- [2026年世界互联网大会乌镇峰会](http://www.play.hengshemaoyi.cn/xiju/8039195.htm)
+- [导演江小鱼去世 年仅56岁](http://www.daogukj.com/3040545)
+- [离职了 前同事直接问我找到工作没怎么回复呀？](http://www.movie.hkepx.cn/movie/0072136.htm)
+- [才知道改名可以改姓](http://www.play.hengshemaoyi.cn/xiju/4087554.htm)
+- [年度综艺！恨海情天！这个《后会友期》真的太好品了！！](http://www.movie.hkepx.cn/xiju/2548466.htm)
+- [庆功宴上，领导表扬你一句后夹起一块鱼给你，说“鱼是好鱼，就是刺多”，你该如何高情商地回答？](http://www.play.hengshemaoyi.cn/kongbu/3330544.htm)
+- [大肥鱼适合做女朋友吗？（2）](http://www.play.hengshemaoyi.cn/xiju/3311849.htm)
+- [印度巨贪夫妻10万一栋拿下40套别墅](http://www.play.hengshemaoyi.cn/kongbu/4035889.htm)
+- [美公务机坠毁地面被撞出大坑](http://www.movie.hkepx.cn/movie/0563740.htm)
+- [致敬传奇抗压王——塔露拉](http://www.play.hengshemaoyi.cn/xiju/5085308.htm)
+- [为什么在中国，很多人认为中国球员踢不好球是因为太有钱了？](http://www.movie.hkepx.cn/xiju/6484379.htm)
+- [35岁中专小伙“手搓”AI短剧走红](http://www.play.hengshemaoyi.cn/xiju/8951444.htm)
+- [2027是最舒服的一年](http://www.play.hengshemaoyi.cn/xiju/9722718.htm)
+- [王曼昱签约蝴蝶](http://www.movie.hkepx.cn/movie/4954417.htm)
+- [巴菲特48年没喝过白开水](http://www.daogukj.com/8556378)
+- [孩子主动和我说，不想拿第一名，只想做中等舒服的人，我该怎么办？](http://www.daogukj.com/0551116)
+- [演员邵万林去世](http://www.play.hengshemaoyi.cn/xiju/2783324.htm)
 
 </details>
 
 ## 原始来源
 
-- [孙颖莎回应夺冠](https://www.toutiao.com/trending/7702943994111688747/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227702943994111688747%22%2C%22hot_board_impr_id%22%3A%222026110209502505E1D40C8246F7E582B1%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [胡歌自曝已经戒烟很久](https://www.toutiao.com/trending/7703232324968382506/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%222%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227703232324968382506%22%2C%22hot_board_impr_id%22%3A%22202611021625416C86374255D7AC431E22%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 764e15cbfc87098cc7e9 -->
+<!-- content-fingerprint: d8d4b8ab5db8e33be1fd -->
