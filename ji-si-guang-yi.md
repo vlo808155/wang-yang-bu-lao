@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 一批乒乓球赛事假直播伪造比分、虚假解说、带货变现，观看人数超20万，为什么这也能赚钱？有哪些法律风险？
+# 一场“猪眼”争论照出韩国政坛什么
 
-> 来源：知乎热榜 · 排名：第 15 位 · 热度：164 万热度 · 分类：问答 · 更新：2026-11-03T09:16:35+08:00
+> 来源：今日头条热榜 · 排名：第 15 位 · 热度：3368515 · 更新：2026-11-03T15:57:53+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“一批乒乓球赛事假直播伪造比分、虚假解说、带货变现，观看人数超20万，为什么这也能赚钱？有哪些法律风险？”位列第 15 位，公开热度指标为 164 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“一场“猪眼”争论照出韩国政坛什么”位列第 15 位，公开热度指标为 3368515。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，有网友发现，在视频号、抖音等短视频平台，有不少打着“实时乒乓球比赛”“国乒比赛”等旗号的直播间颇有热度：主播情绪高昂地解说赛场局势，评论区互动频繁，点赞数动辄上万，看似是火热的实时赛事直播。但记者核查发现，这类直播间大多并非实时直播，而是拼接过往比赛背景音，甚至直接伪造比分的假赛事直播，靠观众对体育赛事信息差、观赛热情，博取停留时长、收割点赞流量，部分账号借此引流带货变现。这些假赛事直播背后暗藏着哪些风险？ 伪造比分、虚假解说， 乒乓球假赛事直播引数万人围观 “支持大迪的，30、30扣一波！”“全屏，全屏，来一波！” 近日，视频号某直播间内，一位主
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [【纸绘动画/卡点】爆肝600张！！数形结合！让你爱上数学【手搓动画大赛】](qu-chang-bu-duan.md)
-- [“棉服”里面没有棉？不是你眼花](jing-yi-qiu-jing.md)
-- [红果短剧刷到天亮](jiao-ta-shi-di.md)
-- [怎么看 OpenAI CEO 说，最好的内存应该留给数据中心，而不是闲置在本地 PC 浪费？](shi-shi-qiu-shi.md)
+- [2026 年美国中期选举，共和党与民主党谁能最终获胜？](qu-chang-bu-duan.md)
+- [直播放雨爱给屋顶听通透了](jing-yi-qiu-jing.md)
+- [特朗普选前收官演讲成“装修报告”](jiao-ta-shi-di.md)
+- [陪你到世界之巅翻红](shi-shi-qiu-shi.md)
 
 ## 站内推荐
 
-- [结婚当天离世新郎系心脏压塞死亡](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [伊朗称已组建首支“为伊朗捐躯”旅](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [赵心童丁俊晖第一笔奖金都给父母了](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [王曼昱签约蝴蝶最高等级顾问合约，这种合作模式与普通运动员代言有什么区别？意味着什么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [清理熊患后续，只因西伯利亚棕熊泛滥成灾。](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [赴港看演唱会女孩低保已被取消](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [女生赴港看演出低保被取消亲属发声](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [女作家称AI写书赚百万美元](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [曝厉娜有重度抑郁](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [KD生气回应出手少](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [新华社：国乒男队怎么了](http://www.daogukj.com/elzxddpw/)
-- [一口气2个小时看完猎奇韩剧《末路兼职》八种怪谈，夺命兼职！日薪一亿的危险工作你干吗？爆肝三万字！](http://www.movie.hkepx.cn/movie/1864442.htm)
-- [国际油价大幅下跌](http://www.play.hengshemaoyi.cn/xiju/5288873.htm)
-- [是该让爸妈兑现催生时的承诺了](http://www.daogukj.com/1789946)
-- [中国公务团组人员被瑞典警方拘押](http://www.play.hengshemaoyi.cn/xiju/7002266.htm)
-- [英国男子1998年从智利出发终于到家](http://www.daogukj.com/7327475)
-- [新华社追问国乒男队怎么了](http://www.movie.hkepx.cn/xiju/9951548.htm)
-- [媒体提醒双11买Token当心踩坑](http://www.movie.hkepx.cn/xiju/1674151.htm)
-- [A股将迎千亿级增量资金](http://www.play.hengshemaoyi.cn/kongbu/9814810.htm)
-- [马天宇仅互关评论后的杨幂](http://www.daogukj.com/6006131)
-- [微软大裁员后许多印度裔员工的上班vlog被扒，上班即食堂、锻炼打球等是真的吗？真实的职场环境是怎样的？](http://www.movie.hkepx.cn/movie/5825798.htm)
-- [《走马上任》空降开播](http://www.movie.hkepx.cn/movie/4511611.htm)
-- [中医大学生街头摆摊按摩 9.9元10分钟](http://www.play.hengshemaoyi.cn/xiju/7118308.htm)
-- [“棉服”里面没有棉？不是你眼花](http://www.movie.hkepx.cn/movie/3210477.htm)
-- [威少得知球衣退役当场落泪](http://www.movie.hkepx.cn/movie/1427819.htm)
-- [如何看待新华社公众号在11月2日发表的文章《国乒男队怎么了？》中表示：男子乒坛多极格局已成?](http://www.daogukj.com/ulhauueh/)
-- [巩立姣退役后减重60多斤](http://www.movie.hkepx.cn/xiju/7426025.htm)
-- [以此朋克，倚老卖老。](http://www.daogukj.com/6828552)
-- [网传《offer8》「垫钱姐」周沁瑶论文疑似造假，已经面临延毕，她的论文疑点可能在哪里呢？](http://www.daogukj.com/4846063)
-- [“中国最赚钱高铁”今年已经净赚百亿](http://www.play.hengshemaoyi.cn/xiju/1115121.htm)
-- [这些东西致癌 千万别囤了](http://www.movie.hkepx.cn/xiju/5458697.htm)
-- [衣服吊牌比脸大 防的是谁伤的是谁](http://www.movie.hkepx.cn/xiju/7970452.htm)
-- [谁最可能成为中国首位登月航天员，他的历史地位将会如何？](http://www.daogukj.com/7831492)
-- [官方将股票回购增持再贷款政策由阶段性转为长期制度性安排，再贷款利率由1.25％降至1%，将有哪些影响？](http://www.movie.hkepx.cn/movie/0165285.htm)
-- [小黑你爸回你消息了](http://www.play.hengshemaoyi.cn/kongbu/1576216.htm)
-- [中国第一大肝病已经不是乙肝了](http://www.play.hengshemaoyi.cn/kongbu/0352211.htm)
-- [特努斯回应iPhoneDuo屏幕问题](http://www.daogukj.com/skxlcqbv/)
-- [“阿姨是世界上第一个离开你的人”](http://www.play.hengshemaoyi.cn/kongbu/8194557.htm)
-- [哟西！故乡的樱花开了！](http://www.play.hengshemaoyi.cn/xiju/8022096.htm)
-- [这还能是童年套圈机！？做成世界大赛！](http://www.movie.hkepx.cn/xiju/7214601.htm)
-- [微软向 6 万名员工开放自愿离职方案，为何连 Copilot 部门也成重灾区？](http://www.daogukj.com/nvgfhrus/)
-- [⚡️如来演唱《金刚FUNK》⚡️【AI MV大赛】](http://www.movie.hkepx.cn/xiju/2289573.htm)
-- [2027或是最舒服年](http://www.play.hengshemaoyi.cn/kongbu/7073818.htm)
-- [特朗普能力阻“蓝色海啸”吗](http://www.play.hengshemaoyi.cn/kongbu/3209429.htm)
-- [CPOPwave长红IP《原神》](http://www.play.hengshemaoyi.cn/kongbu/4786157.htm)
-- [才知道改名可以改姓](http://www.movie.hkepx.cn/xiju/4895855.htm)
-- [BLG：雪原双子回归！](http://www.play.hengshemaoyi.cn/kongbu/0234862.htm)
-- [多读书真的会影响三观](http://www.daogukj.com/1476559)
-- [曝许飞没有背刺厉娜](http://www.play.hengshemaoyi.cn/kongbu/3024566.htm)
-- [为什么“黄胖子”找不到合适演员](http://www.movie.hkepx.cn/xiju/4214569.htm)
-- [美国中期选举今日投票](http://www.play.hengshemaoyi.cn/kongbu/1465165.htm)
-- [清理熊患后续，只因西伯利亚棕熊泛滥成灾。](http://www.daogukj.com/0876342)
-- [地球上的动物为什么很多都进化出“睡觉”这一习性？](http://www.play.hengshemaoyi.cn/kongbu/5523593.htm)
-- [男子彩票中1113万过期2天兑奖被拒](http://www.movie.hkepx.cn/xiju/7093896.htm)
-- [结婚当天离世新郎系心脏压塞死亡](http://www.movie.hkepx.cn/movie/2906304.htm)
-- [美官员称美袭击伊朗格什姆岛](http://www.play.hengshemaoyi.cn/kongbu/6007147.htm)
-- [蔡文静爸爸最在乎的是孙子高不高兴](http://www.play.hengshemaoyi.cn/xiju/5236793.htm)
-- [怎么看 OpenAI CEO 说，最好的内存应该留给数据中心，而不是闲置在本地 PC 浪费？](http://www.daogukj.com/5178271)
-- [这种外卖保温袋“甲醛超标” 赶紧扔](http://www.play.hengshemaoyi.cn/kongbu/4327189.htm)
-- [沈阳保洁大叔回应短剧失忆梗](http://www.daogukj.com/3659644)
+- [刘延东遗体在京火化](http://www.daogukj.com/elzxddpw/)
+- [樊振东2年没打WTT仍居第二](http://www.movie.hkepx.cn/movie/1864442.htm)
+- [警方通报九寨沟游客冲突：已调解](http://www.play.hengshemaoyi.cn/xiju/5288873.htm)
+- [古代的苦水水质口感相当于现在的自来水吗？](http://www.daogukj.com/1789946)
+- [低保户女生赴港看演唱会：低保已取消](http://www.play.hengshemaoyi.cn/xiju/7002266.htm)
+- [于东来建议制度支持「消费入座」及拒外带食物，如何看待这一提议？](http://www.daogukj.com/7327475)
+- [警方通报九寨沟景区游客冲突事件](http://www.movie.hkepx.cn/xiju/9951548.htm)
+- [斯诺克国锦赛：亚伦·希尔vs赵心童](http://www.movie.hkepx.cn/xiju/1674151.htm)
+- [内娱女星杂志销量TOP排行](http://www.play.hengshemaoyi.cn/kongbu/9814810.htm)
+- [第1期：南山雪地徒步，邂逅新疆冬日浪漫【此生要去的100个地方 第二季】](http://www.daogukj.com/6006131)
+- [A股集体回调原因找到了](http://www.movie.hkepx.cn/movie/5825798.htm)
+- [嫁金钗大结局](http://www.movie.hkepx.cn/movie/4511611.htm)
+- [蝴蝶效应真的是一只蝴蝶扇翅膀就能引发龙卷风吗？](http://www.play.hengshemaoyi.cn/xiju/7118308.htm)
+- [直播放雨爱给屋顶听通透了](http://www.movie.hkepx.cn/movie/3210477.htm)
+- [警方通报九寨沟游客打架：拍照起冲突](http://www.movie.hkepx.cn/movie/1427819.htm)
+- [朝中社：日本正快速变为战争国家](http://www.daogukj.com/ulhauueh/)
+- [A股收盘：科创50指数收跌近4%](http://www.movie.hkepx.cn/xiju/7426025.htm)
+- [中国气象局：近年来北方地区湿度增加](http://www.daogukj.com/6828552)
+- [「赴港看演唱会触发低保预警」女孩全家低保已被取消，哪些细节值得关注？如何看待这一处理？](http://www.daogukj.com/4846063)
+- [打开共享头盔那一刻 记者差点吐了](http://www.play.hengshemaoyi.cn/xiju/1115121.htm)
+- [接受粉丝挑战！给自己贴满脸假纹身贴不被妈妈发现？这次我差点没绷住！](http://www.movie.hkepx.cn/xiju/5458697.htm)
+- [为什么家禽会产下未受精的蛋？这对它们来说是不是本身能量的损耗，利人不利己？是出于什么样的生物学原理？](http://www.movie.hkepx.cn/xiju/7970452.htm)
+- [九寨沟情侣被打伤情](http://www.daogukj.com/7831492)
+- [美坠机事故9名遇难者身份曝光](http://www.movie.hkepx.cn/movie/0165285.htm)
+- [法国宣布“AI超过中国”背后](http://www.play.hengshemaoyi.cn/kongbu/1576216.htm)
+- [男子被拐30余年认亲后拉黑养家断联](http://www.play.hengshemaoyi.cn/kongbu/0352211.htm)
+- [【全网最全】DeepSeek Harness超详细教程！50分钟吃透DSH，让SuperAgent给你干活！](http://www.daogukj.com/skxlcqbv/)
+- [哟西！故乡的樱花开了！](http://www.play.hengshemaoyi.cn/kongbu/8194557.htm)
+- [一条没下巴的鱼杀穿奥陶纪？](http://www.play.hengshemaoyi.cn/xiju/8022096.htm)
+- [保时捷女销冠再夺第一，所属公司却半年亏 2.7 亿，个人业绩拉满、公司疯狂失血，传统豪华车市场怎么了？](http://www.movie.hkepx.cn/xiju/7214601.htm)
+- [广电把肖战放第一位](http://www.daogukj.com/nvgfhrus/)
+- [詹姆斯取得常规赛生涯第1053胜](http://www.movie.hkepx.cn/xiju/2289573.htm)
+- [跑了八个小时。](http://www.play.hengshemaoyi.cn/kongbu/7073818.htm)
+- [证监会：全力维护资本市场平稳运行](http://www.play.hengshemaoyi.cn/kongbu/3209429.htm)
+- [新加坡鼓励70岁再就业对中国有何启示](http://www.play.hengshemaoyi.cn/kongbu/4786157.htm)
+- [入职鹰角成为卫戍协议策划的一天](http://www.movie.hkepx.cn/xiju/4895855.htm)
+- [“举报共治 护企远航”倡议将发布](http://www.play.hengshemaoyi.cn/kongbu/0234862.htm)
+- [许飞什么都敢回](http://www.daogukj.com/1476559)
+- [【文明与地图】12个大模型扮演君主谁能带领人类走向星际文明？](http://www.play.hengshemaoyi.cn/kongbu/3024566.htm)
+- [世界上最贵的象拔蚌，客人嫌贵不吃，厨师长下班了开个小灶](http://www.movie.hkepx.cn/xiju/4214569.htm)
+- [如何评价《影之刃零》对玩家几乎没有恶意的设计，甚至有很多贴心指引和操作简化，这算现代游戏的趋势吗？](http://www.play.hengshemaoyi.cn/kongbu/1465165.htm)
+- [KD生气回应出手少](http://www.daogukj.com/0876342)
+- [厉娜妈妈一把拎起许飞](http://www.play.hengshemaoyi.cn/kongbu/5523593.htm)
+- [中国一次送18颗卫星上太空](http://www.movie.hkepx.cn/xiju/7093896.htm)
+- [赴港看演唱会女孩低保已被取消](http://www.movie.hkepx.cn/movie/2906304.htm)
+- [素有「小宪法」之称的刑诉法迎第四次修改，有哪些核心争议与修改重点值得关注？](http://www.play.hengshemaoyi.cn/kongbu/6007147.htm)
+- [宠粉天花板，请我的粉丝朋友清空一家零食店，你来选我买单，看看要花多少钱](http://www.play.hengshemaoyi.cn/xiju/5236793.htm)
+- [陪你到世界之巅翻红](http://www.daogukj.com/5178271)
+- [如何看待张雪机车在重庆大学宣讲开的薪资，92毕业研发人员年薪12-15万元？在当地和业内算什么水平？](http://www.play.hengshemaoyi.cn/kongbu/4327189.htm)
+- [大家好，这里是 DeepSeek Harness，正式入驻 B 站！](http://www.daogukj.com/3659644)
 
 </details>
 
 ## 原始来源
 
-- [一批乒乓球赛事假直播伪造比分、虚假解说、带货变现，观看人数超20万，为什么这也能赚钱？有哪些法律风险？](https://www.zhihu.com/question/2100529586890957367)
+- [一场“猪眼”争论照出韩国政坛什么](https://www.toutiao.com/trending/7703814028325293604/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%2213%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227703814028325293604%22%2C%22hot_board_impr_id%22%3A%22202611031557510705B575CF98BA1C5602%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 71bc852c5037dfe29816 -->
+<!-- content-fingerprint: 89b7e2ae03eae71f2ef2 -->
