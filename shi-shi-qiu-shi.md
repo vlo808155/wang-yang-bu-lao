@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 如何看待2027年国考中多省七八成名额来自税务局？
+# 马斯克4.74亿助选刷美国新纪录
 
-> 来源：知乎热榜 · 排名：第 16 位 · 热度：175 万热度 · 分类：问答 · 更新：2026-11-04T09:39:32+08:00
+> 来源：微博热搜 · 排名：第 16 位 · 热度：435048 · 分类：国际时政 · 更新：2026-11-04T16:01:06+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“如何看待2027年国考中多省七八成名额来自税务局？”位列第 16 位，公开热度指标为 175 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据微博热搜当前公开榜单，“马斯克4.74亿助选刷美国新纪录”位列第 16 位，公开热度指标为 435048，榜单分类为“国际时政”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：明年国考，多省七八成名额来自税务局。 2027年国考，四川招录1650人，其中税务局1300人，占比79%。 另外，安徽、江苏、云南也类似，税务岗位分别占79%、74%和73%。 四个省份，税务系统都占据七成以上名额，再加上央行、金融监管部门，经济金融类岗位相当集中。
+微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`微博热搜` `实时热搜` `热点资讯` `国际时政`
 
 ## 相关热点
 
-- [暴雨暴雪来了：大范围雨雪将袭南方东北，华南云南立冬后真要降温](chi-zhi-yi-heng.md)
-- [老胡上午加仓下午重跌](jian-ren-bu-ba.md)
-- [TES对战IG](zi-qiang-bu-xi.md)
-- [张朝阳：互联网被算法介入太厉害](fen-fa-tu-qiang.md)
+- [谁是半导体Q3净利润之王](chi-zhi-yi-heng.md)
+- [香飘飘第三季度净利润下滑 88％，是冲泡奶茶不再受欢迎了吗？尝试布局杯装冲泡咖啡，能不能帮它打开局面？](jian-ren-bu-ba.md)
+- [今天喝木薯桃胶炖奶](zi-qiang-bu-xi.md)
+- [王兴兴判断未来世界5种最核心资源](fen-fa-tu-qiang.md)
 
 ## 站内推荐
 
-- [iPhone系统天气 下周五-32℃](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [美国举行中期选举投票](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [王玉雯方回应：接受任何署名方式](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [S16淘汰赛IG对战TES](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [特朗普民调支持率曾一度跌至 31%，创下历史最低纪录，问题出在哪里？该如何「翻盘」？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [特朗普：祝贺民主党人](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [魏大勋父亲公司成被执行人](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [小伙200多万买14套房年收租21万](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [369说被TheShy征服了](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [王安宇曾忘还迪丽热巴450元](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [TES极限翻盘iG](http://www.movie.hkepx.cn/xiju/7278435.htm)
-- [丁俊晖决胜局逆转晋级国锦赛八强](http://www.daogukj.com/eaozjceu/)
-- [第1期：南山雪地徒步，邂逅新疆冬日浪漫【此生要去的100个地方 第二季】](http://www.daogukj.com/xtfvegvn/)
-- [女生刷到另一个自己竟是双胞胎](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
-- [珠峰南坡海拔4410米酒店雪中被烧毁](http://www.daogukj.com/fkuewdzb/)
-- [女孩贺兰山失联 家属称“人没有了”](http://www.movie.hkepx.cn/xiju/4307844.htm)
-- [许飞经纪人 去找厉娜](http://www.daogukj.com/8791893)
-- [LPL](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
-- [46岁高圆圆红毛衣生图](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
-- [老胡上午加仓下午重跌](http://www.daogukj.com/2165140)
-- [为何智谱有底气让套餐GLM-5.3 flash价格比肩GPT-6.1 Sol？](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
-- [三年之期已到，恭迎世一上归位！【第16集】](http://www.movie.hkepx.cn/xiju/1440611.htm)
-- [iPhone系统天气 下周五-32℃](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
-- [两个集合间构成了诡异的映射](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
-- [6G来了 离我们还有多远](http://www.daogukj.com/9837121)
-- [公司食堂吃早餐摔骨折 不予认定工伤](http://www.movie.hkepx.cn/movie/5334415.htm)
-- [脂肪肝是身体发出的预警信号](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
-- [车企“去宁化”真能实现吗](http://www.movie.hkepx.cn/movie/2391374.htm)
-- [S16淘汰赛IG对战TES](http://www.movie.hkepx.cn/movie/4276791.htm)
-- [杨幂曾偷偷观察唐嫣](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
-- [美国举行中期选举投票](http://www.daogukj.com/6612016)
-- [抖音副总裁李亮多次反驳秦朔「字节时间」相关文章，秦朔称已就相关言论提起名誉权诉讼，他能胜诉吗？](http://www.movie.hkepx.cn/movie/4045624.htm)
-- [什么画居然能上央视视频？](http://www.daogukj.com/9217972)
-- [千年乌镇遇新变](http://www.daogukj.com/eecjrkxr/)
-- [苹果客服回应天气离谱](http://www.movie.hkepx.cn/xiju/0864553.htm)
-- [如何看待宇树机器人因过热退出登泰山大赛，被担架抬下山？人形机器人的发展目前还存在哪些技术瓶颈？](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
-- [上汽奥迪“买一赠一”宣传已被立案](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
-- [人民币升破 6.65 后，央行出手上调外汇存准率，如何看待人民币汇率未来的走势以及政策预期？](http://www.daogukj.com/chnejvmg/)
-- [如何看待江苏家长反映孩子每天在校时间15小时，晚自习超22点，江苏省教育厅厅长回应「深感内疚」？](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
-- [当你只能使用吃过的干员打方舟……](http://www.daogukj.com/dmyshqkp/)
-- [iG打TES拿到赛点](http://www.daogukj.com/hxjdxwxy/)
-- [苹果天气bug：多地零下32℃](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
-- [李钟硕新剧尺度](http://www.movie.hkepx.cn/movie/5093289.htm)
-- [易烊千玺和于适粉丝都发了澄清](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
-- [死磕电缆40年 这个县城干成了](http://www.movie.hkepx.cn/movie/7746903.htm)
-- [牛肉被猕猴桃腌制下锅碎成肉渣](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
-- [上班族每月花3600元住酒店代租房](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
-- [特朗普民调支持率曾一度跌至 31%，创下历史最低纪录，问题出在哪里？该如何「翻盘」？](http://www.daogukj.com/2551047)
-- [儿子总发烧 拆卧室墙现大面积霉斑](http://www.daogukj.com/7700423)
-- [治网这件事需要你我共“举”](http://www.daogukj.com/0062100)
-- [专家：谨防银行股成股市堰塞湖](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
-- [“向公安局索赔14万亿美元”二审判了](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
-- [S16](http://www.daogukj.com/qzcflnda/)
-- [入职鹰角成为卫戍协议策划的一天](http://www.movie.hkepx.cn/movie/1098440.htm)
-- [张朝阳：互联网被算法介入太厉害](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
-- [女子凌晨被陌生人钻被窝贴脸窥探](http://www.daogukj.com/2428628)
-- [屋里味太大](http://www.daogukj.com/uftxwefl/)
-- [菲律宾经济还能自救吗](http://www.movie.hkepx.cn/movie/6056833.htm)
-- [为什么理工科行业没有类似《令人心动的offer》、《闪闪发光的你》这种职场综艺?](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
-- [陈伟霆在新疆被雪困了11小时](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
+- [亚洲大学排名揭晓](http://www.movie.hkepx.cn/xiju/7278435.htm)
+- [为什么垂直鼠标没有流行起来？](http://www.daogukj.com/eaozjceu/)
+- [受网友诱骗跨省流浪一年，名下多了6家公司，欠了一屁股债，银行卡被封，全家低保也差点注销【出发去创作】](http://www.daogukj.com/xtfvegvn/)
+- [A股暴力反弹原因](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
+- [新华社评苹果天气bug：离大谱](http://www.daogukj.com/fkuewdzb/)
+- [如何看待美参议院民主党领袖称民主党人赢得了参议院，对特朗普执政有何掣肘？](http://www.movie.hkepx.cn/xiju/4307844.htm)
+- [【崩铁】星神★阿哈综合测评：献予欢愉之诗！欢愉全体升格！武器对比+技能解读+遗器选择+星魂提升！](http://www.daogukj.com/8791893)
+- [总有世界，与你同频｜《弧光猎人》同频测试PV&国服全新PVP事件预告](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
+- [谭松韵回应出道21年才36岁](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
+- [香飘飘第三季度净利润下滑 88％，是冲泡奶茶不再受欢迎了吗？尝试布局杯装冲泡咖啡，能不能帮它打开局面？](http://www.daogukj.com/2165140)
+- [女硕士案同居者免于刑责争议](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
+- [中方回应“如何看待美国中期选举”](http://www.movie.hkepx.cn/xiju/1440611.htm)
+- [特朗普：祝贺民主党人](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
+- [锐评S16 IG战胜TES：Wei哥超神发挥游龙！IG挺进四强！](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
+- [“China Haul”为何火遍海外](http://www.daogukj.com/9837121)
+- [如何看待 Nuguri 谈 Faker 为什么在全球总决赛阶段那么强「在韩国，他很可能平时没空训练」？](http://www.movie.hkepx.cn/movie/5334415.htm)
+- [举报共治护企远航](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
+- [A股大反弹“群里又恢复了欢声笑语”](http://www.movie.hkepx.cn/movie/2391374.htm)
+- [369说被TheShy征服了](http://www.movie.hkepx.cn/movie/4276791.htm)
+- [文吉儿真的是触碰艺人的大忌](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
+- [魏大勋父亲公司成被执行人](http://www.daogukj.com/6612016)
+- [厉娜的工作联系方式变了](http://www.movie.hkepx.cn/movie/4045624.htm)
+- [康辉现身深圳地铁站](http://www.daogukj.com/9217972)
+- [9图看中国互联网发展最新成就](http://www.daogukj.com/eecjrkxr/)
+- [后会友期曾邀约杨幂唐嫣被婉拒](http://www.movie.hkepx.cn/xiju/0864553.htm)
+- [抽象新闻：10月人类迷惑行为大赏（下）](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
+- [A股收盘：科创50指数大涨近10%](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
+- [如何看待 GPT-6 Astra 仅改动 0.016% 权重就让 Qwen3.5 数学能力涨 6 倍？](http://www.daogukj.com/chnejvmg/)
+- [近5亿美元 马斯克创选举捐款纪录](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
+- [半导体板块集体爆发](http://www.daogukj.com/dmyshqkp/)
+- [女童手表收到恐吓信息 当地警方介入](http://www.daogukj.com/hxjdxwxy/)
+- [如何看待宇树机器人因过热退出登泰山大赛，被担架抬下山？人形机器人的发展目前还存在哪些技术瓶颈？](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
+- [黄金](http://www.movie.hkepx.cn/movie/5093289.htm)
+- [这5个辐射谣言千万别信](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
+- [新版 007 人选尘埃落定，Dua Lipa 老公卡勒姆·特纳将出演詹姆斯·邦德，如何评价这一选角？](http://www.movie.hkepx.cn/movie/7746903.htm)
+- [苹果手机显示13日多地气温低至-30℃，这是怎么回事？是什么问题导致了这种bug？](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
+- [“未婚妻、病床都是假的 转账是真的”](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
+- [王安宇曾忘还迪丽热巴450元](http://www.daogukj.com/2551047)
+- [延安大学正调查副教授留绝笔信](http://www.daogukj.com/7700423)
+- [林一找到了发烧有去医院的证据](http://www.daogukj.com/0062100)
+- [如何看待许飞在《后会友期》中对厉娜的一句剖白「我画地为牢，厉娜」爆火，成为全民玩梗的「画地为牢」文学？](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
+- [老中医去世后把100个药方刻在墓碑](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
+- [国会大变天特朗普剩余任期怎么办](http://www.daogukj.com/qzcflnda/)
+- [养羊理财年化12%公司涉嫌非吸被查](http://www.movie.hkepx.cn/movie/1098440.htm)
+- [王兴兴判断未来世界5种最核心资源](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
+- [国台办：祖国统一是不可阻挡历史大势](http://www.daogukj.com/2428628)
+- [胡歌自曝过了40岁身体开始走下坡路，已戒烟很久，出差会背AED，年龄真是分水岭吗？这些措施用处有多大？](http://www.daogukj.com/uftxwefl/)
+- [坚果脂肪这么高为什么还推荐吃](http://www.movie.hkepx.cn/movie/6056833.htm)
+- [气象局回应苹果天气APP预报极端天气](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
+- [厉娜该清理朋友圈了](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
 
 </details>
 
 ## 原始来源
 
-- [如何看待2027年国考中多省七八成名额来自税务局？](https://www.zhihu.com/question/2094420726933623492)
+- [马斯克4.74亿助选刷美国新纪录](https://s.weibo.com/weibo?q=%E9%A9%AC%E6%96%AF%E5%85%8B4.74%E4%BA%BF%E5%8A%A9%E9%80%89%E5%88%B7%E7%BE%8E%E5%9B%BD%E6%96%B0%E7%BA%AA%E5%BD%95)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: d37bfa0f8ab883efc47d -->
+<!-- content-fingerprint: 41e31c06b16eb909ae6d -->
