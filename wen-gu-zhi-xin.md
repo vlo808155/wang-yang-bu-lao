@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 生蚝肚子里这坨黄绿色的是啥？能吃吗？【主播说三农】
+# 到底是谁在说500万以内最好的SUV啊？
 
-> 来源：哔哩哔哩热门 · 排名：第 14 位 · 热度：340438 · 分类：三农 · 更新：2026-11-09T10:34:10+08:00
+> 来源：哔哩哔哩热门 · 排名：第 14 位 · 热度：1637115 · 分类：汽车生活 · 更新：2026-11-09T18:13:30+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“生蚝肚子里这坨黄绿色的是啥？能吃吗？【主播说三农】”位列第 14 位，公开热度指标为 340438，榜单分类为“三农”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“到底是谁在说500万以内最好的SUV啊？”位列第 14 位，公开热度指标为 1637115，榜单分类为“汽车生活”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-哔哩哔哩热门本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：上⼀期我说，要把欧洲的豪华SUV天花板们和E7X放在⼀起，对⽐它们的表现。今天，说到做到 ——劳斯莱斯库⾥南、法拉利Purosangue、阿斯顿⻢丁DBX 707，陪E7X打⼀场全⽅位的架。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `三农`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `汽车生活`
 
 ## 相关热点
 
-- [特朗普：“铁门”特遣行动正全面展开](ju-yi-fan-san.md)
-- [67岁阿姨因颜值恋上78岁大爷](rong-hui-guan-tong.md)
-- [秦皇岛居民称20年没见过这么大雪](ji-si-guang-yi.md)
-- [人类是不是无法想象出来从来没见过的东西？](qu-chang-bu-duan.md)
+- [英伟达大劫案细节披露](ju-yi-fan-san.md)
+- [英伟达](rong-hui-guan-tong.md)
+- [解放军三航母何时迎来“编队同框”](ji-si-guang-yi.md)
+- [英伟达突发「史上最大GPU盗窃案」，价值 1140 万美元的硬件失踪，具体什么情况？可能带来哪些影响？](qu-chang-bu-duan.md)
 
 ## 站内推荐
 
-- [实验猴涨至26万一只，部分养殖企业已无猴可售，会对医药行业产生哪些影响？涨价热潮可能还会持续多久？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [曹操和刘备死后，孙权便是天下第一雄主，而且正值壮年，为什么不能一统天下？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [因试用期 6 个月没转正，离职人员篡改后台数据致企业数百万损失，有哪些警示？职场遇这种情况该怎么处理？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [S赛怀旧金曲《BLG带带我》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [MC速通排位赛周赛世界第一，中国第二](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [5吨的大象都会被吃，骆驼却几乎无天敌，为啥没有食肉动物吃它呢？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [BO5战胜Faker！ BLG战胜T1挺进决赛！BLG决赛加油！【2026英雄联盟全球总决赛】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [【S16今朝速递】十四年的等待！终于翻过了Faker这座大山！](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [当我死去，群山不会震颤，河水不会倒流｜AI长片《汤症》【AI全民制作人】](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [【Karsa】BLG vs T1 LPL今年终于打破魔咒了😭](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [《崩坏：星穹铁道》星神★阿哈角色PV——「让骰子飞」](http://www.movie.hkepx.cn/movie/2076571.htm)
-- [徐艺洋这身材穿个麻袋都好看](http://www.play.hengshemaoyi.cn/xiju/0493031.htm)
-- [韦世豪 成都蓉城](http://www.movie.hkepx.cn/xiju/6447727.htm)
-- [WTT法兰克福站：张本智和夺冠](http://www.play.hengshemaoyi.cn/kongbu/0765888.htm)
-- [透过关键词解码进博会](http://www.daogukj.com/ujykjkqc/)
-- [破坏秦始皇陵最高可罚千万](http://www.play.hengshemaoyi.cn/xiju/7125638.htm)
-- [【神人短剧】🔥最新力作🔥农村大席之抽象盛宴，联动mj宇宙【AI全民制作人】](http://www.daogukj.com/ddnluzup/)
-- [Bin 世一上](http://www.daogukj.com/drzpzlze/)
-- [“这是给孩子的，不是给你的”](http://www.daogukj.com/eoyvlftc/)
-- [帅化民：台军兵推像在做梦](http://www.movie.hkepx.cn/movie/2817254.htm)
-- [“把想法带到中国就能实现”](http://www.play.hengshemaoyi.cn/xiju/8069943.htm)
-- [大三男生宿舍手搓 AI 漫剧不到一年营收超 300 万，这是怎么做到的？实际赚了多少？普通人能效仿吗？](http://www.daogukj.com/czfcxwdu/)
-- [到底是谁在说500万以内最好的SUV啊？](http://www.movie.hkepx.cn/movie/0850868.htm)
-- [南京辟谣“31岁医生被刺身亡”](http://www.play.hengshemaoyi.cn/kongbu/9561535.htm)
-- [黄仁勋曾称穿的都是妻子买的](http://www.daogukj.com/1729617)
-- [ON萨勒芬妮大招控到T1四人](http://www.daogukj.com/3324715)
+- [隔夜白开水不能喝是真是假](http://www.movie.hkepx.cn/movie/2076571.htm)
+- [中俄美元首将会晤？外交部回应](http://www.play.hengshemaoyi.cn/xiju/0493031.htm)
+- [许飞人品](http://www.movie.hkepx.cn/xiju/6447727.htm)
+- [微信8大新功能来了](http://www.play.hengshemaoyi.cn/kongbu/0765888.htm)
+- [为了守护万家灯火他们迎难而上](http://www.daogukj.com/ujykjkqc/)
+- [大连几乎所有饭店宣布夺冠就免单](http://www.play.hengshemaoyi.cn/xiju/7125638.htm)
+- [锐评BLG战胜T1晋级决赛：创造历史！BLG做到了淘汰T1！](http://www.daogukj.com/ddnluzup/)
+- [日本地铁太压抑了](http://www.daogukj.com/drzpzlze/)
+- [日本前首相石破茂被处分](http://www.daogukj.com/eoyvlftc/)
+- [无锡出现女用站立式小便厕位，以导流机制实现站立排尿，从生理上该机制科学吗？社会面有推广的可能吗？](http://www.movie.hkepx.cn/movie/2817254.htm)
+- [入境游已是next level](http://www.play.hengshemaoyi.cn/xiju/8069943.htm)
+- [生蚝肚子里这坨黄绿色的是啥？能吃吗？【主播说三农】](http://www.daogukj.com/czfcxwdu/)
+- [彻底疯狂！美国现场见证BLG3:1拿下T1！！！全场都在喊世一上！！](http://www.movie.hkepx.cn/movie/0850868.htm)
+- [黄仁勋出轨对象公司曾采购300亿芯片](http://www.play.hengshemaoyi.cn/kongbu/9561535.htm)
+- [刘诗诗 复古名伶](http://www.daogukj.com/1729617)
+- [为什么满地都是口腔诊所](http://www.daogukj.com/3324715)
 - [黄渤自曝今年几乎没戏拍，如何看待实力派演员陷入空窗期？](http://www.daogukj.com/ikrqrqaw/)
-- [练普拉提就能掰正骨盆？医生辟谣](http://www.movie.hkepx.cn/xiju/0635899.htm)
-- [央视曝光桂林扶梯只建不养](http://www.play.hengshemaoyi.cn/kongbu/8841363.htm)
-- [秦皇岛居民称20年没见过这么大雪](http://www.daogukj.com/7019911)
-- [演员王雷跪地庆祝大连英博夺冠](http://www.movie.hkepx.cn/xiju/1596108.htm)
-- [进博会上的“运动经济”观察](http://www.play.hengshemaoyi.cn/kongbu/5912571.htm)
-- [大连英博建队 5 年完成夺冠逆袭，如何评价大连队的表现，大连城市的足球文化对他们有多大加成？](http://www.movie.hkepx.cn/xiju/0929704.htm)
-- [你擦亮眼睛，看看是谁在闹](http://www.play.hengshemaoyi.cn/kongbu/0586092.htm)
-- [如何评价 CSP-J/S 2026 第二轮多省多名考生代码高度近似，而 CCF 不受理民间举报？](http://www.movie.hkepx.cn/movie/7064741.htm)
-- [【最新】波兰枪击案致6死15伤，男子持步枪疯狂扫射广场人群！EP426](http://www.daogukj.com/svpdmhti/)
-- [曝迪丽热巴没买房常年住酒店](http://www.daogukj.com/dzqrudro/)
-- [史诗级逆转！英博夺队史中超首冠](http://www.movie.hkepx.cn/movie/0598553.htm)
-- [最强厄尔尼诺来了 这个冬天怎么过](http://www.play.hengshemaoyi.cn/xiju/0980026.htm)
-- [米哈游你是真想再赢啊！因缘精灵幸福pv逐帧拆解](http://www.movie.hkepx.cn/movie/5524311.htm)
-- [中国战队首次在世界赛BO5战胜T1](http://www.movie.hkepx.cn/movie/8815129.htm)
-- [里夫斯43分湖人胜活塞](http://www.movie.hkepx.cn/movie/4122960.htm)
-- [把娃户口挪去东北（比如鹤岗），读高中和高考，是否可行？ 哪个城市比较建议？](http://www.play.hengshemaoyi.cn/xiju/4897818.htm)
-- [出现在餐桌上的清明上河图](http://www.movie.hkepx.cn/movie/7903800.htm)
-- [为什么小米、华为、理想、小鹏、蔚来等新能源车企虽然有竞争，却都不约而同要放弃和宁德时代的单一合作？](http://www.movie.hkepx.cn/xiju/7617687.htm)
-- [BLG 3-1战胜T1晋级决赛](http://www.movie.hkepx.cn/movie/6382391.htm)
-- [内塔尼亚胡时代即将谢幕了吗](http://www.daogukj.com/4658626)
-- [金子涵前几天露宿街头](http://www.play.hengshemaoyi.cn/kongbu/9068031.htm)
-- [中国空间站刷新人类最低温纪录](http://www.movie.hkepx.cn/movie/5184280.htm)
-- [黄仁勋：我对妻子不忠 承担全部责任](http://www.daogukj.com/hvftglso/)
-- [BLG成首支S赛BO5战胜T1的LPL战队](http://www.daogukj.com/tzodbjjw/)
-- [Faker告别S16](http://www.daogukj.com/9005314)
-- [“从此11月8日忆山东兄弟”](http://www.movie.hkepx.cn/movie/6639660.htm)
-- [35岁喜剧演员手术中不幸去世](http://www.play.hengshemaoyi.cn/xiju/5390600.htm)
-- [“今日我虽死，却还是！！！”](http://www.daogukj.com/5710918)
-- [S赛怀旧金曲《BLG带带我》](http://www.play.hengshemaoyi.cn/kongbu/9804131.htm)
-- [人类是不是无法想象出来从来没见过的东西？](http://www.play.hengshemaoyi.cn/kongbu/9936636.htm)
-- [央视曝光后 江西赣州连夜成立调查组](http://www.movie.hkepx.cn/movie/1112201.htm)
-- [疑似秦始皇儿子头骨面容复原图公布](http://www.daogukj.com/4063728)
-- [特朗普：“铁门”特遣行动正全面展开](http://www.movie.hkepx.cn/movie/3217282.htm)
+- [微信状态发「画地为牢」被公司辞退，理由是「工作不积极」，社交吐槽能成为公司解除劳动关系的理由吗？](http://www.movie.hkepx.cn/xiju/0635899.htm)
+- [许飞：我作茧自缚](http://www.play.hengshemaoyi.cn/kongbu/8841363.htm)
+- [解放军三航母何时迎来“编队同框”](http://www.daogukj.com/7019911)
+- [张雪机车米兰展车零件被偷光](http://www.movie.hkepx.cn/xiju/1596108.htm)
+- [进博会的三种时间刻度](http://www.play.hengshemaoyi.cn/kongbu/5912571.htm)
+- [经典中式恐怖回归—这个纸人有点癫！](http://www.movie.hkepx.cn/xiju/0929704.htm)
+- [梁家辉深夜独自拉行李箱坐高铁](http://www.play.hengshemaoyi.cn/kongbu/0586092.htm)
+- [马斯克爆料称「软银正在违约燃气轮机订单」，是真的吗？这一爆料对市场的影响有多大？](http://www.movie.hkepx.cn/movie/7064741.htm)
+- [太原火灾危重伤9人重伤4人](http://www.daogukj.com/svpdmhti/)
+- [上海微电子新一代光刻机模型亮相，该成果实现量产还需要攻克哪些核心难点？](http://www.daogukj.com/dzqrudro/)
+- [攻击-11隐身无人机最新细节画面公布](http://www.movie.hkepx.cn/movie/0598553.htm)
+- [为什么小电驴也卖不动了](http://www.play.hengshemaoyi.cn/xiju/0980026.htm)
+- [《绝区零》赛维里安EP | Gambit](http://www.movie.hkepx.cn/movie/5524311.htm)
+- [王健林14年后重新掌舵 将有何变化](http://www.movie.hkepx.cn/movie/8815129.htm)
+- [迪丽热巴爸爸助农直播](http://www.movie.hkepx.cn/movie/4122960.htm)
+- [幼师毕业的 21 岁女生转行当环卫工称「待遇好」，折射出年轻人怎样的就业观变化？](http://www.play.hengshemaoyi.cn/xiju/4897818.htm)
+- [“99人的群里 98个都是托”](http://www.movie.hkepx.cn/movie/7903800.htm)
+- [把娃户口挪去东北（比如鹤岗），读高中和高考，是否可行？ 哪个城市比较建议？](http://www.movie.hkepx.cn/xiju/7617687.htm)
+- [中方回应外媒涉60万枚英伟达芯片报道](http://www.movie.hkepx.cn/movie/6382391.htm)
+- [奶茶越做越厚了](http://www.daogukj.com/4658626)
+- [中央网信办整治科普健康类网络谣言](http://www.play.hengshemaoyi.cn/kongbu/9068031.htm)
+- [伊朗称在霍尔木兹海峡摧毁敌导航系统](http://www.movie.hkepx.cn/movie/5184280.htm)
+- [中方回应黄仁勋婚外情事件](http://www.daogukj.com/hvftglso/)
+- [W盛典红毯](http://www.daogukj.com/tzodbjjw/)
+- [马天宇厉娜评论区互怼](http://www.daogukj.com/9005314)
+- [曝黄乐与朋友打赌能请来黄仁勋](http://www.movie.hkepx.cn/movie/6639660.htm)
+- [梁家辉独乘高铁奔赴金鸡奖颁奖典礼](http://www.play.hengshemaoyi.cn/xiju/5390600.htm)
+- [这游戏是很多人的一辈子](http://www.daogukj.com/5710918)
+- [当我死去，群山不会震颤，河水不会倒流｜AI长片《汤症》【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/9804131.htm)
+- [英伟达突发「史上最大GPU盗窃案」，价值 1140 万美元的硬件失踪，具体什么情况？可能带来哪些影响？](http://www.play.hengshemaoyi.cn/kongbu/9936636.htm)
+- [“顺其自然”捐1907万 身份无人知晓](http://www.movie.hkepx.cn/movie/1112201.htm)
+- [哈尔滨烤地瓜原价1688到手8元](http://www.daogukj.com/4063728)
+- [英伟达大劫案细节披露](http://www.movie.hkepx.cn/movie/3217282.htm)
 
 </details>
 
 ## 原始来源
 
-- [生蚝肚子里这坨黄绿色的是啥？能吃吗？【主播说三农】](https://b23.tv/BV1yQWE6XEK7)
+- [到底是谁在说500万以内最好的SUV啊？](https://b23.tv/BV1Yv4t6TEhM)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 6aa68f3c424ad964d403 -->
+<!-- content-fingerprint: 5e44f1c5d96ec2d0c0b9 -->
