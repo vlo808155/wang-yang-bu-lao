@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 为什么民主党能动摇德州这种深红州，而共和党对加州和纽约这种深蓝州却几乎没什么影响？
+# 【带着AI穿越2018】#6 蓝色大肥鱼单刀赴会阿美莉卡
 
-> 来源：知乎热榜 · 排名：第 13 位 · 热度：192 万热度 · 分类：问答 · 更新：2026-11-12T12:17:06+08:00
+> 来源：哔哩哔哩热门 · 排名：第 13 位 · 热度：1667266 · 分类：动漫杂谈 · 更新：2026-11-12T20:50:59+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“为什么民主党能动摇德州这种深红州，而共和党对加州和纽约这种深蓝州却几乎没什么影响？”位列第 13 位，公开热度指标为 192 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“【带着AI穿越2018】#6 蓝色大肥鱼单刀赴会阿美莉卡”位列第 13 位，公开热度指标为 1667266，榜单分类为“动漫杂谈”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：为什么民主党能动摇德州这种深红州，而共和党对加州和纽约这种深蓝州却几乎没什么影响
+来源公开摘要显示：【本视频由updream制作】 形象来源于zipzip大佬，感谢z神开源 尝试了一下诺神最喜欢的非线性叙事。 这集是我预想中最难制作的一集，但是还是做完了。 积分13号之后才能发出来，但是还是做完了。 本来以为要四五天才能做完，结果昨天晚上睡不着，熬了个夜，没休息，第二天就做完了。 嘿，最终效果还挺满意的。 噢！爽爽爽。 来一人夸一句熊哥牛逼来。 分镜参考：《某种物质》、《黑暗骑士》、《风骚律师》
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `动漫杂谈`
 
 ## 相关热点
 
-- [这都能还原！！？【MC阿哈篇】](nang-ying-ying-xue.md)
-- [奔驰要变了：100%为中国](cheng-men-li-xue.md)
-- [徐艺洋儿子拿妈妈应援物](shou-bu-shi-juan.md)
-- [大爷随手一拍把形影不离具象化了](xue-fu-wu-che.md)
+- [男子应聘司机干了6小时倒贴2万](nang-ying-ying-xue.md)
+- [舅舅患癌去世提醒定期检查身体](cheng-men-li-xue.md)
+- [爆款羽绒服工厂为何甘心躲在山姆后面](shou-bu-shi-juan.md)
+- [网红「疯狂小马哥」离世，家人称是「打 PK」被要求喝20瓶酒中途猝死，连麦者与平台应承担责任吗？](xue-fu-wu-che.md)
 
 ## 站内推荐
 
-- [APEC“中国年” 重点来了](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [为什么一个企业的利润率0%，仍然可以赚钱？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [苹果宣布官方社区将于11月20日永久关闭，即日起停止新帖仅保留只读模式，可能出于什么原因？会有何影响？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [文明重启：耗时3年，我终于做出了我的第一件铁器](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [Anthropic披露AI仅用3天适配AMD芯片](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [进博会把全球南方好物送到中国](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [这都能还原！！？【MC阿哈篇】](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [疑似《崩坏：星穹铁道》星神★阿哈★真人角色PV流出](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [《你跟他废什么话》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [主包从小就喜欢长发](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [间谍过家家·福杰夫妇：非凡之爱](http://www.movie.hkepx.cn/movie/7696059.htm)
-- [某律师为了不把敏感资料上传云端，用 8 张 V100 搭建一台数千瓦功耗的本地 AI 服务器值得吗？](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
-- [泽连斯基嘲讽特朗普](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
-- [年轻人开始寻找城市“树洞”](http://www.daogukj.com/xbqcnyun/)
-- [【带着AI穿越2018】#6 蓝色大肥鱼单刀赴会阿美莉卡](http://www.daogukj.com/3076909)
-- [挑战只带一台笔记本，不带充电器在佛山废弃商场工作一天！](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
-- [警惕“车辆召回”虚假信息](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
-- [文明重启：耗时3年，我终于做出了我的第一件铁器](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
-- [女子称产后与娃都患病丈夫不让进门](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
-- [霍启刚晒与郭晶晶结婚14周年合照](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
-- [老 兵 电 竟 2.0](http://www.daogukj.com/7832374)
-- [高迪曾称她给我生了仨孩子我该挨骂](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
-- [越南第一夫人为何穿和服面见高市早苗](http://www.movie.hkepx.cn/movie/5380543.htm)
-- [明明工作很负责，晋升却一直受阻，会不会是太执着于“被别人需要”？](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
-- [Anthropic披露AI仅用3天适配AMD芯片](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
-- [大爷随手一拍把形影不离具象化了](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
-- [如何看待卡蓓诺洗发水(Cabelo)火速上架亚马逊日本，它还有机会逆转吗？](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
-- [有比亚迪车主开3个月才发现轮辋装反](http://www.daogukj.com/whdogfom/)
-- [没想到节目也爆了](http://www.daogukj.com/owjemlxs/)
-- [后会友期全员拿到大结果了](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
-- [这都能还原！！？【MC阿哈篇】](http://www.movie.hkepx.cn/xiju/8272307.htm)
-- [新三国up锐评神探狄仁杰26：我们要复唐！我们要复唐啊～～](http://www.movie.hkepx.cn/xiju/5503803.htm)
-- [几家都说没救的猛禽3080，亮机后跑了七十七万分](http://www.movie.hkepx.cn/movie/5517829.htm)
-- [苹果宣布官方社区将于11月20日永久关闭，即日起停止新帖仅保留只读模式，可能出于什么原因？会有何影响？](http://www.daogukj.com/kfcenimf/)
-- [韩国有可能再恢复使用汉字吗？](http://www.movie.hkepx.cn/xiju/1284306.htm)
-- [《再 试 一 次！》](http://www.movie.hkepx.cn/movie/9628674.htm)
-- [后会友期](http://www.daogukj.com/1857926)
-- [奔驰 CEO 称「在中国，车要大，非常大，大得惊人」，实际情况是这样吗？为什么国内外会存在这样的区别？](http://www.daogukj.com/dauszqqt/)
-- [马克龙迎接外宾时2名仪仗队员晕倒](http://www.movie.hkepx.cn/movie/0907691.htm)
-- [初代网红夫妻大美高迪离婚](http://www.daogukj.com/5817227)
-- [谁点名要看我cos德穆兰的？英语总监莅临还不快来迎接！](http://www.daogukj.com/wotljoso/)
-- [深圳准备好了！APEC氛围拉满](http://www.daogukj.com/8049323)
-- [东契奇里夫斯均伤退 湖人轻取雄鹿](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
-- [高三生在拼豆店干坐1小时，留下5元钱、道歉纸条和父母电话，为什么能引发热议？给孩子教育留下怎样的启发？](http://www.movie.hkepx.cn/xiju/0261792.htm)
-- [《熊出没》官方辟谣熊大被写死](http://www.movie.hkepx.cn/movie/6726833.htm)
-- [【抢先版】7 元牛肉面结账竟要 26 元，少辣少葱都加价，不差那 19 块，只差一个说法：掏出手机那刻，老板脸先白了](http://www.movie.hkepx.cn/xiju/1828380.htm)
-- [易立竞两句话问哭李嘉格](http://www.movie.hkepx.cn/xiju/1222939.htm)
-- [沙僧在《西游记》中，除了挑担子外，出场的时候很少，为什么吴承恩在写《西游记》时不把他删掉？](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
-- [河南省委书记到胖东来调研](http://www.daogukj.com/2594309)
-- [员工工作近 9 年离职，被通知退还 17 万余元「预发产值提成差额」，预发提成是什么？这合法吗？](http://www.daogukj.com/qdasdjom/)
-- [为什么一个企业的利润率0%，仍然可以赚钱？](http://www.daogukj.com/3136388)
-- [“母女点6元豆芽”事件被曝是剧本](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
-- [APEC“中国年” 重点来了](http://www.daogukj.com/4275576)
-- [赵丽颖起诉红果短剧](http://www.daogukj.com/lpknevub/)
-- [郭德纲在天津举办收徒仪式](http://www.daogukj.com/3012939)
-- [主包从小就喜欢长发](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
-- [大肥鱼适合做女朋友吗？（3）](http://www.movie.hkepx.cn/xiju/9870181.htm)
-- [日媒为何对高市“开战”言论集体失声](http://www.movie.hkepx.cn/movie/2656535.htm)
-- [C罗宣布个人首部剧集开机](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
-- [BLG打赢GenG的概率有多大？](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
+- [港媒曝霍启山与娜然喜帖，二人 12 月 12 日将在香港办婚礼，哪些细节值得关注？](http://www.movie.hkepx.cn/movie/7696059.htm)
+- [上海成品油价明起下调](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
+- [肖战疾走也要看一眼面包店](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
+- [《反方向の忠》](http://www.daogukj.com/xbqcnyun/)
+- [为什么是最后一期？影视飓风1800万粉丝Q&A！](http://www.daogukj.com/3076909)
+- [稳股市如此重要 如何才能稳](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
+- [如何看待马化腾在腾讯 28 周年庆全员会上的讲话？](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
+- [《你跟他废什么话》](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
+- [零元面馆为什么可能带来坏结果](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
+- [后会友期表白 恶趣味](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
+- [如何看待2026.11《崩坏星穹铁道》4.7，开拓者星/穹册封阿哈为自己第一位开拓令使？](http://www.daogukj.com/7832374)
+- [国产手机再迎双品牌战略](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
+- [马化腾最新内部讲话曝光](http://www.movie.hkepx.cn/movie/5380543.htm)
+- [你王菲啊 厉娜](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
+- [主包从小就喜欢长发](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
+- [网红「疯狂小马哥」离世，家人称是「打 PK」被要求喝20瓶酒中途猝死，连麦者与平台应承担责任吗？](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
+- [安卓终于有好用的笔记软件了？OPPO Pad Air6 体验](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
+- [无牌四轮车撞倒老人后逃逸](http://www.daogukj.com/whdogfom/)
+- [朴树哥哥否认朴树去世传闻](http://www.daogukj.com/owjemlxs/)
+- [金价 跌回一年前](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
+- [男子应聘司机干了6小时倒贴2万](http://www.movie.hkepx.cn/xiju/8272307.htm)
+- [红楼梦AI短剧侵害17位演员肖像权](http://www.movie.hkepx.cn/xiju/5503803.htm)
+- [“这是解锁了什么特殊CG吗？！”](http://www.movie.hkepx.cn/movie/5517829.htm)
+- [疑似《崩坏：星穹铁道》星神★阿哈★真人角色PV流出](http://www.daogukj.com/kfcenimf/)
+- [《原神》过场动画-「岩与契约」](http://www.movie.hkepx.cn/xiju/1284306.htm)
+- [0.01分赢下保研第二天就被室友举报](http://www.movie.hkepx.cn/movie/9628674.htm)
+- [朴树哥哥否认朴树去世](http://www.daogukj.com/1857926)
+- [APEC为什么选在大湾区举办](http://www.daogukj.com/dauszqqt/)
+- [王者新英雄刀锋宝贝1117上线](http://www.movie.hkepx.cn/movie/0907691.htm)
+- [白小纯为啥老跟着王子璇](http://www.daogukj.com/5817227)
+- [确认糖尿病 是否彻底跟甜食绝缘](http://www.daogukj.com/wotljoso/)
+- [中国人餐桌上的APEC含量有多高](http://www.daogukj.com/8049323)
+- [伪史博主靠胡说八道带货卖课](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
+- [网传腾讯裁员 15-20%，腾讯辟谣「裁员50%」的说法，实际什么情况？可能涉及哪些业务？](http://www.movie.hkepx.cn/xiju/0261792.htm)
+- [他真的太优雅了！灰太狼&红太狼【非凡之爱】](http://www.movie.hkepx.cn/movie/6726833.htm)
+- [马化腾最新内部讲话](http://www.movie.hkepx.cn/xiju/1828380.htm)
+- [谁点名要看我cos德穆兰的？英语总监莅临还不快来迎接！](http://www.movie.hkepx.cn/xiju/1222939.htm)
+- [山姆399元羽绒服断货供应商回应](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
+- [女子在西西弗书店买了200元的书，想坐咖啡区却被拒，店方称需另行消费才能入座，这一规定合理吗？](http://www.daogukj.com/2594309)
+- [中国国民党举办纪念孙中山诞辰座谈会](http://www.daogukj.com/qdasdjom/)
+- [这都能还原！！？【MC阿哈篇】](http://www.daogukj.com/3136388)
+- [77万亿存款到期会流向哪里](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
+- [进博会把全球南方好物送到中国](http://www.daogukj.com/4275576)
+- [“商家扬言取消外卖”系引流套路](http://www.daogukj.com/lpknevub/)
+- [《GTA6》官方确认主机版目标帧率只有30帧，你怎么看？](http://www.daogukj.com/3012939)
+- [腾讯裁员50%？知情人士回应](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
+- [【纪录片】人生一串 第四季 02 心惊肉跳](http://www.movie.hkepx.cn/xiju/9870181.htm)
+- [韩国有可能再恢复使用汉字吗？](http://www.movie.hkepx.cn/movie/2656535.htm)
+- [山姆399元羽绒服戳破行业泡沫](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
+- [RTX5080 售价暴跌 4000 元，这波降价核心原因是什么，现在适合入手吗？](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
 
 </details>
 
 ## 原始来源
 
-- [为什么民主党能动摇德州这种深红州，而共和党对加州和纽约这种深蓝州却几乎没什么影响？](https://www.zhihu.com/question/2101176542860666115)
+- [【带着AI穿越2018】#6 蓝色大肥鱼单刀赴会阿美莉卡](https://b23.tv/BV1GJWy6rEQz)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: ca7fdf3ed67e13b62ff0 -->
+<!-- content-fingerprint: 1a99094473b14a80f65c -->

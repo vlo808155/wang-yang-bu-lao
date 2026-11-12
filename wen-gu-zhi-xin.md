@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 【抢先版】7 元牛肉面结账竟要 26 元，少辣少葱都加价，不差那 19 块，只差一个说法：掏出手机那刻，老板脸先白了
+# 马化腾最新内部讲话
 
-> 来源：哔哩哔哩热门 · 排名：第 14 位 · 热度：931301 · 分类：仿妆cos · 更新：2026-11-12T12:17:06+08:00
+> 来源：百度热搜 · 排名：第 14 位 · 热度：6464070 · 更新：2026-11-12T20:50:59+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“【抢先版】7 元牛肉面结账竟要 26 元，少辣少葱都加价，不差那 19 块，只差一个说法：掏出手机那刻，老板脸先白了”位列第 14 位，公开热度指标为 931301，榜单分类为“仿妆cos”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“马化腾最新内部讲话”位列第 14 位，公开热度指标为 6464070。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：上班族梁牧川被满福面馆7元牛肉面招牌吸引，结账却要26元，牛肉、小料、餐具等分项收费，少辣少葱也要加价。他不愿妥协，同事乔岚也遭遇同款套路选择支持他。后续公司团餐原定7元预算，最终总价暴涨三千余元，大量顾客小票曝光内情。店员陶小月坦言门店从不主动告知总价。最终套路被揭穿，诚信经营的陈守义老板重获客源，商业街出台新规，要求必收费用标注在醒目主价旁。
+来源公开摘要显示：近日，在腾讯28周年司庆直播上，马化腾谈及组织变革，称公司首度布局重资产业务，此番调整不等于降本。他警示AI浪潮来袭，提出业务由“陆战”转向“海战”，一半人力守好核心业务提效，另一半探索新赛道，推动组织扁平化，加快人员技能转型。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `仿妆cos`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [霍启刚晒与郭晶晶结婚14周年合照](ju-yi-fan-san.md)
-- [勇士vs火箭](rong-hui-guan-tong.md)
-- [如何看待12306回应外籍游客探出高铁车厢吸烟，称「个人素质行为」无法阻止？高铁站吸烟为何难以管理？](ji-si-guang-yi.md)
-- [文明重启：耗时3年，我终于做出了我的第一件铁器](qu-chang-bu-duan.md)
+- [后会友期表白 恶趣味](ju-yi-fan-san.md)
+- [泽连斯基：星链系统出现严重运行异常](rong-hui-guan-tong.md)
+- [百大 up 吐槽《影之刃零》无伤太折磨，花 90 小时做两期内容，这一难度设置合理吗？](ji-si-guang-yi.md)
+- [《你跟他废什么话》](qu-chang-bu-duan.md)
 
 ## 站内推荐
 
-- [大肥鱼适合做女朋友吗？（3）](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
-- [谁点名要看我cos德穆兰的？英语总监莅临还不快来迎接！](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
-- [喂，你们几个聊的很开心啊](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
-- [女子称产后与娃都患病丈夫不让进门](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
-- [后会友期全员拿到大结果了](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
+- [【纪录片】人生一串 第四季 02 心惊肉跳](https://github.com/vlo808155/hua-she-tian-zu/blob/main/bing-tian-xue-di.md)
+- [确认糖尿病 是否彻底跟甜食绝缘](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/yi-ming-jing-ren.md)
+- [店老板为连吃7碗米饭母女放钱系摆拍](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/sha-ji-qu-luan.md)
+- [零元面馆为什么可能带来坏结果](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/zi-qiang-bu-xi.md)
+- [金价 跌回一年前](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/you-sheng-you-se.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [警惕车辆召回谣言 已有人受骗](http://www.movie.hkepx.cn/movie/2076571.htm)
-- [霍启刚晒与郭晶晶合照庆祝结婚14周年](http://www.play.hengshemaoyi.cn/xiju/0493031.htm)
-- [沙僧在《西游记》中，除了挑担子外，出场的时候很少，为什么吴承恩在写《西游记》时不把他删掉？](http://www.movie.hkepx.cn/xiju/6447727.htm)
-- [东契奇里夫斯均伤退 湖人轻取雄鹿](http://www.play.hengshemaoyi.cn/kongbu/0765888.htm)
-- [何以中国壮美八桂](http://www.daogukj.com/ujykjkqc/)
-- [曝女子推理社3首录全阵容](http://www.play.hengshemaoyi.cn/xiju/7125638.htm)
-- [寰宇频道特别栏目 | 远行](http://www.daogukj.com/ddnluzup/)
-- [张雪回应公司又在意大利被偷](http://www.daogukj.com/drzpzlze/)
-- [初代网红夫妻大美高迪离婚](http://www.daogukj.com/eoyvlftc/)
-- [长征九号据传已经工程立项，是真的吗？最新情况如何？](http://www.movie.hkepx.cn/movie/2817254.htm)
-- [深圳准备好了！APEC氛围拉满](http://www.play.hengshemaoyi.cn/xiju/8069943.htm)
-- [主包从小就喜欢长发](http://www.daogukj.com/czfcxwdu/)
-- [女子生完孩子被丈夫拒之门外](http://www.movie.hkepx.cn/movie/0850868.htm)
-- [赵丽颖起诉红果短剧](http://www.play.hengshemaoyi.cn/kongbu/9561535.htm)
-- [港媒曝霍启山与娜然喜帖，二人 12 月 12 日将在香港办婚礼，哪些细节值得关注？](http://www.daogukj.com/1729617)
-- [日媒为何对高市“开战”言论集体失声](http://www.daogukj.com/3324715)
-- [BLG打赢GenG的概率有多大？](http://www.daogukj.com/ikrqrqaw/)
-- [苹果宣布官方社区将于11月20日永久关闭，即日起停止新帖仅保留只读模式，可能出于什么原因？会有何影响？](http://www.movie.hkepx.cn/xiju/0635899.htm)
-- [泡面风波](http://www.play.hengshemaoyi.cn/kongbu/8841363.htm)
-- [如何看待12306回应外籍游客探出高铁车厢吸烟，称「个人素质行为」无法阻止？高铁站吸烟为何难以管理？](http://www.daogukj.com/7019911)
-- [WTA年终总决赛](http://www.movie.hkepx.cn/xiju/1596108.htm)
-- [APEC“中国年” 重点来了](http://www.play.hengshemaoyi.cn/kongbu/5912571.htm)
-- [这都能还原！！？【MC阿哈篇】](http://www.movie.hkepx.cn/xiju/0929704.htm)
-- [李宇春原来是井柏然老板](http://www.play.hengshemaoyi.cn/kongbu/0586092.htm)
-- [年轻人开始寻找城市“树洞”](http://www.movie.hkepx.cn/movie/7064741.htm)
-- [马志明正式收郭德纲为义子](http://www.daogukj.com/svpdmhti/)
-- [为什么民主党能动摇德州这种深红州，而共和党对加州和纽约这种深蓝州却几乎没什么影响？](http://www.daogukj.com/dzqrudro/)
-- [辽阔的土地生不出狭隘的爱](http://www.movie.hkepx.cn/movie/0598553.htm)
-- [没想到节目也爆了](http://www.play.hengshemaoyi.cn/xiju/0980026.htm)
-- [山姆399元充绒量300克羽绒服断货](http://www.movie.hkepx.cn/movie/5524311.htm)
-- [泽连斯基嘲讽特朗普](http://www.movie.hkepx.cn/movie/8815129.htm)
-- [员工工作近 9 年离职，被通知退还 17 万余元「预发产值提成差额」，预发提成是什么？这合法吗？](http://www.movie.hkepx.cn/movie/4122960.htm)
-- [8岁女孩被老师用戒尺殴打近20分钟](http://www.play.hengshemaoyi.cn/xiju/4897818.htm)
-- [奔驰要变了：100%为中国](http://www.movie.hkepx.cn/movie/7903800.htm)
-- [我们人类是地球上的第几代文明？](http://www.movie.hkepx.cn/xiju/7617687.htm)
-- [油价今晚有望大幅下降](http://www.movie.hkepx.cn/movie/6382391.htm)
-- [“包子2元停车10元”成历史](http://www.daogukj.com/4658626)
-- [警惕“车辆召回”虚假信息](http://www.play.hengshemaoyi.cn/kongbu/9068031.htm)
-- [间谍过家家·福杰夫妇：非凡之爱](http://www.movie.hkepx.cn/movie/5184280.htm)
-- [明明工作很负责，晋升却一直受阻，会不会是太执着于“被别人需要”？](http://www.daogukj.com/hvftglso/)
-- [女孩没带课本被老师打到抽搐倒地](http://www.daogukj.com/tzodbjjw/)
-- [美防长在无名烈士墓前嬉笑被呵斥](http://www.daogukj.com/9005314)
-- [大美高迪已无商业关联](http://www.movie.hkepx.cn/movie/6639660.htm)
-- [大胃王网红去世这么多，为啥良子依旧活着？](http://www.play.hengshemaoyi.cn/xiju/5390600.htm)
-- [77万亿存款到期会流向哪里](http://www.daogukj.com/5710918)
-- [女子称产后与娃都患病丈夫不让进门](http://www.play.hengshemaoyi.cn/kongbu/9804131.htm)
-- [文明重启：耗时3年，我终于做出了我的第一件铁器](http://www.play.hengshemaoyi.cn/kongbu/9936636.htm)
-- [库里回应妻子拍吻戏遭抨击](http://www.movie.hkepx.cn/movie/1112201.htm)
-- [为什么一个企业的利润率0%，仍然可以赚钱？](http://www.daogukj.com/4063728)
-- [霍启刚晒与郭晶晶结婚14周年合照](http://www.movie.hkepx.cn/movie/3217282.htm)
+- [拉宏劝吴磊避开后会友期](http://www.movie.hkepx.cn/movie/2076571.htm)
+- [如何看待院士称剑桥大学50张病床配600位科学家，国内配5个大夫就超编了，是否应该大力扩编医生?](http://www.play.hengshemaoyi.cn/xiju/0493031.htm)
+- [山姆399元羽绒服断货供应商回应](http://www.movie.hkepx.cn/xiju/6447727.htm)
+- [伪史博主靠胡说八道带货卖课](http://www.play.hengshemaoyi.cn/kongbu/0765888.htm)
+- [三军会师启新程](http://www.daogukj.com/ujykjkqc/)
+- [山姆399元羽绒服打脸谁](http://www.play.hengshemaoyi.cn/xiju/7125638.htm)
+- [《白银之城》角色PV - 馨西亚二世：到月下的城邦去](http://www.daogukj.com/ddnluzup/)
+- [德芙因七夕广告宣扬错误婚恋观，代运营方被罚 80 万，怎样看待这一结果？](http://www.daogukj.com/drzpzlze/)
+- [白小纯为啥老跟着王子璇](http://www.daogukj.com/eoyvlftc/)
+- [听说新西兰卖1000一只的黑金鲍泛滥了！我临时起意…](http://www.movie.hkepx.cn/movie/2817254.htm)
+- [中国人餐桌上的APEC含量有多高](http://www.play.hengshemaoyi.cn/xiju/8069943.htm)
+- [腾讯裁员50%？知情人士回应](http://www.daogukj.com/czfcxwdu/)
+- [今晚调油价 加满一箱油将少花25.5元](http://www.movie.hkepx.cn/movie/0850868.htm)
+- [“商家扬言取消外卖”系引流套路](http://www.play.hengshemaoyi.cn/kongbu/9561535.htm)
+- [老板假装扫码为特殊顾客买单500次](http://www.daogukj.com/1729617)
+- [韩国有可能再恢复使用汉字吗？](http://www.daogukj.com/3324715)
+- [RTX5080 售价暴跌 4000 元，这波降价核心原因是什么，现在适合入手吗？](http://www.daogukj.com/ikrqrqaw/)
+- [疑似《崩坏：星穹铁道》星神★阿哈★真人角色PV流出](http://www.movie.hkepx.cn/xiju/0635899.htm)
+- [历史上有什么摸鱼也出色的有趣人物吗？](http://www.play.hengshemaoyi.cn/kongbu/8841363.htm)
+- [百大 up 吐槽《影之刃零》无伤太折磨，花 90 小时做两期内容，这一难度设置合理吗？](http://www.daogukj.com/7019911)
+- [A股放量冲高回落 反弹是否已结束](http://www.movie.hkepx.cn/xiju/1596108.htm)
+- [进博会把全球南方好物送到中国](http://www.play.hengshemaoyi.cn/kongbu/5912571.htm)
+- [男子应聘司机干了6小时倒贴2万](http://www.movie.hkepx.cn/xiju/0929704.htm)
+- [台湾洗衣机内死亡男子家属发声](http://www.play.hengshemaoyi.cn/kongbu/0586092.htm)
+- [《反方向の忠》](http://www.movie.hkepx.cn/movie/7064741.htm)
+- [马天宇这里其实看出来了吧](http://www.daogukj.com/svpdmhti/)
+- [【带着AI穿越2018】#6 蓝色大肥鱼单刀赴会阿美莉卡](http://www.daogukj.com/dzqrudro/)
+- [荷兰法院已驳回捷豹路虎突击调取比亚迪研发资料的申请，还有哪些信息值得关注？这一裁定意味着什么？](http://www.movie.hkepx.cn/movie/0598553.htm)
+- [朴树哥哥否认朴树去世传闻](http://www.play.hengshemaoyi.cn/xiju/0980026.htm)
+- [中美就300亿对等降税保持密切沟通](http://www.movie.hkepx.cn/movie/5524311.htm)
+- [肖战疾走也要看一眼面包店](http://www.movie.hkepx.cn/movie/8815129.htm)
+- [中国国民党举办纪念孙中山诞辰座谈会](http://www.movie.hkepx.cn/movie/4122960.htm)
+- [把两只怀孕的蚁后分别放在不同生态，100天后谁发展的更厉害？](http://www.play.hengshemaoyi.cn/xiju/4897818.htm)
+- [舅舅患癌去世提醒定期检查身体](http://www.movie.hkepx.cn/movie/7903800.htm)
+- [冬日宿舍之写检讨](http://www.movie.hkepx.cn/xiju/7617687.htm)
+- [男子失业断供房贷 法院暂不拍卖房产](http://www.movie.hkepx.cn/movie/6382391.htm)
+- [高迪否认大美偷税漏税](http://www.daogukj.com/4658626)
+- [如何看待马化腾在腾讯 28 周年庆全员会上的讲话？](http://www.play.hengshemaoyi.cn/kongbu/9068031.htm)
+- [港媒曝霍启山与娜然喜帖，二人 12 月 12 日将在香港办婚礼，哪些细节值得关注？](http://www.movie.hkepx.cn/movie/5184280.htm)
+- [你王菲啊 厉娜](http://www.daogukj.com/hvftglso/)
+- [官方通报母女点豆芽吃7碗饭摆拍](http://www.daogukj.com/tzodbjjw/)
+- [立陶宛设“台湾代表处”内幕曝光](http://www.daogukj.com/9005314)
+- [沪深两市主力资金净流出435.28亿](http://www.movie.hkepx.cn/movie/6639660.htm)
+- [如何看待马志明收郭德纲为义子？](http://www.play.hengshemaoyi.cn/xiju/5390600.htm)
+- [刷短剧上瘾怎么办](http://www.daogukj.com/5710918)
+- [零元面馆为什么可能带来坏结果](http://www.play.hengshemaoyi.cn/kongbu/9804131.htm)
+- [《你跟他废什么话》](http://www.play.hengshemaoyi.cn/kongbu/9936636.htm)
+- [德芙广告宣扬错误婚恋观被罚80万元](http://www.movie.hkepx.cn/movie/1112201.htm)
+- [这都能还原！！？【MC阿哈篇】](http://www.daogukj.com/4063728)
+- [后会友期表白 恶趣味](http://www.movie.hkepx.cn/movie/3217282.htm)
 
 </details>
 
 ## 原始来源
 
-- [【抢先版】7 元牛肉面结账竟要 26 元，少辣少葱都加价，不差那 19 块，只差一个说法：掏出手机那刻，老板脸先白了](https://b23.tv/BV1uyWu6qEyH)
+- [马化腾最新内部讲话](https://www.baidu.com/s?wd=%E9%A9%AC%E5%8C%96%E8%85%BE%E6%9C%80%E6%96%B0%E5%86%85%E9%83%A8%E8%AE%B2%E8%AF%9D&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 48794818a9b5da15e993 -->
+<!-- content-fingerprint: e6fb582c1e99b3d991a7 -->
