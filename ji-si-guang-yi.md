@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 网红打pk猝死母亲不知其做危险直播
+# 如何看待12306回应外籍游客探出高铁车厢吸烟，称「个人素质行为」无法阻止？高铁站吸烟为何难以管理？
 
-> 来源：微博热搜 · 排名：第 15 位 · 热度：107741 · 分类：民生新闻,网红 · 更新：2026-11-12T07:42:36+08:00
+> 来源：知乎热榜 · 排名：第 15 位 · 热度：183 万热度 · 分类：问答 · 更新：2026-11-12T12:17:06+08:00
 
 ## 热点正文
 
-根据微博热搜当前公开榜单，“网红打pk猝死母亲不知其做危险直播”位列第 15 位，公开热度指标为 107741，榜单分类为“民生新闻,网红”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待12306回应外籍游客探出高铁车厢吸烟，称「个人素质行为」无法阻止？高铁站吸烟为何难以管理？”位列第 15 位，公开热度指标为 183 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-微博热搜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：近日，一段两名外籍乘客在高铁车厢门口吸烟的视频引发争议，登上热搜榜。 为此，中新网记者以消费者身份致电12306客户服务中心咨询。12306人工客服表示，高铁站台未强制禁烟，“如果旅客在车厢内吸烟，确实影响到了列车正常运行，可能会被限制乘车，或者是其他处罚。” 当记者进一步询问，若有旅客站在车厢门口，将头探出车厢外吸烟，是否涉嫌违规？12306人工客服回应称，“这个属于旅客个人素质的行为，我们没有办法去阻止旅客的这种个人行为。如果确实影响到列车正常运行，会有相应处罚。” 对此，列车工作人员是否有义务进行劝阻？12306人工客服表示，“如果看见了，肯定会去
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`微博热搜` `实时热搜` `热点资讯` `民生新闻,网红`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [男子结婚25年没让妻子上过一天班](qu-chang-bu-duan.md)
-- [大学生免费领养小猫背上九千多元分期债务，逾期年化利率131.4%，「猫贷」可能有哪些坑？法律上合理吗？](jing-yi-qiu-jing.md)
-- [千 万 别 开 911 去 川 西 ！](jiao-ta-shi-di.md)
-- [秦始皇儿子的脸被复原了？专家发声](shi-shi-qiu-shi.md)
+- [文明重启：耗时3年，我终于做出了我的第一件铁器](qu-chang-bu-duan.md)
+- [女子生完孩子被丈夫拒之门外](jing-yi-qiu-jing.md)
+- [曝女子推理社3首录全阵容](jiao-ta-shi-di.md)
+- [港媒曝霍启山与娜然喜帖，二人 12 月 12 日将在香港办婚礼，哪些细节值得关注？](shi-shi-qiu-shi.md)
 
 ## 站内推荐
 
-- [山姆399元充绒量300克羽绒服断货](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
-- [被砍断手指留学生遭朋友卷走数十万](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
-- [中国留学生在澳遇袭两根手指被砍断](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
-- [霍启山娜然 结婚](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
-- [尚公主播出这样的成绩真的好可惜](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
+- [后会友期](https://github.com/vlo808155/hua-she-tian-zu/blob/main/yi-xin-yi-yi.md)
+- [美防长在无名烈士墓前嬉笑被呵斥](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wang-mei-zhi-ke.md)
+- [双11数据不再惊艳意味着什么](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/yan-er-dao-ling.md)
+- [霍启刚晒与郭晶晶合照庆祝结婚14周年](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/xuan-liang-ci-gu.md)
+- [泡面风波](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hai-kuo-tian-kong.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [家族后人回应台湾孩子不认识孙中山](http://www.daogukj.com/elzxddpw/)
-- [俄美乌三方会谈成果公布](http://www.movie.hkepx.cn/movie/1864442.htm)
-- [美股科技股再续昂扬反弹](http://www.play.hengshemaoyi.cn/xiju/5288873.htm)
-- [BLG打赢GenG的概率有多大？](http://www.daogukj.com/1789946)
-- [刚提车就降价 理想回应背刺旧车主](http://www.play.hengshemaoyi.cn/xiju/7002266.htm)
-- [如果刚在图书馆一个空位子上坐下，有人过来说这是对方的位子，只是有事离开，要不要把位子还回去？](http://www.daogukj.com/7327475)
-- [正午阳光这是什么意思](http://www.movie.hkepx.cn/xiju/9951548.htm)
-- [《虚环》PV03｜致过去与未来的歌](http://www.movie.hkepx.cn/xiju/1674151.htm)
-- [中产的下一个抠门对象：超级双11](http://www.play.hengshemaoyi.cn/kongbu/9814810.htm)
-- [谁点名要看我cos德穆兰的？英语总监莅临还不快来迎接！](http://www.daogukj.com/6006131)
-- [多少公斤体重每天得吃多少克蛋白质](http://www.movie.hkepx.cn/movie/5825798.htm)
-- [女子西西弗买200元书坐咖啡区被拒](http://www.movie.hkepx.cn/movie/4511611.htm)
-- [燃油车国内销量接近腰斩](http://www.play.hengshemaoyi.cn/xiju/7118308.htm)
-- [大学生免费领养小猫背上九千多元分期债务，逾期年化利率131.4%，「猫贷」可能有哪些坑？法律上合理吗？](http://www.movie.hkepx.cn/movie/3210477.htm)
-- [张雪摩托与电动车相撞 自己跑近1公里](http://www.movie.hkepx.cn/movie/1427819.htm)
-- [Fable 5.2纯代码作画能力如何](http://www.daogukj.com/ulhauueh/)
-- [赵丽颖起诉红果短剧侵犯肖像权](http://www.movie.hkepx.cn/xiju/7426025.htm)
-- [白小纯直播](http://www.daogukj.com/6828552)
-- [如何评价楚超决赛颁奖典礼，轮到宜昌队领奖时湖北卫视切断直播信号一事？](http://www.daogukj.com/4846063)
-- [谢苗回应“传统武术能否实战”](http://www.play.hengshemaoyi.cn/xiju/1115121.htm)
-- [比亚迪大唐轮毂错装，生产环节为何会出现这样的问题？官方称不影响安全，这样的处理方案能解决车主顾虑吗？](http://www.movie.hkepx.cn/xiju/5458697.htm)
-- [常冰玉0-6不敌墨菲原因在哪](http://www.movie.hkepx.cn/xiju/7970452.htm)
-- [高迪](http://www.daogukj.com/7831492)
-- [段永平向安徽一中学捐款4500万](http://www.movie.hkepx.cn/movie/0165285.htm)
-- [港媒曝霍启山娜然婚礼请柬](http://www.play.hengshemaoyi.cn/kongbu/1576216.htm)
-- [跨越3500公里探秘亚洲第一商场！居然在这个国家？](http://www.play.hengshemaoyi.cn/kongbu/0352211.htm)
-- [俄方公布本轮俄美乌三方会谈成果，俄乌原则同意进行新一轮大规模在押人员交换，怎样解读？](http://www.daogukj.com/skxlcqbv/)
-- [《崩坏：星穹铁道》动画短片：「月下的欢快葬礼」](http://www.play.hengshemaoyi.cn/kongbu/8194557.htm)
-- [挑战只带一台笔记本，不带充电器在佛山废弃商场工作一天！](http://www.play.hengshemaoyi.cn/xiju/8022096.htm)
-- [日本药妆连锁品牌松本清称未销售过卡蓓诺洗发水，胖东来此前称未发现国内生产冒充进口情况，到底是怎么回事？](http://www.movie.hkepx.cn/xiju/7214601.htm)
-- [高端显卡大跳水引热议](http://www.daogukj.com/nvgfhrus/)
-- [陈砚周对郑雨表白](http://www.movie.hkepx.cn/xiju/2289573.htm)
-- [张雪宣布，冠军车拍卖款不再捐给韩红基金会，你怎么看？](http://www.play.hengshemaoyi.cn/kongbu/7073818.htm)
-- [今年双11货架电商怎么就又行了](http://www.play.hengshemaoyi.cn/kongbu/3209429.htm)
-- [12306回应外籍游客探出高铁车厢吸烟](http://www.play.hengshemaoyi.cn/kongbu/4786157.htm)
-- [【带着AI穿越2018】#6 蓝色大肥鱼单刀赴会阿美莉卡](http://www.movie.hkepx.cn/xiju/4895855.htm)
-- [警惕“车辆召回”虚假信息](http://www.play.hengshemaoyi.cn/kongbu/0234862.htm)
-- [店主代买彩票中825万私自兑奖](http://www.daogukj.com/1476559)
-- [辽阔的土地生不出狭隘的爱](http://www.play.hengshemaoyi.cn/kongbu/3024566.htm)
-- [【BilibiliToy】这个是一个普普通通的人机验证，真的](http://www.movie.hkepx.cn/xiju/4214569.htm)
-- [如何看待马志明收郭德纲为义子？](http://www.play.hengshemaoyi.cn/kongbu/1465165.htm)
-- [尚公主播出这样的成绩真的好可惜](http://www.daogukj.com/0876342)
-- [Anthropic IPO遭疯抢](http://www.play.hengshemaoyi.cn/kongbu/5523593.htm)
-- [钱去哪了？央行最新报告揭秘](http://www.movie.hkepx.cn/xiju/7093896.htm)
-- [山姆399元充绒量300克羽绒服断货](http://www.movie.hkepx.cn/movie/2906304.htm)
-- [儿媳妇调侃生病婆婆句句扎心](http://www.play.hengshemaoyi.cn/kongbu/6007147.htm)
-- [周瑜为什么那么年轻就早死了，有没有可能是孙权害了他?](http://www.play.hengshemaoyi.cn/xiju/5236793.htm)
-- [秦始皇儿子的脸被复原了？专家发声](http://www.daogukj.com/5178271)
-- [王传君称演《爱情公寓》时「没有听到表演的召唤」，觉得这就是一份让自己走红的工作，怎么评价这个说法？](http://www.play.hengshemaoyi.cn/kongbu/4327189.htm)
-- [这都能还原！！？【MC阿哈篇】](http://www.daogukj.com/3659644)
+- [决不能让一个梗毁掉一个孩子](http://www.daogukj.com/elzxddpw/)
+- [大胃王网红去世这么多，为啥良子依旧活着？](http://www.movie.hkepx.cn/movie/1864442.htm)
+- [油价今晚有望大幅下降](http://www.play.hengshemaoyi.cn/xiju/5288873.htm)
+- [挑战只带一台笔记本，不带充电器在佛山废弃商场工作一天！](http://www.daogukj.com/1789946)
+- [家长圈热议“小学生只上半天学”](http://www.play.hengshemaoyi.cn/xiju/7002266.htm)
+- [这都能还原！！？【MC阿哈篇】](http://www.daogukj.com/7327475)
+- [女孩没带课本被老师打到抽搐倒地](http://www.movie.hkepx.cn/xiju/9951548.htm)
+- [马克龙迎接外宾时2名仪仗队员晕倒](http://www.movie.hkepx.cn/xiju/1674151.htm)
+- [勇士vs火箭](http://www.play.hengshemaoyi.cn/kongbu/9814810.htm)
+- [奔驰要变了：100%为中国](http://www.daogukj.com/6006131)
+- [沙僧在《西游记》中，除了挑担子外，出场的时候很少，为什么吴承恩在写《西游记》时不把他删掉？](http://www.movie.hkepx.cn/movie/5825798.htm)
+- [山姆399元羽绒服断货供应商回应](http://www.movie.hkepx.cn/movie/4511611.htm)
+- [《熊出没》官方辟谣熊大被写死](http://www.play.hengshemaoyi.cn/xiju/7118308.htm)
+- [女子生完孩子被丈夫拒之门外](http://www.movie.hkepx.cn/movie/3210477.htm)
+- [熊出没官方辟谣熊大被写死了](http://www.movie.hkepx.cn/movie/1427819.htm)
+- [为什么一个企业的利润率0%，仍然可以赚钱？](http://www.daogukj.com/ulhauueh/)
+- [有比亚迪车主开3个月才发现轮辋装反](http://www.movie.hkepx.cn/xiju/7426025.htm)
+- [间谍过家家·福杰夫妇：非凡之爱](http://www.daogukj.com/6828552)
+- [BLG打赢GenG的概率有多大？](http://www.daogukj.com/4846063)
+- [没想到节目也爆了](http://www.play.hengshemaoyi.cn/xiju/1115121.htm)
+- [后会友期全员拿到大结果了](http://www.movie.hkepx.cn/xiju/5458697.htm)
+- [Anthropic披露AI仅用3天适配AMD芯片](http://www.movie.hkepx.cn/xiju/7970452.htm)
+- [大爷随手一拍把形影不离具象化了](http://www.daogukj.com/7831492)
+- [比亚迪大唐轮毂错装，生产环节为何会出现这样的问题？官方称不影响安全，这样的处理方案能解决车主顾虑吗？](http://www.movie.hkepx.cn/movie/0165285.htm)
+- [我们人类是地球上的第几代文明？](http://www.play.hengshemaoyi.cn/kongbu/1576216.htm)
+- [明明工作很负责，晋升却一直受阻，会不会是太执着于“被别人需要”？](http://www.play.hengshemaoyi.cn/kongbu/0352211.htm)
+- [NBA回应库里右侧髋部疑受伤](http://www.daogukj.com/skxlcqbv/)
+- [百度世界2026](http://www.play.hengshemaoyi.cn/kongbu/8194557.htm)
+- [寰宇频道特别栏目 | 远行](http://www.play.hengshemaoyi.cn/xiju/8022096.htm)
+- [几家都说没救的猛禽3080，亮机后跑了七十七万分](http://www.movie.hkepx.cn/xiju/7214601.htm)
+- [员工工作近 9 年离职，被通知退还 17 万余元「预发产值提成差额」，预发提成是什么？这合法吗？](http://www.daogukj.com/nvgfhrus/)
+- [辽阔的土地生不出狭隘的爱](http://www.movie.hkepx.cn/xiju/2289573.htm)
+- [女子称产后与娃都患病丈夫不让进门](http://www.play.hengshemaoyi.cn/kongbu/7073818.htm)
+- [越南第一夫人为何穿和服面见高市早苗](http://www.play.hengshemaoyi.cn/kongbu/3209429.htm)
+- [老 兵 电 竟 2.0](http://www.play.hengshemaoyi.cn/kongbu/4786157.htm)
+- [“母女点6元豆芽”事件被曝是剧本](http://www.movie.hkepx.cn/xiju/4895855.htm)
+- [苹果宣布官方社区将于11月20日永久关闭，即日起停止新帖仅保留只读模式，可能出于什么原因？会有何影响？](http://www.play.hengshemaoyi.cn/kongbu/0234862.htm)
+- [WTA年终总决赛](http://www.daogukj.com/1476559)
+- [霍启刚晒与郭晶晶结婚14周年合照](http://www.play.hengshemaoyi.cn/kongbu/3024566.htm)
+- [李宇春原来是井柏然老板](http://www.movie.hkepx.cn/xiju/4214569.htm)
+- [喂，你们几个聊的很开心啊](http://www.play.hengshemaoyi.cn/kongbu/1465165.htm)
+- [泡面风波](http://www.daogukj.com/0876342)
+- [某律师为了不把敏感资料上传云端，用 8 张 V100 搭建一台数千瓦功耗的本地 AI 服务器值得吗？](http://www.play.hengshemaoyi.cn/kongbu/5523593.htm)
+- [徐艺洋儿子拿妈妈应援物](http://www.movie.hkepx.cn/xiju/7093896.htm)
+- [后会友期](http://www.movie.hkepx.cn/movie/2906304.htm)
+- [易立竞两句话问哭李嘉格](http://www.play.hengshemaoyi.cn/kongbu/6007147.htm)
+- [山姆399元充绒量300克羽绒服断货](http://www.play.hengshemaoyi.cn/xiju/5236793.htm)
+- [港媒曝霍启山与娜然喜帖，二人 12 月 12 日将在香港办婚礼，哪些细节值得关注？](http://www.daogukj.com/5178271)
+- [【抢先版】7 元牛肉面结账竟要 26 元，少辣少葱都加价，不差那 19 块，只差一个说法：掏出手机那刻，老板脸先白了](http://www.play.hengshemaoyi.cn/kongbu/4327189.htm)
+- [C罗宣布个人首部剧集开机](http://www.daogukj.com/3659644)
 
 </details>
 
 ## 原始来源
 
-- [网红打pk猝死母亲不知其做危险直播](https://s.weibo.com/weibo?q=%E7%BD%91%E7%BA%A2%E6%89%93pk%E7%8C%9D%E6%AD%BB%E6%AF%8D%E4%BA%B2%E4%B8%8D%E7%9F%A5%E5%85%B6%E5%81%9A%E5%8D%B1%E9%99%A9%E7%9B%B4%E6%92%AD)
+- [如何看待12306回应外籍游客探出高铁车厢吸烟，称「个人素质行为」无法阻止？高铁站吸烟为何难以管理？](https://www.zhihu.com/question/2104120328397874660)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 26efa4363b9f75c42d91 -->
+<!-- content-fingerprint: d54ce760670a53cb2b83 -->

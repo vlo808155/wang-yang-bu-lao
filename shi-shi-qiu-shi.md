@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 秦始皇儿子的脸被复原了？专家发声
+# 港媒曝霍启山与娜然喜帖，二人 12 月 12 日将在香港办婚礼，哪些细节值得关注？
 
-> 来源：百度热搜 · 排名：第 15 位 · 热度：6374415 · 更新：2026-11-12T07:42:36+08:00
+> 来源：知乎热榜 · 排名：第 16 位 · 热度：180 万热度 · 分类：问答 · 更新：2026-11-12T12:17:06+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“秦始皇儿子的脸被复原了？专家发声”位列第 15 位，公开热度指标为 6374415。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“港媒曝霍启山与娜然喜帖，二人 12 月 12 日将在香港办婚礼，哪些细节值得关注？”位列第 16 位，公开热度指标为 180 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近日，西北大学公布秦陵陪葬墓一男性遗骸颅面复原成果。因遗骸死状惨烈且墓葬等级高，网友猜测其系秦始皇之子。专家解读称，“秦始皇之子”身份目前仍是考古学假说，复原图无法证明亲子关系。
+来源公开摘要显示：11月11日，“霍启山娜然 结婚”引发热议。 据半岛晨报，11日，港媒曝光娜然和霍启山婚礼请柬，两人将于12月12日在香港举办婚礼，喜帖由霍启山父母霍震霆朱玲玲署名。 2026年6月17日，霍启山与演员娜然被曝婚期临近相关词条登上热搜第一。 去年11月，网曝霍启山、娜然恋爱一年多，还一起参加婚礼。今年，2月网友在意大利美术馆偶遇两人。今年6月，网传他们将在11月于海南三亚举行婚礼。 娜然，1997年4月1日出生于俄罗斯，蒙古族，华语影视女演员、模特。 霍启山，1983年生于香港，是霍英东集团副董事长霍震霆与朱玲玲的次子，其兄为霍启刚。“霍启山娜然 结婚”
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [白小纯直播](chi-zhi-yi-heng.md)
-- [儿媳妇调侃生病婆婆句句扎心](jian-ren-bu-ba.md)
-- [张雪宣布，冠军车拍卖款不再捐给韩红基金会，你怎么看？](zi-qiang-bu-xi.md)
-- [《虚环》PV03｜致过去与未来的歌](fen-fa-tu-qiang.md)
+- [间谍过家家·福杰夫妇：非凡之爱](chi-zhi-yi-heng.md)
+- [易立竞两句话问哭李嘉格](jian-ren-bu-ba.md)
+- [女子称产后与娃都患病丈夫不让进门](zi-qiang-bu-xi.md)
+- [马克龙迎接外宾时2名仪仗队员晕倒](fen-fa-tu-qiang.md)
 
 ## 站内推荐
 
-- [刚提车就降价 理想回应背刺旧车主](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
-- [外籍乘客高铁车厢门口吸烟 12306回应](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
-- [赵丽颖起诉红果短剧侵犯肖像权](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
-- [钱去哪了？央行最新报告揭秘](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
-- [多少公斤体重每天得吃多少克蛋白质](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
+- [家长圈热议“小学生只上半天学”](https://github.com/vlo808155/hua-she-tian-zu/blob/main/liu-shen-wu-zhu.md)
+- [原来李宇春是井柏然的老板](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/bei-shui-yi-zhan.md)
+- [有比亚迪车主开3个月才发现轮辋装反](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/lan-yu-chong-shu.md)
+- [徐艺洋儿子拿妈妈应援物](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/shou-bu-shi-juan.md)
+- [沙僧在《西游记》中，除了挑担子外，出场的时候很少，为什么吴承恩在写《西游记》时不把他删掉？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/shen-mou-yuan-lv.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [奔驰CEO称在中国车要大得惊人](http://www.movie.hkepx.cn/xiju/7278435.htm)
-- [梁家辉拒绝工作人员帮拿金鸡奖杯](http://www.daogukj.com/eaozjceu/)
-- [如果刚在图书馆一个空位子上坐下，有人过来说这是对方的位子，只是有事离开，要不要把位子还回去？](http://www.daogukj.com/xtfvegvn/)
-- [山姆399元充绒量300克羽绒服断货](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
-- [谢苗回应“传统武术能否实战”](http://www.daogukj.com/fkuewdzb/)
-- [中产的下一个精打细算：超级双11](http://www.movie.hkepx.cn/xiju/4307844.htm)
-- [大学生免费领养小猫背上九千多元分期债务，逾期年化利率131.4%，「猫贷」可能有哪些坑？法律上合理吗？](http://www.daogukj.com/8791893)
-- [王传君称演《爱情公寓》时「没有听到表演的召唤」，觉得这就是一份让自己走红的工作，怎么评价这个说法？](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
-- [赵丽颖起诉红果短剧](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
-- [儿媳妇调侃生病婆婆句句扎心](http://www.daogukj.com/2165140)
-- [Anthropic IPO遭疯抢](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
-- [这都能还原！！？【MC阿哈篇】](http://www.movie.hkepx.cn/xiju/1440611.htm)
-- [刚提车就降价 理想回应背刺旧车主](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
-- [如何看待马志明收郭德纲为义子？](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
-- [三张“图”看开放中国新机遇](http://www.daogukj.com/9837121)
-- [12306回应外籍乘客车厢门口吸烟](http://www.movie.hkepx.cn/movie/5334415.htm)
-- [店主代买彩票中825万私自兑奖](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
-- [千 万 别 开 911 去 川 西 ！](http://www.movie.hkepx.cn/movie/2391374.htm)
-- [钱去哪了？央行最新报告揭秘](http://www.movie.hkepx.cn/movie/4276791.htm)
-- [2岁女童独自在家从2楼阳台坠落](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
-- [外籍乘客高铁车厢门口吸烟 12306回应](http://www.daogukj.com/6612016)
-- [高端显卡大跳水引热议](http://www.movie.hkepx.cn/movie/4045624.htm)
-- [网红打pk猝死母亲不知其做危险直播](http://www.daogukj.com/9217972)
-- [为世界经济注入更多确定性和正能量](http://www.daogukj.com/eecjrkxr/)
-- [被砍断手指留学生遭朋友卷走数十万](http://www.movie.hkepx.cn/xiju/0864553.htm)
-- [RTX50系列显卡价格出现回落，RTX5080售价已跌4000 元，有哪些原因？现在适合入手吗？](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
-- [家族后人回应台湾孩子不认识孙中山](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
-- [警惕“车辆召回”虚假信息](http://www.daogukj.com/chnejvmg/)
-- [高迪](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
-- [【带着AI穿越2018】#6 蓝色大肥鱼单刀赴会阿美莉卡](http://www.daogukj.com/dmyshqkp/)
-- [谁点名要看我cos德穆兰的？英语总监莅临还不快来迎接！](http://www.daogukj.com/hxjdxwxy/)
-- [段永平向安徽一中学捐款4500万](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
-- [3岁女孩练芭蕾2年蜕变惊人](http://www.movie.hkepx.cn/movie/5093289.htm)
-- [大美高迪离婚](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
-- [燃油车国内销量接近腰斩](http://www.movie.hkepx.cn/movie/7746903.htm)
-- [男性口咽癌发病率显著上升](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
-- [老外们马上要知道什么叫“不烧心”了](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
-- [多少公斤体重每天得吃多少克蛋白质](http://www.daogukj.com/2551047)
-- [大胃王网红去世这么多，为啥良子依旧活着？](http://www.daogukj.com/7700423)
-- [警惕车辆召回谣言 已有人受骗](http://www.daogukj.com/0062100)
-- [俄罗斯驻美国大使达尔奇耶夫去世](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
-- [文明重启：耗时3年，我终于做出了我的第一件铁器](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
-- [长虹原董事长倪润峰去世](http://www.daogukj.com/qzcflnda/)
-- [尚公主播出这样的成绩真的好可惜](http://www.movie.hkepx.cn/movie/1098440.htm)
-- [《虚环》PV03｜致过去与未来的歌](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
-- [中国留学生在澳遇袭两根手指被砍断](http://www.daogukj.com/2428628)
-- [港媒曝霍启山娜然婚礼请柬](http://www.daogukj.com/uftxwefl/)
-- [辽阔的土地生不出狭隘的爱](http://www.movie.hkepx.cn/movie/6056833.htm)
-- [男子“搬运”影视作品获刑](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
-- [张雪摩托与电动车相撞 自己跑近1公里](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
+- [俄要求日本放弃推进再军事化](http://www.movie.hkepx.cn/xiju/7278435.htm)
+- [长征九号据传已经工程立项，是真的吗？最新情况如何？](http://www.daogukj.com/eaozjceu/)
+- [这都能还原！！？【MC阿哈篇】](http://www.daogukj.com/xtfvegvn/)
+- [后会友期](http://www.play.hengshemaoyi.cn/xiju/5430767.htm)
+- [没想到节目也爆了](http://www.daogukj.com/fkuewdzb/)
+- [8岁女孩被老师用戒尺殴打近20分钟](http://www.movie.hkepx.cn/xiju/4307844.htm)
+- [女子生完孩子被丈夫拒之门外](http://www.daogukj.com/8791893)
+- [【抢先版】7 元牛肉面结账竟要 26 元，少辣少葱都加价，不差那 19 块，只差一个说法：掏出手机那刻，老板脸先白了](http://www.play.hengshemaoyi.cn/kongbu/6714538.htm)
+- [郭德纲在天津举办收徒仪式](http://www.play.hengshemaoyi.cn/kongbu/1137755.htm)
+- [易立竞两句话问哭李嘉格](http://www.daogukj.com/2165140)
+- [某律师为了不把敏感资料上传云端，用 8 张 V100 搭建一台数千瓦功耗的本地 AI 服务器值得吗？](http://www.play.hengshemaoyi.cn/xiju/2994585.htm)
+- [C罗宣布个人首部剧集开机](http://www.movie.hkepx.cn/xiju/1440611.htm)
+- [家长圈热议“小学生只上半天学”](http://www.play.hengshemaoyi.cn/xiju/4671431.htm)
+- [喂，你们几个聊的很开心啊](http://www.play.hengshemaoyi.cn/kongbu/5974346.htm)
+- [深圳准备好了！APEC氛围拉满](http://www.daogukj.com/9837121)
+- [年轻人开始寻找城市“树洞”](http://www.movie.hkepx.cn/movie/5334415.htm)
+- [WTA年终总决赛](http://www.play.hengshemaoyi.cn/xiju/0582714.htm)
+- [曝女子推理社3首录全阵容](http://www.movie.hkepx.cn/movie/2391374.htm)
+- [徐艺洋儿子拿妈妈应援物](http://www.movie.hkepx.cn/movie/4276791.htm)
+- [大美高迪已无商业关联](http://www.play.hengshemaoyi.cn/xiju/5088078.htm)
+- [原来李宇春是井柏然的老板](http://www.daogukj.com/6612016)
+- [员工工作近 9 年离职，被通知退还 17 万余元「预发产值提成差额」，预发提成是什么？这合法吗？](http://www.movie.hkepx.cn/movie/4045624.htm)
+- [如何看待12306回应外籍游客探出高铁车厢吸烟，称「个人素质行为」无法阻止？高铁站吸烟为何难以管理？](http://www.daogukj.com/9217972)
+- [APEC“中国年” 重点来了](http://www.daogukj.com/eecjrkxr/)
+- [美防长在无名烈士墓前嬉笑被呵斥](http://www.movie.hkepx.cn/xiju/0864553.htm)
+- [《再 试 一 次！》](http://www.play.hengshemaoyi.cn/xiju/2640348.htm)
+- [决不能让一个梗毁掉一个孩子](http://www.play.hengshemaoyi.cn/xiju/0647718.htm)
+- [苹果宣布官方社区将于11月20日永久关闭，即日起停止新帖仅保留只读模式，可能出于什么原因？会有何影响？](http://www.daogukj.com/chnejvmg/)
+- [大爷随手一拍把形影不离具象化了](http://www.play.hengshemaoyi.cn/xiju/7334622.htm)
+- [“母女点6元豆芽”事件被曝是剧本](http://www.daogukj.com/dmyshqkp/)
+- [奔驰要变了：100%为中国](http://www.daogukj.com/hxjdxwxy/)
+- [比亚迪大唐轮毂错装，生产环节为何会出现这样的问题？官方称不影响安全，这样的处理方案能解决车主顾虑吗？](http://www.play.hengshemaoyi.cn/xiju/7976211.htm)
+- [高迪曾称她给我生了仨孩子我该挨骂](http://www.movie.hkepx.cn/movie/5093289.htm)
+- [警惕“车辆召回”虚假信息](http://www.play.hengshemaoyi.cn/kongbu/0494276.htm)
+- [《熊出没》官方辟谣熊大被写死](http://www.movie.hkepx.cn/movie/7746903.htm)
+- [如何看待卡蓓诺洗发水(Cabelo)火速上架亚马逊日本，它还有机会逆转吗？](http://www.play.hengshemaoyi.cn/xiju/4517537.htm)
+- [库里回应妻子拍吻戏遭抨击](http://www.play.hengshemaoyi.cn/xiju/9284223.htm)
+- [沙僧在《西游记》中，除了挑担子外，出场的时候很少，为什么吴承恩在写《西游记》时不把他删掉？](http://www.daogukj.com/2551047)
+- [泽连斯基嘲讽特朗普](http://www.daogukj.com/7700423)
+- [赵丽颖起诉红果短剧](http://www.daogukj.com/0062100)
+- [韩国有可能再恢复使用汉字吗？](http://www.play.hengshemaoyi.cn/kongbu/6497349.htm)
+- [马志明正式收郭德纲为义子](http://www.play.hengshemaoyi.cn/kongbu/6978530.htm)
+- [两京十五日定档央八](http://www.daogukj.com/qzcflnda/)
+- [泡面风波](http://www.movie.hkepx.cn/movie/1098440.htm)
+- [马克龙迎接外宾时2名仪仗队员晕倒](http://www.play.hengshemaoyi.cn/kongbu/7791055.htm)
+- [双11数据不再惊艳意味着什么](http://www.daogukj.com/2428628)
+- [我们人类是地球上的第几代文明？](http://www.daogukj.com/uftxwefl/)
+- [霍启刚晒与郭晶晶结婚14周年合照](http://www.movie.hkepx.cn/movie/6056833.htm)
+- [奔驰 CEO 称「在中国，车要大，非常大，大得惊人」，实际情况是这样吗？为什么国内外会存在这样的区别？](http://www.play.hengshemaoyi.cn/xiju/9713596.htm)
+- [熊出没官方辟谣熊大被写死了](http://www.play.hengshemaoyi.cn/xiju/1071411.htm)
 
 </details>
 
 ## 原始来源
 
-- [秦始皇儿子的脸被复原了？专家发声](https://www.baidu.com/s?wd=%E7%A7%A6%E5%A7%8B%E7%9A%87%E5%84%BF%E5%AD%90%E7%9A%84%E8%84%B8%E8%A2%AB%E5%A4%8D%E5%8E%9F%E4%BA%86%EF%BC%9F%E4%B8%93%E5%AE%B6%E5%8F%91%E5%A3%B0&sa=fyb_news&rsv_dl=fyb_news)
+- [港媒曝霍启山与娜然喜帖，二人 12 月 12 日将在香港办婚礼，哪些细节值得关注？](https://www.zhihu.com/question/2103921611434939660)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 608b2f91a948f93be30d -->
+<!-- content-fingerprint: a5c15b8c7a4c99992f37 -->
