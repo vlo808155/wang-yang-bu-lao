@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 乡干部捅伤村民潜逃 15 年，其间违规吃空饷 140 万元并升为正科，暴露出哪些问题？
+# 《密档》口碑、票房均不如《给阿嬷的情书》《南京照相馆》，其导演却拿下最佳导演，金鸡奖的评审逻辑是什么？
 
-> 来源：知乎热榜 · 排名：第 13 位 · 热度：137 万热度 · 分类：问答 · 更新：2026-11-13T09:25:35+08:00
+> 来源：知乎热榜 · 排名：第 13 位 · 热度：107 万热度 · 分类：问答 · 更新：2026-11-13T16:21:39+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“乡干部捅伤村民潜逃 15 年，其间违规吃空饷 140 万元并升为正科，暴露出哪些问题？”位列第 13 位，公开热度指标为 137 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“《密档》口碑、票房均不如《给阿嬷的情书》《南京照相馆》，其导演却拿下最佳导演，金鸡奖的评审逻辑是什么？”位列第 13 位，公开热度指标为 107 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：2026年9月，河北省曲阳县人民法院作出一份判决，潜逃了15年的被告人、原范家庄乡政府工作人员吕登第，因犯故意伤害罪，判处有期徒刑七年。 16年前，任曲阳县范家庄乡乡干部的吕登第，与村民发生纠纷后持刀捅伤了劝架的庞爱士，案发后，曲阳县公安局对潜逃的吕登第上网追逃。2010年12月落网后，吕登第被采取监视居住强制措施。监视居住期间，吕登第逃脱，直到2025年2月再次被警方追逃才抓捕归案。 吕登第被抓捕后，受害人家属庞怀阔才知道，吕登第潜逃15年期间领取工资140余万元，而且还从副科级晋升成为正科级二级主任科员。 2026年10月30日，记者随同庞怀阔前往曲
+来源公开摘要显示：“导演郑大圣选取小切口视角处理重大红色史实，以日常中的反常构建隐蔽战线叙事的独特张力，善用历史留白展开艺术想象，以扎实纪实影像和沉浸式现场拍摄，释放演员表演的生命质感，对红色谍战类型做出全新探索，特授予最佳导演。”评委会评语如是写道。 《南京照相馆》30.17亿票房，《给阿嬷的情书》最终20.05亿票房。 《密档》2126.3万票房
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [《反方向の忠》](cheng-men-li-xue.md)
-- [零元面馆称周边商家若受损失愿补偿](shou-bu-shi-juan.md)
-- [刘欢癌症扩散后曾放手一搏试新药](xue-fu-wu-che.md)
-- [山姆399元羽绒服断货供应商回应](bo-wen-qiang-ji.md)
+- [MJ宇宙校园之末日降临第一集](cheng-men-li-xue.md)
+- [女子花8950将爱犬毛发做钻戒戴手上](shou-bu-shi-juan.md)
+- [杨超越早期经历](xue-fu-wu-che.md)
+- [马天宇：求求青稚别拍了](bo-wen-qiang-ji.md)
 
 ## 站内推荐
 
-- [荷兰法院已驳回捷豹路虎突击调取比亚迪研发资料的申请，还有哪些信息值得关注？这一裁定意味着什么？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
-- [感觉影之刃里的各种字体都好帅啊，比如“决战、殒命”等，这是单独请人写的吗，还是说能靠AI跑一批出来？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
-- [英伟达为何会选择科莱特·克雷斯出任临时CEO？她个人有哪些成就？她能坐稳继任者位置吗？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
-- [如何评价《一人之下》第784（839）话？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
-- [2026.11《崩坏星穹铁道》4.7，如何评价绝灭大君归寂/假面愚者未抵/无名客领航员我见？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
+- [网友称高铁座椅 USB 口充手机越充越掉电，12306 称电压更低，用于应急补电，这个设计合理吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/niao-yu-hua-xiang.md)
+- [张雪回应「读书无用论」，称这种定义很 low，自己几乎每天都学习，如何看待这一表态？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/feng-sheng-he-li.md)
+- [饶毅喊话耿同学「欢迎耿同学批评」，如何理解他们两位观点的异同？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/qi-ren-you-tian.md)
+- [为什么人到中年，很多人会觉得友情没那么重要？还有些人会觉得这是成熟的表现？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jing-yi-qiu-jing.md)
+- [NVIDIA：黄仁勋辞职](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/hua-long-dian-jing.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [2026.11《崩坏星穹铁道》4.7，如何评价绝灭大君归寂/假面愚者未抵/无名客领航员我见？](http://www.daogukj.com/0791900)
-- [黄仁勋为什么突然辞职？是被动离场，还是主动自保？](http://www.movie.hkepx.cn/movie/6187756.htm)
-- [冰箱当废品卖50元 男子自拆卖260](http://www.play.hengshemaoyi.cn/xiju/2843741.htm)
-- [店老板为连吃7碗米饭母女放钱系摆拍](http://www.daogukj.com/zealysjt/)
-- [金晨发文秒删](http://www.movie.hkepx.cn/movie/0178031.htm)
-- [中国正在编织这样一张大网](http://www.daogukj.com/6215529)
-- [上海10人组装手搓电池被抓](http://www.movie.hkepx.cn/xiju/4801450.htm)
-- [发悼念文配朴树图网友已设私密账号](http://www.daogukj.com/8108433)
-- [iPhone 18 Pro Max不是苹果今年行 是乱世容易出枭雄](http://www.daogukj.com/3643825)
-- [新生抽中“免费吃食堂一年”特等奖](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
-- [学者：美国限制中国却卡住了自己](http://www.daogukj.com/1108835)
-- [华农兄弟：抓鸭抓鹅一起炖，兄弟都说好吃](http://www.movie.hkepx.cn/xiju/9153610.htm)
-- [《你跟他废什么话》](http://www.play.hengshemaoyi.cn/xiju/5315061.htm)
-- [拜登：若早知患癌 我会辞职](http://www.play.hengshemaoyi.cn/xiju/5421312.htm)
-- [刘欢妻子长文](http://www.daogukj.com/veafcjhm/)
-- [议员儿子涉毒，当红男明星偷拍，黑帮大佬遭绑架？钱已到位，罪恶都市清道夫来活了！《黑白清道夫》](http://www.play.hengshemaoyi.cn/xiju/5677870.htm)
-- [刘欢妻子发8000字长文](http://www.movie.hkepx.cn/movie/8965818.htm)
-- [如何看待马化腾在腾讯 28 周年庆全员会上的讲话？](http://www.daogukj.com/6666143)
-- [微软Outlook服务宕机](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
-- [意大利3比1法国](http://www.movie.hkepx.cn/xiju/8931005.htm)
-- [秦朔：憾别倪润峰](http://www.movie.hkepx.cn/xiju/6420011.htm)
-- [双11为何“无感”了](http://www.play.hengshemaoyi.cn/kongbu/7380475.htm)
-- [荷兰法院已驳回捷豹路虎突击调取比亚迪研发资料的申请，还有哪些信息值得关注？这一裁定意味着什么？](http://www.daogukj.com/5699059)
-- [曝汤臣二公子和90花隐婚](http://www.movie.hkepx.cn/xiju/0644202.htm)
-- [提辖老妈《暴躁老妈》雷霆丧病配音1~8大合集](http://www.movie.hkepx.cn/xiju/8056511.htm)
-- [翻山覆海，以我之名｜2026全球总决赛冠亚军决赛宣传片](http://www.daogukj.com/nexzmtzr/)
-- [国内油价是怎么算的](http://www.daogukj.com/1229862)
-- [赵露思当导演了](http://www.daogukj.com/bnuggeog/)
-- [补档：钢成军的秘密被灭建国发现了，这下可惨了](http://www.movie.hkepx.cn/xiju/0869258.htm)
-- [《福尔摩斯》原著里头的房东太太为什么会像个仆人一样伺候她的租客？](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
-- [刘欢死因首次曝光，系感染性休克，生前与膀胱癌斗争十几年，膀胱癌有多危险？该怎样预防？](http://www.play.hengshemaoyi.cn/xiju/8712972.htm)
-- [3D打印6小时造一双鞋](http://www.daogukj.com/1535718)
-- [在深圳科技触手可及](http://www.play.hengshemaoyi.cn/kongbu/2527657.htm)
-- [蓉城球迷目睹丢冠后泣不成声](http://www.daogukj.com/fwgnvbgz/)
-- [为什么是最后一期？影视飓风1800万粉丝Q&A！](http://www.daogukj.com/liomovvw/)
-- [如何评价Google 11月13日发布的模型Gemini 4 Hydrogen？](http://www.play.hengshemaoyi.cn/xiju/3352880.htm)
-- [年轻人为什么不爱买皮鞋了](http://www.daogukj.com/5981356)
-- [臣妾要线上告发熹贵妃 2.0](http://www.play.hengshemaoyi.cn/kongbu/9556053.htm)
-- [为什么伽利略、爱因斯坦没有成为物理学单位？](http://www.movie.hkepx.cn/movie/6187870.htm)
-- [NVIDIA：黄仁勋辞职](http://www.movie.hkepx.cn/xiju/9816980.htm)
-- [黄仁勋4万美元打造出4万亿英伟达](http://www.daogukj.com/djgtqgkc/)
-- [“商家扬言取消外卖”系引流套路](http://www.movie.hkepx.cn/movie/4871450.htm)
-- [专家：科学护肾记住这几件事](http://www.movie.hkepx.cn/xiju/4251876.htm)
-- [英伟达股民天塌了](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
-- [英伟达显卡美亚销量暴跌超过70%｜显卡日报11月13日](http://www.movie.hkepx.cn/movie/9171667.htm)
-- [不可能完成的击杀！！](http://www.daogukj.com/oeibgnih/)
-- [俄称愿立即与美国讨论欧洲安全问题](http://www.play.hengshemaoyi.cn/xiju/5921224.htm)
-- [伏笔满满、高层改戏、英雄崩溃！漫威口碑“系列最差”的《复联2》到底冤不冤？](http://www.daogukj.com/jqsnmzfn/)
-- [刘欢曾说“宁死不背尿袋”](http://www.daogukj.com/fprzebnn/)
-- [成都成中国唯一入选美国《国家地理》全球最佳旅行地城市，凭什么吸引世界目光？](http://www.daogukj.com/2176297)
+- [NVIDIA：黄仁勋辞职](http://www.daogukj.com/0791900)
+- [拥有你 我的生活从一地鸡毛变成了一地狗毛](http://www.movie.hkepx.cn/movie/6187756.htm)
+- [以色列禁止法极左翼领导人梅朗雄入境](http://www.play.hengshemaoyi.cn/xiju/2843741.htm)
+- [问界](http://www.daogukj.com/zealysjt/)
+- [央视网评离岸信托收益征税](http://www.movie.hkepx.cn/movie/0178031.htm)
+- [我们的城市有条中山路](http://www.daogukj.com/6215529)
+- [考研人数](http://www.movie.hkepx.cn/xiju/4801450.htm)
+- [外交部回应中俄美元首会晤](http://www.daogukj.com/8108433)
+- [【烂奇迹】三毛：我的一生颠沛流离，活到现在算是个奇迹](http://www.daogukj.com/3643825)
+- [陈晓楠 张泉灵](http://www.play.hengshemaoyi.cn/kongbu/5790603.htm)
+- [伊朗再次打击美军在中东军事设施](http://www.daogukj.com/1108835)
+- [警方通报和平饭店51万元天价小票](http://www.movie.hkepx.cn/xiju/9153610.htm)
+- [《崩坏：星穹铁道》EP：「无中生有」](http://www.play.hengshemaoyi.cn/xiju/5315061.htm)
+- [男子生吞新鲜蛇胆 脑子里长满寄生虫](http://www.play.hengshemaoyi.cn/xiju/5421312.htm)
+- [白小纯成绩](http://www.daogukj.com/veafcjhm/)
+- [竹子从来都不欺人，只要你顺着它的脾气，会给你惊喜！](http://www.play.hengshemaoyi.cn/xiju/5677870.htm)
+- [远程注射疫苗被东北虎一把叼住针管](http://www.movie.hkepx.cn/movie/8965818.htm)
+- [前两年平价牛肉餐饮疯狂开店，现如今牛肉价格涨幅已达 27% ，牛肉为何吃不起了？](http://www.daogukj.com/6666143)
+- [王子璇听到白小纯说青稚是太子爷的表情](http://www.play.hengshemaoyi.cn/kongbu/9009587.htm)
+- [Outlook崩了日本政府改用电话工作](http://www.movie.hkepx.cn/xiju/8931005.htm)
+- [创业板指跌3.32%](http://www.movie.hkepx.cn/xiju/6420011.htm)
+- [40岁男子花4千元做96集AI短剧爆火](http://www.play.hengshemaoyi.cn/kongbu/7380475.htm)
+- [网友称高铁座椅 USB 口充手机越充越掉电，12306 称电压更低，用于应急补电，这个设计合理吗？](http://www.daogukj.com/5699059)
+- [“一代腿王”黄正利去世](http://www.movie.hkepx.cn/xiju/0644202.htm)
+- [永夜扉间PV及技能初探丨此身为烛](http://www.movie.hkepx.cn/xiju/8056511.htm)
+- [张萌后悔叫马天宇上节目](http://www.daogukj.com/nexzmtzr/)
+- [不断地向人道歉是什么心理？过多的道歉为什么让人反感？](http://www.daogukj.com/1229862)
+- [向太直言《后会友期》比短剧好看](http://www.daogukj.com/bnuggeog/)
+- [拿中老年病痛玩梗，还被44万人点赞，这是最近最让我恶心的烂梗！](http://www.movie.hkepx.cn/xiju/0869258.htm)
+- [东鹏饮料开始卖酒了，名字就叫好厉害，你看好吗？](http://www.play.hengshemaoyi.cn/xiju/6794084.htm)
+- [微软多项服务发生大规模故障，Outlook异常报告超13万起，问题可能出在哪？你现在还能正常登录吗？](http://www.play.hengshemaoyi.cn/xiju/8712972.htm)
+- [KFC列车诞生了](http://www.daogukj.com/1535718)
+- [秋假带火研学游、亲子游](http://www.play.hengshemaoyi.cn/kongbu/2527657.htm)
+- [正午阳光声明「我司所有项目信息…皆以正午及各项目官方渠道露出为准」，发生了什么？为何电视剧番位引争议？](http://www.daogukj.com/fwgnvbgz/)
+- [他真的太优雅了！灰太狼&红太狼【非凡之爱】](http://www.daogukj.com/liomovvw/)
+- [我修改了Minecraft的冰：](http://www.play.hengshemaoyi.cn/xiju/3352880.htm)
+- [后会友期陈晓楠评论区](http://www.daogukj.com/5981356)
+- [《蓝色星原：旅谣》公测预告PV](http://www.play.hengshemaoyi.cn/kongbu/9556053.htm)
+- [黄仁勋算是美国中期选举的牺牲品吗？为什么偏偏是他？](http://www.movie.hkepx.cn/movie/6187870.htm)
+- [臣妾要线上告发熹贵妃 2.0](http://www.movie.hkepx.cn/xiju/9816980.htm)
+- [宋雨琦转发中国台湾被韩网热议](http://www.daogukj.com/djgtqgkc/)
+- [破译“科学”流言不可不知100个真相](http://www.movie.hkepx.cn/movie/4871450.htm)
+- [2026.11《崩坏星穹铁道》4.7，如何评价绝灭大君归寂/假面愚者未抵/无名客领航员我见？](http://www.movie.hkepx.cn/xiju/4251876.htm)
+- [东山精密跌停](http://www.play.hengshemaoyi.cn/xiju/1790107.htm)
+- [离岸信托个税申报超1600亿不是劫富](http://www.movie.hkepx.cn/movie/9171667.htm)
+- [英雄联盟总决赛带火凌晨影院](http://www.daogukj.com/oeibgnih/)
+- [为什么说「赶出来的车」，和「磨出来的车」不是一回事？](http://www.play.hengshemaoyi.cn/xiju/5921224.htm)
+- [《反方向の忠》](http://www.daogukj.com/jqsnmzfn/)
+- [钓友喜提12斤多的稀有“寿星公”](http://www.daogukj.com/fprzebnn/)
+- [被传裁员后腾讯紧急辟谣「裁员 50%」说法，被热议的腾讯，是业务出了什么问题吗？](http://www.daogukj.com/2176297)
 
 </details>
 
 ## 原始来源
 
-- [乡干部捅伤村民潜逃 15 年，其间违规吃空饷 140 万元并升为正科，暴露出哪些问题？](https://www.zhihu.com/question/2101649988895904476)
+- [《密档》口碑、票房均不如《给阿嬷的情书》《南京照相馆》，其导演却拿下最佳导演，金鸡奖的评审逻辑是什么？](https://www.zhihu.com/question/2103800406706841399)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 1e0c11db09f8759832f3 -->
+<!-- content-fingerprint: a9cb319db4939c848f04 -->
