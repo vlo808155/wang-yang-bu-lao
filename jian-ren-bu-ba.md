@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# Mili - City Blue（都市之蓝）
+# 如何看待美国收紧特定国家地区企业交由三星/台积电代工22/16/14nm及以下高制程芯片许可要求？
 
-> 来源：哔哩哔哩热门 · 排名：第 16 位 · 热度：377294 · 分类：原创音乐 · 更新：2026-11-20T11:58:40+08:00
+> 来源：知乎热榜 · 排名：第 17 位 · 热度：180 万热度 · 分类：问答 · 更新：2026-11-20T20:43:09+08:00
 
 ## 热点正文
 
-根据哔哩哔哩热门当前公开榜单，“Mili - City Blue（都市之蓝）”位列第 16 位，公开热度指标为 377294，榜单分类为“原创音乐”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“如何看待美国收紧特定国家地区企业交由三星/台积电代工22/16/14nm及以下高制程芯片许可要求？”位列第 17 位，公开热度指标为 180 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：Mili官方周边：https://projectmili.store/ Mili官方粉丝团Patreon：https://www.patreon.com/project_mili 歌手：Mili 曲名：City Blue 作词：Cassie Wei 作曲：Yamato Kasai & Cassie Wei 编曲：Yamato Kasai, Yukihito, Shoto Yoshida 鼓手：Tetsuyuki Yamada 混音：Satoshi Yoneda 母带：Akihiro Shiba (T
+来源公开摘要显示：美国突然出手！三星代工「中国 AI 芯片」受限
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`哔哩哔哩热门` `实时热搜` `热点资讯` `原创音乐`
+`知乎热榜` `实时热搜` `热点资讯` `问答`
 
 ## 相关热点
 
-- [零AI纯手搓的3A大作玩一个少一个](zi-qiang-bu-xi.md)
-- [特朗普称理解普京的愤怒](fen-fa-tu-qiang.md)
-- [现货黄金一周连破四大关口](wang-yang-bu-lao.md)
-- [感觉身边只剩酒肉朋友，聊的不是孩子上学就是社会新闻，再往深就没话了，有时候不明白交情怎么就停在这儿了？](xuan-liang-ci-gu.md)
+- [中国有个美得像童话的地方，但一年只存在10天](zi-qiang-bu-xi.md)
+- [墨西哥总统感谢中方女保镖近身守护](fen-fa-tu-qiang.md)
+- [孕妈预产期喝半斤白酒紧急送医](wang-yang-bu-lao.md)
+- [女子进金店要买89万黄金 店员报警](xuan-liang-ci-gu.md)
 
 ## 站内推荐
 
-- [普京：中俄美元首会晤前所未有](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [为什么华妃死后，甄嬛就失宠了?](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [高市早苗应该在深圳烈士陵园鞠躬谢罪](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [探秘中国十大“禁区”，会吃人的森林！《09 哀牢山》](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [厉娜发的流水印章盖在马赛克上](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [90分钟中俄美会晤，摆了哪些事上桌？王骁APEC观察](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
+- [爱沙尼亚惨遭俄戏耍](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [许飞我愿意给你花钱你知道不](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [你家的第一台电视是什么样的？为什么小时候总是特别期待看电视？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [如何看待张朝阳回应搜狐「躺平」：没资源做大模型，但每天凌晨4点起床，讲物理课也是工作？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [国家领导人双边会晤](http://www.movie.hkepx.cn/movie/1165692.htm)
-- [CS2海克斯大乱go来了！肺泡都给我笑炸了](http://www.movie.hkepx.cn/movie/1352170.htm)
-- [以防你不知道GTA6的狗子会开游艇来救你！](http://www.play.hengshemaoyi.cn/kongbu/5123614.htm)
-- [如何看待张朝阳回应搜狐「躺平」：没资源做大模型，但每天凌晨4点起床，讲物理课也是工作？](http://www.daogukj.com/npyuporz/)
-- [陈晓楠因文吉儿与王子璇在细节问题上持续对抗叫停谈话，处理方式合理吗？文吉儿与王子璇的沟通存在哪些问题？](http://www.daogukj.com/4148221)
-- [尾随NPC的真实反应](http://www.play.hengshemaoyi.cn/kongbu/4994132.htm)
-- [酸甜苦辣咸五味辟谣图鉴](http://www.movie.hkepx.cn/xiju/4577450.htm)
-- [泰国总理夫妇逛深圳飙粤语](http://www.play.hengshemaoyi.cn/kongbu/6059802.htm)
-- [特朗普返美途中发文：一次伟大的访问](http://www.daogukj.com/6750296)
-- [刘琳全程脱稿配音俄语](http://www.movie.hkepx.cn/xiju/1723341.htm)
-- [普京：超10万俄罗斯民众在学中文](http://www.play.hengshemaoyi.cn/kongbu/5063278.htm)
-- [20多天婴儿被喂白开水中毒肾损伤](http://www.daogukj.com/6024053)
-- [我让100个游戏强行兼容了MC（第一集）【B站AI创造公开赛】](http://www.movie.hkepx.cn/movie/7510839.htm)
-- [现货黄金一周连破四大关口](http://www.movie.hkepx.cn/xiju/9043114.htm)
-- [唐湘龙：岛内政治人物都应来深圳看看](http://www.movie.hkepx.cn/xiju/3915788.htm)
-- [前世界亚军中单 Corn 回忆 Uzi 卢锡安打野事件「韩国打野未沟通就秒选」，真相到底是怎样的？](http://www.movie.hkepx.cn/xiju/4929128.htm)
-- [APEC晚宴荔枝冰酒全线售罄](http://www.play.hengshemaoyi.cn/xiju/4714425.htm)
-- [东京万人集会抗议高市政权政策](http://www.movie.hkepx.cn/xiju/1766582.htm)
-- [腾讯姚顺雨主导AI架构精简，而全公司11万人面临大调整，这类扁平化变革落地难点在哪？](http://www.daogukj.com/ceejmjpq/)
-- [周杰伦武汉演唱会580元大屏观演区引热议，此前有人认为是性价比之王，也有人不接受看不到真人，你怎么看？](http://www.play.hengshemaoyi.cn/xiju/6574526.htm)
-- [老人学会网购后下单15吨薯条喂猪](http://www.play.hengshemaoyi.cn/kongbu/0685738.htm)
-- [他狂任他狂](http://www.daogukj.com/3829979)
-- [探秘中国十大“禁区”，会吃人的森林！《09 哀牢山》](http://www.play.hengshemaoyi.cn/xiju/4225861.htm)
-- [GTA6是被情怀捧起来的吗？](http://www.movie.hkepx.cn/movie/4560913.htm)
-- [西湖边64平米两居室13.9万元起拍](http://www.daogukj.com/4062244)
-- [熟鸡蛋放口袋半年变“玻璃球”](http://www.play.hengshemaoyi.cn/kongbu/4901914.htm)
-- [金店老板说金价已经到底了](http://www.movie.hkepx.cn/xiju/8477603.htm)
-- [中俄美元首发表和平宣言，三国元首重申核战争打不赢也打不得，哪些信息值得重点关注？](http://www.play.hengshemaoyi.cn/xiju/3986361.htm)
-- [环球时报：高市是时候收回错误言论了](http://www.play.hengshemaoyi.cn/kongbu/1320737.htm)
-- [为什么电脑里存的同格式图片，有些无法显示缩略图？](http://www.daogukj.com/oebzlmot/)
-- [分不清哪个是倒放的](http://www.play.hengshemaoyi.cn/kongbu/4919916.htm)
-- [感觉身边只剩酒肉朋友，聊的不是孩子上学就是社会新闻，再往深就没话了，有时候不明白交情怎么就停在这儿了？](http://www.daogukj.com/jenzjadv/)
-- [零AI纯手搓的3A大作玩一个少一个](http://www.daogukj.com/rjxwvatb/)
-- [APEC新机遇年轻人如何接接接](http://www.daogukj.com/myetaccz/)
-- [中俄美元首会晤](http://www.play.hengshemaoyi.cn/xiju/4512617.htm)
-- [为什么华妃死后，甄嬛就失宠了?](http://www.daogukj.com/lqyabsmd/)
-- [高市早苗应该在深圳烈士陵园鞠躬谢罪](http://www.movie.hkepx.cn/xiju/2257347.htm)
-- [“全球最大医院”原党委书记被双开](http://www.play.hengshemaoyi.cn/kongbu/6146556.htm)
-- [特朗普给中俄美元首会晤打12分](http://www.play.hengshemaoyi.cn/kongbu/2930988.htm)
-- [光影绘湾区 璀璨深圳夜](http://www.movie.hkepx.cn/movie/4794891.htm)
-- [沙特首都最高建筑遭胡塞武装袭击](http://www.movie.hkepx.cn/xiju/9142629.htm)
-- [坐牢难，但出狱其实更难，如果你犯罪了，你会面临什么样的人生](http://www.play.hengshemaoyi.cn/kongbu/7682672.htm)
-- [地暖是24小时开着省钱，还是分时段开更省钱？](http://www.daogukj.com/idlsclvt/)
-- [为啥中文的一二三笔画简单明了，零的笔画那么多啊?](http://www.play.hengshemaoyi.cn/kongbu/8778582.htm)
-- [中俄美和平宣言为何特别强调国际刑事法院不得滥用管辖权？具体针对的是什么？这一表述有何现实背景？](http://www.play.hengshemaoyi.cn/kongbu/8593743.htm)
-- [胖东来今年累计销售额超过 258 亿元，同比增长 26.34%，如何看待这份业绩表现？](http://www.play.hengshemaoyi.cn/xiju/0951279.htm)
-- [韩国总统夫人被舞狮英歌舞圈粉](http://www.daogukj.com/hjqvdxzs/)
-- [后会友期观察室很严重的问题](http://www.play.hengshemaoyi.cn/kongbu/8650529.htm)
-- [⚡霸 爸 去 哪 儿⚡](http://www.play.hengshemaoyi.cn/xiju/5579870.htm)
-- [腾讯披露WorkBuddy近七天年化收入超5亿美元，有用户月付4万元买服务，数据背后有多大「含金量」？](http://www.daogukj.com/7619632)
+- [特朗普刚返美就发重大预告](http://www.movie.hkepx.cn/movie/1165692.htm)
+- [特朗普说完全理解普京的愤怒](http://www.movie.hkepx.cn/movie/1352170.htm)
+- [两京十五日首播反响](http://www.play.hengshemaoyi.cn/kongbu/5123614.htm)
+- [【非凡之爱】⚡️但都是正常人⚡️](http://www.daogukj.com/npyuporz/)
+- [领导人自己挑APEC红蓝围巾颜色](http://www.daogukj.com/4148221)
+- [⚡霸 爸 去 哪 儿⚡](http://www.play.hengshemaoyi.cn/kongbu/4994132.htm)
+- [特朗普：我完全可以理解普京的愤怒](http://www.movie.hkepx.cn/xiju/4577450.htm)
+- [如何评价T1官宣Doran离队？](http://www.play.hengshemaoyi.cn/kongbu/6059802.htm)
+- [沈腾拿最佳男主角了](http://www.daogukj.com/6750296)
+- [女子晒婆婆带娃前后变化](http://www.movie.hkepx.cn/xiju/1723341.htm)
+- [中俄美三方的和平宣言发布后，将会为俄乌局势带来哪些变量？](http://www.play.hengshemaoyi.cn/kongbu/5063278.htm)
+- [江南大学回应 「大学英语改为选修」，有通过四六级等免修条件，这一改革会成为趋势吗？](http://www.daogukj.com/6024053)
+- [内蒙古又找到一座金矿](http://www.movie.hkepx.cn/movie/7510839.htm)
+- [孕妈预产期喝半斤白酒紧急送医](http://www.movie.hkepx.cn/xiju/9043114.htm)
+- [DeepSeek 第二轮融资 1050 多亿元落地，31 家外部股东入局，怎样解读？](http://www.movie.hkepx.cn/xiju/3915788.htm)
+- [中国空军离世界第一还要多久](http://www.movie.hkepx.cn/xiju/4929128.htm)
+- [李子柒当选四川文联副主席](http://www.play.hengshemaoyi.cn/xiju/4714425.htm)
+- [APEC国宴430人份蒸鱼45分钟出餐](http://www.movie.hkepx.cn/xiju/1766582.htm)
+- [深圳 一个有大故事的地方](http://www.daogukj.com/ceejmjpq/)
+- [韩网热议迪奥合照身高差](http://www.play.hengshemaoyi.cn/xiju/6574526.htm)
+- [晋妈直播说李勒优不想走她铺好的路](http://www.play.hengshemaoyi.cn/kongbu/0685738.htm)
+- [11 月 19 日美股三大指数集体收跌超 2%，AMD 遭做空重挫 8%，英伟达跌超 3%，怎样解读？](http://www.daogukj.com/3829979)
+- [你家的第一台电视是什么样的？为什么小时候总是特别期待看电视？](http://www.play.hengshemaoyi.cn/xiju/4225861.htm)
+- [特朗普从中国返美途中发帖](http://www.movie.hkepx.cn/movie/4560913.htm)
+- [分不清哪个是倒放的](http://www.daogukj.com/4062244)
+- [神秘模型 Gestalt 横空出世，设计基准上大幅超越 Claude、GPT，这款模型到底是啥来历？](http://www.play.hengshemaoyi.cn/kongbu/4901914.htm)
+- [NBA回应文班亚马跳投式扣篮](http://www.movie.hkepx.cn/xiju/8477603.htm)
+- [如何看待马斯克离开深圳，突访上海？](http://www.play.hengshemaoyi.cn/xiju/3986361.htm)
+- [中美两军在上海举行会议](http://www.play.hengshemaoyi.cn/kongbu/1320737.htm)
+- [华为星芒品牌发布会](http://www.daogukj.com/oebzlmot/)
+- [墨西哥总统感谢中国女保镖](http://www.play.hengshemaoyi.cn/kongbu/4919916.htm)
+- [女子进金店要买89万黄金 店员报警](http://www.daogukj.com/jenzjadv/)
+- [中国有个美得像童话的地方，但一年只存在10天](http://www.daogukj.com/rjxwvatb/)
+- [【独家】《罗小黑战记》第44话 冬冬拯救行动方案五【10月国创】](http://www.daogukj.com/myetaccz/)
+- [中国最大饺子店要上市了](http://www.play.hengshemaoyi.cn/xiju/4512617.htm)
+- [爱沙尼亚惨遭俄戏耍](http://www.daogukj.com/lqyabsmd/)
+- [许飞我愿意给你花钱你知道不](http://www.movie.hkepx.cn/xiju/2257347.htm)
+- [文吉儿袜子塞沙发底下](http://www.play.hengshemaoyi.cn/kongbu/6146556.htm)
+- [余承东纠正“开车可以睡觉”言论](http://www.play.hengshemaoyi.cn/kongbu/2930988.htm)
+- [探秘中国十大“禁区”，会吃人的森林！《09 哀牢山》](http://www.movie.hkepx.cn/movie/4794891.htm)
+- [翔翔讲艾斯奥特曼和希波利特星人对战的故事](http://www.movie.hkepx.cn/xiju/9142629.htm)
+- [房子没人住该不该交供暖费](http://www.play.hengshemaoyi.cn/kongbu/7682672.htm)
+- [“社保断缴三个月账户清零”不实](http://www.daogukj.com/idlsclvt/)
+- [非凡之恶：这两人玩GTA6认识的](http://www.play.hengshemaoyi.cn/kongbu/8778582.htm)
+- [科技新国货成“深圳特产”](http://www.play.hengshemaoyi.cn/kongbu/8593743.htm)
+- [我爱上班](http://www.play.hengshemaoyi.cn/xiju/0951279.htm)
+- [汉东内部视频通话被曝光?](http://www.daogukj.com/hjqvdxzs/)
+- [APEC国宴一个团队负责一道菜](http://www.play.hengshemaoyi.cn/kongbu/8650529.htm)
+- [从细节读懂中国带给亚太的确定性](http://www.play.hengshemaoyi.cn/xiju/5579870.htm)
+- [胖东来搬离后原址所开新商场几乎倒闭](http://www.daogukj.com/7619632)
 
 </details>
 
 ## 原始来源
 
-- [Mili - City Blue（都市之蓝）](https://b23.tv/BV1ALs465E2V)
+- [如何看待美国收紧特定国家地区企业交由三星/台积电代工22/16/14nm及以下高制程芯片许可要求？](https://www.zhihu.com/question/2106927076238423067)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0267c7b480a7c7a91e88 -->
+<!-- content-fingerprint: 3de2eca70de8d75a6c3f -->
