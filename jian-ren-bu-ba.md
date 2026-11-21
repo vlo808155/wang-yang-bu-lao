@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 黄牛称炒茅台已「几乎无利可图」，酒厂逐步拿回定价权，这门「生意」为什么不赚钱了？近十年来发生什么变化？
+# 为何去玩这个剧本杀的人都失踪了？
 
-> 来源：知乎热榜 · 排名：第 16 位 · 热度：82 万热度 · 分类：问答 · 更新：2026-11-21T09:46:04+08:00
+> 来源：哔哩哔哩热门 · 排名：第 16 位 · 热度：195000 · 分类：人文历史 · 更新：2026-11-21T16:49:32+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“黄牛称炒茅台已「几乎无利可图」，酒厂逐步拿回定价权，这门「生意」为什么不赚钱了？近十年来发生什么变化？”位列第 16 位，公开热度指标为 82 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“为何去玩这个剧本杀的人都失踪了？”位列第 16 位，公开热度指标为 195000，榜单分类为“人文历史”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：持续近十年的茅台渠道价差生意正在走向终局。 继11月11日i茅台将精品、生肖等16款非标产品由抢购改为日常售卖后，13日茅台又下调线下代售价、对齐平台价，把线下、线上两套价格体系合二为一。 为应对变化，部分“黄牛”已经停收i茅台抢购酒。而有酒商感慨，如今炒茅台酒“几乎无利可图”。 炒茅台不赚钱了 北京市民张小姐手里压着一箱马年生肖茅台，上半年炒生肖茅台，她也抢到一单。当时马茅每瓶还有百元左右的溢价，到如今回收价最高的也只报到1700元/瓶，比起1899元的抢购价，还要亏上近200元/瓶。 张小姐的情况并非个例。近日北京多位“黄牛”告诉第一财经记者，已经不
+来源公开摘要显示：游戏：沂河往事
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `人文历史`
 
 ## 相关热点
 
-- [饥饿控制大脑！你将吃掉眼前所见的一切！](zi-qiang-bu-xi.md)
-- [李亚鹏回应王菲窦靖童李嫣合唱](fen-fa-tu-qiang.md)
-- [DeepSeek付费体验直线上升](wang-yang-bu-lao.md)
-- [郑煤集团发生4.07亿重大损失](xuan-liang-ci-gu.md)
+- [特朗普：中国的活力令人惊叹](zi-qiang-bu-xi.md)
+- [蓝盈莹入院切除扁桃体](fen-fa-tu-qiang.md)
+- [杨超越董思成太阳雨喉结吻](wang-yang-bu-lao.md)
+- [女子编造免费采摘甘蔗谣言被行拘](xuan-liang-ci-gu.md)
 
 ## 站内推荐
 
 - [韩国首次用「紧急灾难通知」让全国手机响铃 10.5 秒防高考作弊，此举合理吗？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/ba-mian-ling-long.md)
-- [特朗普称如果满分 10 分，可以为中俄美元首会晤打 12 分，此次会晤对他有多重要？美方有哪些收获？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
-- [神秘模型 Gestalt 横空出世，设计基准上大幅超越 Claude、GPT，这款模型到底是啥来历？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
-- [在中世纪时代拒绝骑士决斗，或在美国西部时代拒绝牛仔决斗，直接认怂，能活命么？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
-- [《绝区零》3.4版本PV | 长日终尽](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
+- [如何评价11月微软悄悄上架的全新中文输入法？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/wei-wei-jiu-zhao.md)
+- [为什么肠道会精准排出菌群异常的大便（腹泻）却又能把正常菌群的大便留在肠道内？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/bei-gong-she-ying.md)
+- [不是退网，是落网了!海南走私水路不通!](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/bo-wen-qiang-ji.md)
+- [真相，假是假了点，但看了不烧心。](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jian-wei-zhi-zhu.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [胖东来搬离后原址所开新商场几乎倒闭](http://www.movie.hkepx.cn/movie/1165692.htm)
-- [中国政法、上大、上海交大等多所高校不向2027级研究生提供宿舍，为何各校宿舍紧张问题都迟迟没能解决？](http://www.movie.hkepx.cn/movie/1352170.htm)
-- [中俄美三方的和平宣言发布后，将会为俄乌局势带来哪些变量？](http://www.play.hengshemaoyi.cn/kongbu/5123614.htm)
-- [发达国家中，日本人出国旅游意愿为何那么低？](http://www.daogukj.com/npyuporz/)
-- [茅台为何主动让黄牛无利可图](http://www.daogukj.com/4148221)
-- [当我用AI续写爱情公寓4关谷悠悠婚礼【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/4994132.htm)
-- [孙芮结婚怀孕](http://www.movie.hkepx.cn/xiju/4577450.htm)
-- [探秘中国十大“禁区”，会吃人的森林！《09 哀牢山》](http://www.play.hengshemaoyi.cn/kongbu/6059802.htm)
-- [高市搭讪特朗普被无视 日本网民：丢人](http://www.daogukj.com/6750296)
-- [父亲把房留给妹妹哥哥搬前打砸诅咒](http://www.movie.hkepx.cn/xiju/1723341.htm)
-- [为什么现在这么多应届生把考公当作唯一的出路？](http://www.play.hengshemaoyi.cn/kongbu/5063278.htm)
-- [“电影永远拍不出来，这种意气风发的感觉！”](http://www.daogukj.com/6024053)
-- [雷军称明年小米汽车正式出海，强调和当地供应链深度合作，如何看待小米汽车出海的时机与打法？](http://www.movie.hkepx.cn/movie/7510839.htm)
-- [DeepSeek付费体验直线上升](http://www.movie.hkepx.cn/xiju/9043114.htm)
-- [胖东来原址开的新商场几乎倒闭](http://www.movie.hkepx.cn/xiju/3915788.htm)
-- [国内金价回落至去年4月水平](http://www.movie.hkepx.cn/xiju/4929128.htm)
-- [林更新你怎么什么都敢演](http://www.play.hengshemaoyi.cn/xiju/4714425.htm)
-- [孙芮属于军婚](http://www.movie.hkepx.cn/xiju/1766582.htm)
-- [特朗普称在中国度过一段美好时光](http://www.daogukj.com/ceejmjpq/)
-- [湖南株洲一仓库突发大火？不实](http://www.play.hengshemaoyi.cn/xiju/6574526.htm)
-- [以前的朱瞻基现在的朱瞻基](http://www.play.hengshemaoyi.cn/kongbu/0685738.htm)
-- [DeepSeek 第二轮融资 1050 多亿元落地，31 家外部股东入局，怎样解读？](http://www.daogukj.com/3829979)
-- [在中世纪时代拒绝骑士决斗，或在美国西部时代拒绝牛仔决斗，直接认怂，能活命么？](http://www.play.hengshemaoyi.cn/xiju/4225861.htm)
-- [深圳街头外国友人牵着小机器人逛街](http://www.movie.hkepx.cn/movie/4560913.htm)
-- [《虚环》二测预告｜全新选手战斗实机](http://www.daogukj.com/4062244)
-- [司老凤联盟第111集:老牧师演唱会5:20am（完整版）](http://www.play.hengshemaoyi.cn/kongbu/4901914.htm)
-- [比亚迪折叠方向盘能干嘛](http://www.movie.hkepx.cn/xiju/8477603.htm)
-- [数学家称与 AI 合作证明了黎曼猜想，证明稿超 25 万页，黎曼猜想真的被解决了吗？](http://www.play.hengshemaoyi.cn/xiju/3986361.htm)
-- [李嫣声音比窦靖童还孝顺](http://www.play.hengshemaoyi.cn/kongbu/1320737.htm)
-- [三位拉美国家元首的深圳之行](http://www.daogukj.com/oebzlmot/)
-- [如果 GTA6明年上 PC，什么配置可以发挥最完全体的画面效果？](http://www.play.hengshemaoyi.cn/kongbu/4919916.htm)
-- [郑煤集团发生4.07亿重大损失](http://www.daogukj.com/jenzjadv/)
-- [饥饿控制大脑！你将吃掉眼前所见的一切！](http://www.daogukj.com/rjxwvatb/)
-- [为什么欧美使用壁炉的普遍性这么高，而中国却没有？](http://www.daogukj.com/myetaccz/)
-- [人民日报评“老人拆墙让路遭质疑”](http://www.play.hengshemaoyi.cn/xiju/4512617.htm)
-- [特朗普称如果满分 10 分，可以为中俄美元首会晤打 12 分，此次会晤对他有多重要？美方有哪些收获？](http://www.daogukj.com/lqyabsmd/)
-- [神秘模型 Gestalt 横空出世，设计基准上大幅超越 Claude、GPT，这款模型到底是啥来历？](http://www.movie.hkepx.cn/xiju/2257347.htm)
-- [张萌的大胆穿搭直接吓到孟子义](http://www.play.hengshemaoyi.cn/kongbu/6146556.htm)
-- [问界M9车主开辅助驾驶熟睡](http://www.play.hengshemaoyi.cn/kongbu/2930988.htm)
-- [深圳人又开始原装出街了](http://www.movie.hkepx.cn/movie/4794891.htm)
-- [暗粥突围](http://www.movie.hkepx.cn/xiju/9142629.htm)
-- [Claude声称证明黎曼猜想，我准备女装cos元辅了](http://www.play.hengshemaoyi.cn/kongbu/7682672.htm)
-- [AI浪潮落幕了吗](http://www.daogukj.com/idlsclvt/)
-- [金价还能撑多久](http://www.play.hengshemaoyi.cn/kongbu/8778582.htm)
-- [如果睡觉也能赚钱...](http://www.play.hengshemaoyi.cn/kongbu/8593743.htm)
-- [信用卡近一年减少 3400 万张，信用卡为何逐渐失去吸引力？背后反映出消费者支付习惯发生了哪些变化？](http://www.play.hengshemaoyi.cn/xiju/0951279.htm)
-- [张萌回应青稚打听式安慰](http://www.daogukj.com/hjqvdxzs/)
-- [“工业母鸡”也被干成白菜价](http://www.play.hengshemaoyi.cn/kongbu/8650529.htm)
-- [科技新国货成“深圳特产”](http://www.play.hengshemaoyi.cn/xiju/5579870.htm)
-- [【独家】《罗小黑战记》第44话 冬冬拯救行动方案五【10月国创】](http://www.daogukj.com/7619632)
+- [顺丰速运被暂停参加全军采购活动](http://www.movie.hkepx.cn/movie/1165692.htm)
+- [数学家称与 AI 合作证明了黎曼猜想，证明稿超 25 万页，黎曼猜想真的被解决了吗？](http://www.movie.hkepx.cn/movie/1352170.htm)
+- [在中世纪时代拒绝骑士决斗，或在美国西部时代拒绝牛仔决斗，直接认怂，能活命么？](http://www.play.hengshemaoyi.cn/kongbu/5123614.htm)
+- [黎曼猜想数学证明长达 25 万页是什么概念？人类还有可能完整读懂吗？](http://www.daogukj.com/npyuporz/)
+- [张雪带着德比斯走进东鹏饮料生产基地](http://www.daogukj.com/4148221)
+- [原来特朗普拉开窗帘 是在看深圳的路](http://www.play.hengshemaoyi.cn/kongbu/4994132.htm)
+- [金裕贞差点被风吹倒了](http://www.movie.hkepx.cn/xiju/4577450.htm)
+- [这是人类最后的机会，所以他站了出来【达奇】战锤30K故事内容](http://www.play.hengshemaoyi.cn/kongbu/6059802.htm)
+- [李亚鹏想给王菲母女三人和声被拒](http://www.daogukj.com/6750296)
+- [两京十五日台词](http://www.movie.hkepx.cn/xiju/1723341.htm)
+- [已经没有人类了](http://www.play.hengshemaoyi.cn/kongbu/5063278.htm)
+- [跑一英里捐一千刀 🏃🏼‍♀️](http://www.daogukj.com/6024053)
+- [幼儿园小朋友烧火做饭、揉面备菜，老师逐一点评成果，网友吐槽「上幼儿园都有业绩压力」，该类实践合理吗？](http://www.movie.hkepx.cn/movie/7510839.htm)
+- [杨超越董思成太阳雨喉结吻](http://www.movie.hkepx.cn/xiju/9043114.htm)
+- [高市搭讪特朗普被无视 日网民：丢人](http://www.movie.hkepx.cn/xiju/3915788.htm)
+- [《后会友期》中马天宇说“青稚原生家庭正常，白小纯原生家庭不正常”，在当时的场合中，这种行为合适吗？](http://www.movie.hkepx.cn/xiju/4929128.htm)
+- [特朗普说看看深圳再看看我们](http://www.play.hengshemaoyi.cn/xiju/4714425.htm)
+- [一家四代在沙漠种了近30年树](http://www.movie.hkepx.cn/xiju/1766582.htm)
+- [海外2.1亿人学中文见证中华文化魅力](http://www.daogukj.com/ceejmjpq/)
+- [高市见完普京就宣布对乌援助有何意图](http://www.play.hengshemaoyi.cn/xiju/6574526.htm)
+- [孙芮结婚怀孕](http://www.play.hengshemaoyi.cn/kongbu/0685738.htm)
+- [【爆浆实录】硬脆壳+软流心](http://www.daogukj.com/3829979)
+- [不是退网，是落网了!海南走私水路不通!](http://www.play.hengshemaoyi.cn/xiju/4225861.htm)
+- [黄牛称炒茅台已「几乎无利可图」，酒厂逐步拿回定价权，这门「生意」为什么不赚钱了？近十年来发生什么变化？](http://www.movie.hkepx.cn/movie/4560913.htm)
+- [你的GTA我的GTA好像不一样！](http://www.daogukj.com/4062244)
+- [菲比：事已至此 先吃饭吧](http://www.play.hengshemaoyi.cn/kongbu/4901914.htm)
+- [李亚鹏建议月捐1元支持嫣然基金](http://www.movie.hkepx.cn/xiju/8477603.htm)
+- [【IGN独家】《鸣潮：永明的烬焰》实机演示](http://www.play.hengshemaoyi.cn/xiju/3986361.htm)
+- [李子柒停更这两年在忙什么](http://www.play.hengshemaoyi.cn/kongbu/1320737.htm)
+- [睡觉穿袜子有助入睡 但5类人不建议](http://www.daogukj.com/oebzlmot/)
+- [摩尔线程官宣消费级显卡「庐山」，宣称光追暴涨 50 倍且刷新显存上限，实际体验能达到预期吗？](http://www.play.hengshemaoyi.cn/kongbu/4919916.htm)
+- [女子编造免费采摘甘蔗谣言被行拘](http://www.daogukj.com/jenzjadv/)
+- [特朗普：中国的活力令人惊叹](http://www.daogukj.com/rjxwvatb/)
+- [胖东来生活广场闭店后周围商户陆续搬走，曝租金降至400万后仍无人接盘，现在来看房东涨租算不算决策失误？](http://www.daogukj.com/myetaccz/)
+- [普京核手提箱成大新闻 俄方发声](http://www.play.hengshemaoyi.cn/xiju/4512617.htm)
+- [如何评价11月微软悄悄上架的全新中文输入法？](http://www.daogukj.com/lqyabsmd/)
+- [为什么肠道会精准排出菌群异常的大便（腹泻）却又能把正常菌群的大便留在肠道内？](http://www.movie.hkepx.cn/xiju/2257347.htm)
+- [美股一天内遭血洗意味着什么](http://www.play.hengshemaoyi.cn/kongbu/6146556.htm)
+- [猫的树今天是太阳雨收官长文](http://www.play.hengshemaoyi.cn/kongbu/2930988.htm)
+- [科技股大踩踏](http://www.movie.hkepx.cn/movie/4794891.htm)
+- [主人去世20天 小猫每天守墓旁](http://www.movie.hkepx.cn/xiju/9142629.htm)
+- [小时候眼中的罚抄神器be like:](http://www.play.hengshemaoyi.cn/kongbu/7682672.htm)
+- [墨西哥总统感谢中国女保镖](http://www.daogukj.com/idlsclvt/)
+- [郭一鸣：A股下周或迎关键验证窗口](http://www.play.hengshemaoyi.cn/kongbu/8778582.htm)
+- [当我用AI续写爱情公寓4关谷悠悠婚礼【AI全民制作人】](http://www.play.hengshemaoyi.cn/kongbu/8593743.htm)
+- [娃哈哈集团董事长许思敏被曝已辞职，宗馥莉48小时内调整247人职务，此轮调整会给娃哈哈带来怎样的影响？](http://www.play.hengshemaoyi.cn/xiju/0951279.htm)
+- [恨明月高悬独不照我 拆迁没拆到自己家](http://www.daogukj.com/hjqvdxzs/)
+- [如果厉娜当年真打过电话就太虐了](http://www.play.hengshemaoyi.cn/kongbu/8650529.htm)
+- [321场活动75项成果 回顾APEC成绩单](http://www.play.hengshemaoyi.cn/xiju/5579870.htm)
+- [戴玉强×龚琳娜 ｜殿堂级嗓音，荒野式放飞！魔性演绎《饥困荒野》1124上线主题曲](http://www.daogukj.com/7619632)
 
 </details>
 
 ## 原始来源
 
-- [黄牛称炒茅台已「几乎无利可图」，酒厂逐步拿回定价权，这门「生意」为什么不赚钱了？近十年来发生什么变化？](https://www.zhihu.com/question/2106114904289718820)
+- [为何去玩这个剧本杀的人都失踪了？](https://b23.tv/BV1UGyszjEGX)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: f03892b787c4b3e53322 -->
+<!-- content-fingerprint: 6081e6247c41918ea3af -->
