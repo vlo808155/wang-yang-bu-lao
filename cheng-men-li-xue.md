@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 怎样从晚起半小时到真正睡得好
+# 小时候眼中的罚抄神器be like:
 
-> 来源：百度热搜 · 排名：第 13 位 · 热度：6569971 · 更新：2026-11-23T00:43:17+08:00
+> 来源：哔哩哔哩热门 · 排名：第 13 位 · 热度：2830341 · 分类：单机游戏 · 更新：2026-11-23T06:05:03+08:00
 
 ## 热点正文
 
-根据百度热搜当前公开榜单，“怎样从晚起半小时到真正睡得好”位列第 13 位，公开热度指标为 6569971。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据哔哩哔哩热门当前公开榜单，“小时候眼中的罚抄神器be like:”位列第 13 位，公开热度指标为 2830341，榜单分类为“单机游戏”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：近期，江苏、浙江、重庆等多地推行中小学延迟到校，普遍延后20至30分钟，以保障学生睡眠。家长与教师反映此举改善了孩子睡眠及上课专注力。此前，为解决“孩子睡不够”问题，多地结合实际探索弹性到校。专家指出，延迟到校仅是起点，需家校社协同推进课业减负及评价优化，避免政策成“一阵风”，才能真正落实睡眠健康管理。
+来源公开摘要显示：感谢@极地の眼 协助制作 本视频模组可用pcl2在curseforge上可查到，名为brainlayers 封面设计来源油管Knarfy大佬 作为文具来说，这个铅笔无疑是不合格的，但作为玩具来说，它夯爆了
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`百度热搜` `实时热搜` `热点资讯`
+`哔哩哔哩热门` `实时热搜` `热点资讯` `单机游戏`
 
 ## 相关热点
 
-- [印度情侣遭8名少年殴打](shou-bu-shi-juan.md)
-- [主播私闯果园糟蹋千斤苹果仅愿赔6千元](xue-fu-wu-che.md)
-- [有人说搞南水北调不如搞海水淡化，你是否同意？](bo-wen-qiang-ji.md)
-- [“我只是死在了讨厌的生活里”「烂奇迹·章鱼哥」](wen-gu-zhi-xin.md)
+- [荔枝冰酒爆单 厂家忙到没空招人](shou-bu-shi-juan.md)
+- [利物浦4比0曼联](xue-fu-wu-che.md)
+- [特朗普连发30多张照片回味APEC](bo-wen-qiang-ji.md)
+- [2627赛季英超联赛英超第11轮利物浦 4:0 曼联，如何评价这场比赛？](wen-gu-zhi-xin.md)
 
 ## 站内推荐
 
-- [A股利好来了 三箭齐发](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
-- [最完美的食物](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
-- [张雪出价300万拍下自己的冠军赛车](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
-- [羽绒服到底该怎么洗](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
-- [Tim回应被质疑内定](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
+- [曾经主角团最边缘的一个，为啥如今却成了互联网的神？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shan-qing-shui-xiu.md)
+- [《GTA 6》：完美劫案（没惊动警察，也没触发警报）](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/ru-huo-ru-tu.md)
+- [“我只是死在了讨厌的生活里”「烂奇迹·章鱼哥」](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/chao-san-mu-si.md)
+- [以防你不知道GTA6路人是如何暴富的💰](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/jiao-ta-shi-di.md)
+- [实探普京下榻深圳酒店](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/miao-bi-sheng-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [做饭前一个改变 血压炎症指标降了](http://www.movie.hkepx.cn/movie/8315527.htm)
-- [李大霄：救市组合拳有助于市场稳定](http://www.movie.hkepx.cn/xiju/9744003.htm)
-- [朱雀三号回收发动机再次点火试车，具备再次使用条件，里程碑意义有多大？回收火箭发动机如何再次使用？](http://www.play.hengshemaoyi.cn/kongbu/2167324.htm)
-- [去世到安葬不超24小时？山东一地回应](http://www.movie.hkepx.cn/movie/0598458.htm)
-- [韦东奕再获奖](http://www.movie.hkepx.cn/movie/1195486.htm)
-- [王安宇被马顶跑了](http://www.movie.hkepx.cn/movie/1040288.htm)
-- [为何外国不搞新能源汽车](http://www.movie.hkepx.cn/xiju/1529442.htm)
-- [武汉一小学设牌劝返送水壶、作业的家长，让孩子自己承担忘带东西的后果，这种方式怎么样？值得效仿吗？](http://www.daogukj.com/9990647)
-- [为什么你会间接性看不惯身边的朋友？](http://www.daogukj.com/vuidxsxb/)
-- [张雪出价300万拍下自己的冠军赛车](http://www.movie.hkepx.cn/xiju/2812834.htm)
-- [非正常人物志——哥伦布](http://www.movie.hkepx.cn/movie/0453152.htm)
-- [不要自学韦伯斯特了！](http://www.play.hengshemaoyi.cn/xiju/3141529.htm)
-- [村委会回应“去世到安葬不超24小时”](http://www.play.hengshemaoyi.cn/kongbu/3227732.htm)
-- [特朗普发APEC合照配文GOAT](http://www.daogukj.com/lttpjdfd/)
+- [《520AM》司凤版⚡思罢吗乐队激情演奏！小时候这集听哭了😭【AI MV大赛】](http://www.movie.hkepx.cn/movie/8315527.htm)
+- [成毅白龙挂镜头太震撼了](http://www.movie.hkepx.cn/xiju/9744003.htm)
+- [特朗普回应深圳乘车时不拉窗帘](http://www.play.hengshemaoyi.cn/kongbu/2167324.htm)
+- [中戏同学成顶流男演员却当NPC](http://www.movie.hkepx.cn/movie/0598458.htm)
+- [特朗普发APEC合照配文GOAT](http://www.movie.hkepx.cn/movie/1195486.htm)
+- [山东一地推行“一日丧”](http://www.movie.hkepx.cn/movie/1040288.htm)
+- [弗朗西斯卡太熟樊振东球路](http://www.movie.hkepx.cn/xiju/1529442.htm)
+- [“稳股市”组合拳来了](http://www.daogukj.com/9990647)
+- [网友称在父母面前切换成「无性别低智儿童」，被问到工作、婚恋话题都说「不知道」，为啥要这样？这招管用吗？](http://www.daogukj.com/vuidxsxb/)
+- [“我只是死在了讨厌的生活里”「烂奇迹·章鱼哥」](http://www.movie.hkepx.cn/xiju/2812834.htm)
+- [如何看待2026年考CPA人数大幅下降这事？](http://www.movie.hkepx.cn/movie/0453152.htm)
+- [2026年乒乓球德甲联赛第九轮，樊振东1：3负于约内斯库，怎么评价樊振东代表杜塞尔多夫的这一场失利？](http://www.play.hengshemaoyi.cn/xiju/3141529.htm)
+- [【独家】牧神记 第110集 诡异冥谷](http://www.play.hengshemaoyi.cn/kongbu/3227732.htm)
+- [村委会回应“去世到安葬不超24小时”](http://www.daogukj.com/lttpjdfd/)
 - [亚洲市场集体打响保卫战](http://www.play.hengshemaoyi.cn/xiju/8191525.htm)
-- [人能控制自己的长相吗？](http://www.daogukj.com/zjpmceko/)
-- [张雪喊话麻阳县委书记：开36期免息](http://www.play.hengshemaoyi.cn/xiju/6169098.htm)
-- [【合集】人类消失后，深度思考三百年的大肥鱼](http://www.movie.hkepx.cn/xiju/0248646.htm)
-- [有人说搞南水北调不如搞海水淡化，你是否同意？](http://www.daogukj.com/8328518)
-- [张元英被外网批抢liz的C位](http://www.play.hengshemaoyi.cn/xiju/8682512.htm)
-- [泽连斯基：近一周乌20州遭俄军空袭](http://www.play.hengshemaoyi.cn/kongbu/6784091.htm)
-- [菲律宾8名警察绑架中国女富商](http://www.daogukj.com/kcmcfwfy/)
-- [2026亚太最具影响力青年男性TOP100](http://www.daogukj.com/pqcczpwj/)
-- [《多喜一家人》太烧心了](http://www.movie.hkepx.cn/xiju/5113891.htm)
-- [印度情侣遭8名少年殴打](http://www.play.hengshemaoyi.cn/kongbu/6074356.htm)
-- [为什么看完AI短剧以后，就看不进真人演的剧呢？](http://www.play.hengshemaoyi.cn/xiju/7952053.htm)
-- [如何评价《侠盗猎车手 VI》（GTA 6）的结局？](http://www.movie.hkepx.cn/movie/9150107.htm)
-- [AI 宣称证明黎曼猜想后，数学家又公开了一份完全不使用 AI 的广义黎曼猜想证明，如何看待？](http://www.movie.hkepx.cn/movie/7359364.htm)
-- [深圳水贝商家800元囤货770元出](http://www.movie.hkepx.cn/xiju/0518845.htm)
-- [P/NP 问题如果被解决，会对计算机科学带来哪些革命性影响？](http://www.play.hengshemaoyi.cn/kongbu/9268198.htm)
-- [商务部回应美拟禁止中国运营商获取电话号码资源，称相关做法破坏中美经贸稳定局面，中方坚决反对，如何解读？](http://www.play.hengshemaoyi.cn/kongbu/3268208.htm)
-- [高校鸭子被撞死司机道歉](http://www.play.hengshemaoyi.cn/kongbu/0525872.htm)
-- [樊振东vs约内斯库](http://www.play.hengshemaoyi.cn/kongbu/3907054.htm)
-- [美国封住号码资源入口有何影响](http://www.daogukj.com/immmcdpl/)
-- [纳指跌超5%，英伟达跌14%，BTC跌破6万美元，黄金濒临3500美元，本轮跨市场金融冲击何时止？](http://www.daogukj.com/cudoryjd/)
-- [如何评价《斗破苍穹剧场版：双帝之战》？](http://www.movie.hkepx.cn/xiju/5435793.htm)
-- [为什么现在90后，00后年轻人不再给领导提供情绪价值了？](http://www.daogukj.com/7199504)
-- [【BLG夺冠VLOG】这是属于我们的冠军记忆](http://www.movie.hkepx.cn/xiju/2980488.htm)
-- [日媒逐帧解析高市早苗遭特朗普无视，直呼耻辱，为何日本对此如此破防？反映了日本舆论对日美互动怎样的心态？](http://www.daogukj.com/6407743)
-- [“防非反诈”系列条漫](http://www.daogukj.com/2117875)
-- [古代从南京跑到北京十五天够用吗](http://www.play.hengshemaoyi.cn/xiju/5776596.htm)
-- [“神仙岗位”涌现 广东多地辟谣](http://www.movie.hkepx.cn/movie/1934338.htm)
-- [《无限暖暖》3.0版本PV｜昨日之城，明日之声](http://www.play.hengshemaoyi.cn/xiju/5489202.htm)
-- [《520AM》司凤版⚡思罢吗乐队激情演奏！小时候这集听哭了😭【AI MV大赛】](http://www.movie.hkepx.cn/xiju/8773959.htm)
-- [《GTA 6》：完美劫案（没惊动警察，也没触发警报）](http://www.movie.hkepx.cn/xiju/0337841.htm)
-- [央视主持人录节目假牙丢了](http://www.movie.hkepx.cn/movie/9024789.htm)
-- [【大虾沉浸式试车】首次量产折叠方向盘？！方程豹钛9 折叠智舱版👉快来快来～带你沉浸式体验！](http://www.play.hengshemaoyi.cn/xiju/0811131.htm)
-- [韩国网友感谢中国](http://www.daogukj.com/9668698)
-- [医生回应男子每天3瓶果汁几近失明](http://www.play.hengshemaoyi.cn/xiju/2169319.htm)
-- [A股利好来了 三箭齐发](http://www.daogukj.com/3876959)
+- [冬天最好的养生就是多睡觉](http://www.daogukj.com/zjpmceko/)
+- [【一百万字·01】我只剩300个字了，说一个少一个｜文字动画《嗯》](http://www.play.hengshemaoyi.cn/xiju/6169098.htm)
+- [曝 ShowMaker 宁愿大幅度降薪也希望留在 DK，如何评价他的选择？DK 目前情况有多糟？](http://www.movie.hkepx.cn/xiju/0248646.htm)
+- [特朗普连发30多张照片回味APEC](http://www.daogukj.com/8328518)
+- [最完美的食物](http://www.play.hengshemaoyi.cn/xiju/8682512.htm)
+- [如何看待A股近期调整](http://www.play.hengshemaoyi.cn/kongbu/6784091.htm)
+- [2026亚太最具影响力青年男性TOP100](http://www.daogukj.com/kcmcfwfy/)
+- [古代从南京跑到北京十五天够用吗](http://www.daogukj.com/pqcczpwj/)
+- [【星穹铁道HoYoFair】「红丝绒星期五」正式预告片 | 史上最棒的预告片](http://www.movie.hkepx.cn/xiju/5113891.htm)
+- [荔枝冰酒爆单 厂家忙到没空招人](http://www.play.hengshemaoyi.cn/kongbu/6074356.htm)
+- [“防非反诈”系列条漫](http://www.play.hengshemaoyi.cn/xiju/7952053.htm)
+- [日媒逐帧解析特朗普无视高市](http://www.movie.hkepx.cn/movie/9150107.htm)
+- [七个葫芦娃姐姐出嫁七兄弟送嫁](http://www.movie.hkepx.cn/movie/7359364.htm)
+- [炒蔬菜的底层逻辑：4种方法搞定99%的蔬菜？](http://www.movie.hkepx.cn/xiju/0518845.htm)
+- [小区277户只有约100家一直交物业费](http://www.play.hengshemaoyi.cn/kongbu/9268198.htm)
+- [去世到安葬不超24小时？山东一地回应](http://www.play.hengshemaoyi.cn/kongbu/3268208.htm)
+- [怎样从晚起半小时到真正睡得好](http://www.play.hengshemaoyi.cn/kongbu/0525872.htm)
+- [诈骗话术手册写逼死客户一个不留](http://www.play.hengshemaoyi.cn/kongbu/3907054.htm)
+- [特朗普连发30多张照片盛赞APEC](http://www.daogukj.com/immmcdpl/)
+- [菲律宾8名警察绑架中国女富商](http://www.daogukj.com/cudoryjd/)
+- [韦东奕再获奖](http://www.movie.hkepx.cn/xiju/5435793.htm)
+- [特朗普回应普京是朋友](http://www.daogukj.com/7199504)
+- [交易所打出稳市「组合拳」，沪深北交易所降低融资保证金比例下限至 80%，意味着什么？释放了哪些信号？](http://www.movie.hkepx.cn/xiju/2980488.htm)
+- [女博士卧底6个月当主播仍有心理阴影](http://www.daogukj.com/6407743)
+- [主播糟蹋千斤苹果仅赔6000元](http://www.daogukj.com/2117875)
+- [朱一龙赵丽颖顶峰相见](http://www.play.hengshemaoyi.cn/xiju/5776596.htm)
+- [【凡人修仙传】边界之战即将开启！【PV】](http://www.movie.hkepx.cn/movie/1934338.htm)
+- [如何评价《侠盗猎车手 VI》（GTA 6）的结局？](http://www.play.hengshemaoyi.cn/xiju/5489202.htm)
+- [同样是蛋白质，为什么提倡喝牛奶而不是吃鸡蛋?](http://www.movie.hkepx.cn/xiju/8773959.htm)
+- [如何评价《斗破苍穹剧场版：双帝之战》？](http://www.movie.hkepx.cn/xiju/0337841.htm)
+- [樊振东1比3约内斯库](http://www.movie.hkepx.cn/movie/9024789.htm)
+- [如何看待女子嫌老公熬夜打游戏，发「追杀令」求助网友狙击老公ID，其老公称「你们找不到我」被玩家围剿？](http://www.play.hengshemaoyi.cn/xiju/0811131.htm)
+- [做饭前一个改变 血压炎症指标降了](http://www.daogukj.com/9668698)
+- [【STN快报第8.5季28】不要小看一个老实本分的家政精英，他可能是GTA的超级大盗](http://www.play.hengshemaoyi.cn/xiju/2169319.htm)
+- [曾经主角团最边缘的一个，为啥如今却成了互联网的神？](http://www.daogukj.com/3876959)
 
 </details>
 
 ## 原始来源
 
-- [怎样从晚起半小时到真正睡得好](https://www.baidu.com/s?wd=%E6%80%8E%E6%A0%B7%E4%BB%8E%E6%99%9A%E8%B5%B7%E5%8D%8A%E5%B0%8F%E6%97%B6%E5%88%B0%E7%9C%9F%E6%AD%A3%E7%9D%A1%E5%BE%97%E5%A5%BD&sa=fyb_news&rsv_dl=fyb_news)
+- [小时候眼中的罚抄神器be like:](https://b23.tv/BV1LjyWzREC1)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 7c974462433425f5e20b -->
+<!-- content-fingerprint: 35dcfb662a6b80e83ab2 -->
