@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 小雪时节建议多吃这几种食物
+# 医生回应男子每天3瓶果汁几近失明
 
-> 来源：今日头条热榜 · 排名：第 17 位 · 热度：430380 · 分类：新事件上榜 · 更新：2026-11-22T16:50:39+08:00
+> 来源：百度热搜 · 排名：第 16 位 · 热度：6273023 · 更新：2026-11-23T00:43:17+08:00
 
 ## 热点正文
 
-根据今日头条热榜当前公开榜单，“小雪时节建议多吃这几种食物”位列第 17 位，公开热度指标为 430380，榜单分类为“新事件上榜”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据百度热搜当前公开榜单，“医生回应男子每天3瓶果汁几近失明”位列第 16 位，公开热度指标为 6273023。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
+来源公开摘要显示：广东佛山陈先生一天3瓶“纯果汁”喝出糖足，甚至面临失明风险。医院多科室联合治疗，尽全力保住其视力和足部功能，陈先生身体目前正在慢慢恢复。医生提醒少喝果汁，优选新鲜水果。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`今日头条热榜` `实时热搜` `热点资讯` `新事件上榜`
+`百度热搜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [顺丰速运涉嫌存在违规问题，被暂停参加全军采购活动，具体是怎么回事？](wang-yang-bu-lao.md)
-- [侠盗猎车手6 第一集，GTA 6 Part 1](xuan-liang-ci-gu.md)
-- [狗狗舔宝宝脚丫后确诊真菌感染](zao-bi-tou-guang.md)
-- [王子璇给青稚送捏捏](nang-ying-ying-xue.md)
+- [张元英被外网批抢liz的C位](wang-yang-bu-lao.md)
+- [韦东奕再获奖](xuan-liang-ci-gu.md)
+- [曝 ShowMaker 宁愿大幅度降薪也希望留在 DK，如何评价他的选择？DK 目前情况有多糟？](zao-bi-tou-guang.md)
+- [真相，假是假了点，但看了不烧心。](nang-ying-ying-xue.md)
 
 ## 站内推荐
 
-- [10月份工业经济总体平稳](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
-- [特斯拉FSD实景界面很炫](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
-- [英皇到底亏了多少陈伟霆要穿成这样](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
-- [余文乐自曝躯体化严重到不能开车](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
-- [57岁窦唯被曝四婚](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
+- [智能穿戴打开消费新空间](https://github.com/vlo808155/hua-she-tian-zu/blob/main/shi-quan-shi-mei.md)
+- [荔枝冰酒爆单 厂家忙到没空招人](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/fu-jing-qing-zui.md)
+- [“神仙岗位”涌现 广东多地辟谣](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/hu-jia-hu-wei.md)
+- [深圳水贝商家800元囤货770元出](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/ju-yi-fan-san.md)
+- [2026亚太最具影响力青年男性TOP100](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/bie-ju-jiang-xin.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [50岁女车迷穿马面裙支持张雪机车](http://www.movie.hkepx.cn/xiju/4248389.htm)
-- [菲总统：APEC会议中国接待非常好](http://www.daogukj.com/8479586)
-- [张雪回应出门就摔车：腿短撑不到地](http://www.movie.hkepx.cn/xiju/6912788.htm)
-- [MIT 团队发布对黎曼猜想证明的验证，超 17 万模块全部编译无错，这意味着黎曼猜想证明多大概率为真？](http://www.movie.hkepx.cn/movie/7872338.htm)
-- [后劲太大 特朗普连发30多张APEC照片](http://www.play.hengshemaoyi.cn/xiju/9839884.htm)
-- [于东来：保洁员都能拿6000元](http://www.play.hengshemaoyi.cn/xiju/1600527.htm)
-- [男子隐瞒已婚装富豪骗5女子54万](http://www.movie.hkepx.cn/movie/5531579.htm)
-- [后面的初三都要打起来了](http://www.daogukj.com/3390513)
-- [10月份工业经济总体平稳](http://www.daogukj.com/6886049)
-- [《蓝色星原：旅谣》公测动画短片](http://www.movie.hkepx.cn/xiju/1482774.htm)
-- [美国歌手的衣服在雨中像纸一样融化了](http://www.daogukj.com/9420831)
-- [贾国龙新创品牌「天边」一年内从砂锅焖面转向冰煮鲜羊，频繁调整经营方向背后有哪些考量？他能翻身吗？](http://www.play.hengshemaoyi.cn/kongbu/5724095.htm)
-- [张雪透露针对外卖骑手的电摩明年出](http://www.play.hengshemaoyi.cn/kongbu/1788236.htm)
-- [如何评价华为星芒 O1 Pro 定价 5499 元起引争议，总经理刘赫回应称“我们选择创新优先”？](http://www.daogukj.com/5545756)
-- [特朗普回应深圳乘车时不拉窗帘](http://www.movie.hkepx.cn/movie/5270539.htm)
-- [«战双帕弥什»「卡俄斯」实机演示](http://www.daogukj.com/3116329)
-- [【合集】人类消失后，深度思考三百年的大肥鱼](http://www.play.hengshemaoyi.cn/xiju/9707342.htm)
-- [《无限暖暖》3.0版本套装PV | 若见沐光之窗&于此重见繁星](http://www.movie.hkepx.cn/xiju/0541259.htm)
-- [特朗普：愿联手民主党限制信用卡利率](http://www.movie.hkepx.cn/xiju/2275697.htm)
-- [英皇到底亏了多少陈伟霆要穿成这样](http://www.play.hengshemaoyi.cn/xiju/6577034.htm)
-- [余文乐自曝躯体化严重到不能开车](http://www.movie.hkepx.cn/xiju/4577281.htm)
-- [豆包被国产大车外观难倒](http://www.movie.hkepx.cn/xiju/2665258.htm)
-- [《猫富贵 狗不让》](http://www.daogukj.com/5555418)
-- [又一道千禧难题被Claude证明](http://www.play.hengshemaoyi.cn/xiju/3747188.htm)
-- [71岁周润发“跑山”轻松完赛](http://www.daogukj.com/6942144)
-- [演唱会突发观众冲台 王力宏与其击掌](http://www.movie.hkepx.cn/movie/5277782.htm)
-- [【BLG庆功饭堂夜】冠军之路，感谢有你！（直播全程回放）](http://www.movie.hkepx.cn/movie/8593003.htm)
-- [方力申破世界纪录](http://www.daogukj.com/8549389)
-- [纳指跌超5%，英伟达跌14%，BTC跌破6万美元，黄金溃临3500美元，本轮跨市场金融冲击何时止？](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
-- [“状元”自首 韩国已人人自危](http://www.movie.hkepx.cn/movie/3709798.htm)
-- [文吉儿 网剧](http://www.daogukj.com/bybxufrl/)
-- [张雪机车周边要来了](http://www.play.hengshemaoyi.cn/kongbu/3402530.htm)
-- [《明日方舟：终末地》干员影像-「群像：信号预联」](http://www.play.hengshemaoyi.cn/kongbu/9522548.htm)
-- [怎么看陶哲轩博客下针对 AI 完成黎曼猜想评论：数学变成 F1 赛车，不进 AI 车队都看不到后尾灯？](http://www.daogukj.com/8485976)
-- [女博士卧底当主播称至今心理阴影](http://www.movie.hkepx.cn/movie/7956729.htm)
-- [听说你们想看我当维密天使？！](http://www.daogukj.com/ipvwmaiv/)
+- [黄金这波暴跌割了谁的韭菜](http://www.movie.hkepx.cn/xiju/4248389.htm)
+- [张雪出价300万拍下自己的冠军赛车](http://www.daogukj.com/8479586)
+- [不要自学韦伯斯特了！](http://www.movie.hkepx.cn/xiju/6912788.htm)
+- [美国封住号码资源入口有何影响](http://www.movie.hkepx.cn/movie/7872338.htm)
+- [A股利好来了 三箭齐发](http://www.play.hengshemaoyi.cn/xiju/9839884.htm)
+- [日媒逐帧解析特朗普无视高市](http://www.play.hengshemaoyi.cn/xiju/1600527.htm)
+- [张雪险掉下车大喊要扣德比斯工资](http://www.movie.hkepx.cn/movie/5531579.htm)
+- [《多喜一家人》太烧心了](http://www.daogukj.com/3390513)
+- [智能穿戴打开消费新空间](http://www.daogukj.com/6886049)
+- [考公务员很难，但是为人民服务却很容易！](http://www.movie.hkepx.cn/xiju/1482774.htm)
+- [“我只是死在了讨厌的生活里”「烂奇迹·章鱼哥」](http://www.daogukj.com/9420831)
+- [七个葫芦娃姐姐出嫁七兄弟送嫁](http://www.play.hengshemaoyi.cn/kongbu/5724095.htm)
+- [“兄台”的“台”到底是什么台](http://www.play.hengshemaoyi.cn/kongbu/1788236.htm)
+- [同样是蛋白质，为什么提倡喝牛奶而不是吃鸡蛋?](http://www.daogukj.com/5545756)
+- [血压这个区间不再视作接近正常](http://www.movie.hkepx.cn/movie/5270539.htm)
+- [人能控制自己的长相吗？](http://www.daogukj.com/3116329)
+- [主播私闯果园糟蹋千斤苹果仅愿赔6千元](http://www.play.hengshemaoyi.cn/xiju/9707342.htm)
+- [600块吃好喝好玩好 年轻人羡慕疯了](http://www.movie.hkepx.cn/xiju/0541259.htm)
+- [童家堡 白小纯身体不适](http://www.movie.hkepx.cn/xiju/2275697.htm)
+- [“神仙岗位”涌现 广东多地辟谣](http://www.play.hengshemaoyi.cn/xiju/6577034.htm)
+- [深圳水贝商家800元囤货770元出](http://www.movie.hkepx.cn/xiju/4577281.htm)
+- [非正常人物志——哥伦布](http://www.movie.hkepx.cn/xiju/2665258.htm)
+- [《无限暖暖》3.0版本PV｜昨日之城，明日之声](http://www.daogukj.com/5555418)
+- [为什么你会间接性看不惯身边的朋友？](http://www.play.hengshemaoyi.cn/xiju/3747188.htm)
+- [有人说搞南水北调不如搞海水淡化，你是否同意？](http://www.daogukj.com/6942144)
+- [炒蔬菜的底层逻辑：4种方法搞定99%的蔬菜？](http://www.movie.hkepx.cn/movie/5277782.htm)
+- [网友称在父母面前切换成「无性别低智儿童」，被问到工作、婚恋话题都说「不知道」，为啥要这样？这招管用吗？](http://www.movie.hkepx.cn/movie/8593003.htm)
+- [主播糟蹋千斤苹果仅赔6000元](http://www.daogukj.com/8549389)
+- [孙芮后援会关站](http://www.play.hengshemaoyi.cn/xiju/9116388.htm)
+- [当我用AI续写爱情公寓4关谷悠悠婚礼【AI全民制作人】](http://www.movie.hkepx.cn/movie/3709798.htm)
+- [《明日方舟：终末地》干员影像-「群像：信号预联」](http://www.daogukj.com/bybxufrl/)
+- [樊振东vs约内斯库](http://www.play.hengshemaoyi.cn/kongbu/3402530.htm)
+- [小区277户只有约100家一直交物业费](http://www.play.hengshemaoyi.cn/kongbu/9522548.htm)
+- [青稚直播](http://www.daogukj.com/8485976)
+- [建议焦虑的人听听这段话](http://www.movie.hkepx.cn/movie/7956729.htm)
+- [为什么现在90后，00后年轻人不再给领导提供情绪价值了？](http://www.daogukj.com/ipvwmaiv/)
 - [【独家】牧神记 第110集 诡异冥谷](http://www.play.hengshemaoyi.cn/kongbu/7538769.htm)
-- [曝杨紫李现三搭《漫长的余生》](http://www.movie.hkepx.cn/xiju/3982276.htm)
-- [Lean与 Mathlib 社区联合声明，正式确认 Alpöge 对黎曼猜想的证明正确，这意味着什么？](http://www.movie.hkepx.cn/xiju/0351825.htm)
-- [真相，假是假了点，但看了不烧心。](http://www.movie.hkepx.cn/movie/9051024.htm)
-- [商务部回应美拟禁止中国运营商获取电话号码资源，称相关做法破坏中美经贸稳定局面，中方坚决反对，如何解读？](http://www.movie.hkepx.cn/movie/1479042.htm)
-- [下周黄金扛得住吗](http://www.movie.hkepx.cn/xiju/7703550.htm)
-- [特朗普连发30多张照片回味APEC](http://www.play.hengshemaoyi.cn/xiju/4193543.htm)
-- [【星穹铁道HoYoFair】「红丝绒星期五」正式预告片 | 史上最棒的预告片](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
-- [温差待消弭信心不可失](http://www.daogukj.com/jzemyffu/)
-- [侠盗猎车手6 第一集，GTA 6 Part 1](http://www.movie.hkepx.cn/movie/7933914.htm)
-- [2026赛季F1拉斯维加斯大奖赛，维斯塔潘夺冠，迈凯伦2-3，法拉利车手再度内斗，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/3481756.htm)
-- [挑战用第三人称逛商场](http://www.daogukj.com/0746616)
-- [狗狗舔宝宝脚丫后确诊真菌感染](http://www.play.hengshemaoyi.cn/kongbu/7714631.htm)
-- [《我救不死你》](http://www.movie.hkepx.cn/movie/4117269.htm)
+- [为什么看完AI短剧以后，就看不进真人演的剧呢？](http://www.movie.hkepx.cn/xiju/3982276.htm)
+- [【BLG夺冠VLOG】这是属于我们的冠军记忆](http://www.movie.hkepx.cn/xiju/0351825.htm)
+- [AI 宣称证明黎曼猜想后，数学家又公开了一份完全不使用 AI 的广义黎曼猜想证明，如何看待？](http://www.movie.hkepx.cn/movie/9051024.htm)
+- [长安大学回应「14日面试13日出结果」，公告误带后台草稿的创建日期，三名人事干部被处分，如何看待此事？](http://www.movie.hkepx.cn/movie/1479042.htm)
+- [天霸巅峰挑战赛总决赛冠军](http://www.movie.hkepx.cn/xiju/7703550.htm)
+- [交易所打出稳市「组合拳」，沪深北交易所降低融资保证金比例下限至 80%，意味着什么？释放了哪些信号？](http://www.play.hengshemaoyi.cn/xiju/4193543.htm)
+- [日媒逐帧解析高市早苗遭特朗普无视，直呼耻辱，为何日本对此如此破防？反映了日本舆论对日美互动怎样的心态？](http://www.play.hengshemaoyi.cn/kongbu/0847996.htm)
+- [本周这些数据值得关注](http://www.daogukj.com/jzemyffu/)
+- [韦东奕再获奖](http://www.movie.hkepx.cn/movie/7933914.htm)
+- [去世到安葬不超24小时？山东一地回应](http://www.play.hengshemaoyi.cn/xiju/3481756.htm)
+- [“防非反诈”系列条漫](http://www.daogukj.com/0746616)
+- [曝 ShowMaker 宁愿大幅度降薪也希望留在 DK，如何评价他的选择？DK 目前情况有多糟？](http://www.play.hengshemaoyi.cn/kongbu/7714631.htm)
+- [《520AM》司凤版⚡思罢吗乐队激情演奏！小时候这集听哭了😭【AI MV大赛】](http://www.movie.hkepx.cn/movie/4117269.htm)
 
 </details>
 
 ## 原始来源
 
-- [小雪时节建议多吃这几种食物](https://www.toutiao.com/trending/7710611664945414195/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%229%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227710611664945414195%22%2C%22hot_board_impr_id%22%3A%2220261122165036BFA069AD4A2930A11D09%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
+- [医生回应男子每天3瓶果汁几近失明](https://www.baidu.com/s?wd=%E5%8C%BB%E7%94%9F%E5%9B%9E%E5%BA%94%E7%94%B7%E5%AD%90%E6%AF%8F%E5%A4%A93%E7%93%B6%E6%9E%9C%E6%B1%81%E5%87%A0%E8%BF%91%E5%A4%B1%E6%98%8E&sa=fyb_news&rsv_dl=fyb_news)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 0e452d2f5024247b37fa -->
+<!-- content-fingerprint: 0b550e0eaaae10ceae42 -->
