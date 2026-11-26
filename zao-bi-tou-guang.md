@@ -1,98 +1,98 @@
 [热点索引](README.md)
 
-# 厦航年利润7亿人民币，现在却突然订了74亿美元波音飞机，相当70 年利润，这笔账风险落在谁身上？
+# 张靓颖演唱会舞台换装炸场
 
-> 来源：知乎热榜 · 排名：第 13 位 · 热度：175 万热度 · 分类：问答 · 更新：2026-11-26T20:12:11+08:00
+> 来源：今日头条热榜 · 排名：第 13 位 · 热度：3717370 · 更新：2026-11-27T05:29:21+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“厦航年利润7亿人民币，现在却突然订了74亿美元波音飞机，相当70 年利润，这笔账风险落在谁身上？”位列第 13 位，公开热度指标为 175 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据今日头条热榜当前公开榜单，“张靓颖演唱会舞台换装炸场”位列第 13 位，公开热度指标为 3717370。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：厦航2025年7.79亿元，现在突然订购50架波音737-8，目录价74亿美元，相当于以后70年全部利润 1. 全部交付后年折旧额估算高达12亿-19亿人民币，直接是当前净利润的2倍多。这还没算贷款利息和运营成本。 2. 目前厦航有息负债已达约307亿元，2022—2024年筹资现金流净额均为负，处于持续净还债状态。在利润薄、旧债未清时，再添几百亿购机融资，风险谁买单？ 3. 大笔投资买波音飞机的利润增长计划有数字吗？ 公告只有“转场机遇、完善网络”，无增量收入、利润、回收期测算。最终谁买单？ 是不是经营现金流加银行债权人，股东和国有资本兜底？
+今日头条热榜本次榜单数据只提供了热点标题和热度信息，没有提供可独立发布的完整正文。本页因此保留来源边界，不根据标题补写未经证实的时间、人物、地点或事件经过。
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
 ## 相关标签
 
-`知乎热榜` `实时热搜` `热点资讯` `问答`
+`今日头条热榜` `实时热搜` `热点资讯`
 
 ## 相关热点
 
-- [【立志成为恶兽】09 护送富贵进城【UP动画】](nang-ying-ying-xue.md)
-- [妻子：蔡磊做的事对家庭是毁灭的](cheng-men-li-xue.md)
-- [终于知道陈赫为什么会爱上张子萱了](shou-bu-shi-juan.md)
-- [普京留下伏特加做深圳酒店回礼](xue-fu-wu-che.md)
+- [如何看待网警通报有人针对华为、鸿蒙、问界发布数百条不实评论，捏造“千亿营销”虚假信息被行政处罚？](nang-ying-ying-xue.md)
+- [大肥鱼你真的是串麻了](cheng-men-li-xue.md)
+- [郭士强 换人](shou-bu-shi-juan.md)
+- [胡明轩 中国男篮](xue-fu-wu-che.md)
 
 ## 站内推荐
 
-- [网红甲亢哥百米跑出 10.35 秒，前 15 米加速度比博尔特还快，这一成绩含金量如何？](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [市民花 750 元为空调移机，5 年后拆机才发现铜管被换成铝管，铜管和铝管有啥不同？还能维权吗？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
-- [曝梁文锋身家攀升至 550 亿美元，成全球最富 AI 模型创始人，是真的吗？意味着什么？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [S16BLG一串四LCK夺冠，和S13T1一串四LPL夺冠哪个含金量更高？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [如何看待网警通报有人针对华为、鸿蒙、问界发布数百条不实评论，捏造“千亿营销”虚假信息被行政处罚？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [一组数据看世界屋脊上的中国速度](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [中方要求菲方拖走非法坐滩军舰](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [重庆小升初有内部选拔？不实](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
+- [高市早苗获颁最佳着装奖遭群嘲](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [网飞版《三体》第二季预告曝光，定档 2027 年 1 月 14 日，你在本季里最期待看到哪些内容？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [立陶宛敦促台当局认错](http://www.movie.hkepx.cn/movie/7696059.htm)
-- [LV音乐会嘉宾阵容](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
-- [官方通报“86页PDF举报女教授”](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
-- [Intel在CPU上似乎对AMD实现了性能和市占率上的再次压制？发生什么了？](http://www.daogukj.com/xbqcnyun/)
-- [武大通报：教师曾某某被免职](http://www.daogukj.com/3076909)
-- [系统bug强制让我挂机，但这反而让我变的更强了！](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
-- [重庆小升初有内部选拔？不实](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
-- [S16BLG一串四LCK夺冠，和S13T1一串四LPL夺冠哪个含金量更高？](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
-- [《不小心捡了只猫咪》](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
-- [人才缺口超百万！又一批新职业来了](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
-- [王兴兴：5-10年内机器人产量或超汽车](http://www.daogukj.com/7832374)
-- [向华强不允许女儿来见他](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
-- [如何看待普京在深圳下榻期间喜欢上酒店粤菜，离店前还特意打包带上飞机？](http://www.movie.hkepx.cn/movie/5380543.htm)
-- [中宣部原副部长蔡赴朝被开除党籍](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
-- [如何看待网警通报有人针对华为、鸿蒙、问界发布数百条不实评论，捏造“千亿营销”虚假信息被行政处罚？](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
-- [普京留下伏特加做深圳酒店回礼](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
-- [如果一个月给你8000，但办公室永远只有你一个人，连说话的人都没有，你能坚持多久？](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
-- [秦岭遇难驴友家属起诉救援队](http://www.daogukj.com/whdogfom/)
-- [厉娜预判了网友的预判](http://www.daogukj.com/owjemlxs/)
-- [他逃，他追，他插翅难飞？！](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
-- [【立志成为恶兽】09 护送富贵进城【UP动画】](http://www.movie.hkepx.cn/xiju/8272307.htm)
-- [特朗普与民主党抽象乱斗](http://www.movie.hkepx.cn/xiju/5503803.htm)
-- [吴 众](http://www.movie.hkepx.cn/movie/5517829.htm)
-- [曝梁文锋身家攀升至 550 亿美元，成全球最富 AI 模型创始人，是真的吗？意味着什么？](http://www.daogukj.com/kfcenimf/)
-- [为什么烧烤店要用铁签子？客人要求打包怎么办？](http://www.movie.hkepx.cn/xiju/1284306.htm)
-- [考研政治一页纸（3小时速成选择40+）](http://www.movie.hkepx.cn/movie/9628674.htm)
-- [武大教师曾某某被举报事件调查结果](http://www.daogukj.com/1857926)
-- [全球死考火出圈](http://www.daogukj.com/dauszqqt/)
-- [小伙给去世女友发“我来了”后失联](http://www.movie.hkepx.cn/movie/0907691.htm)
-- [“钱已经退了 组织查下来也没事”](http://www.daogukj.com/5817227)
-- [“说好的一起穿裙子呢？！”](http://www.daogukj.com/wotljoso/)
-- [中国航天第9次太空会师纪实](http://www.daogukj.com/8049323)
-- [男子9年前心梗放支架如今又堵死](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
-- [长得帅就要被网爆么?](http://www.movie.hkepx.cn/xiju/0261792.htm)
-- [欧盟落地混动进口临时配额，中国对应配额为 19.18 万辆，国内混动出口车企该如何应对这一限制？](http://www.movie.hkepx.cn/movie/6726833.htm)
-- [大小姐驾到《千问GO》！](http://www.movie.hkepx.cn/xiju/1828380.htm)
-- [如何评价《后会友期》中许飞厉娜「画地为牢」名场面完整版？](http://www.movie.hkepx.cn/xiju/1222939.htm)
-- [文吉儿 基金会](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
-- [长城推进大电量HEV能扳回一局吗](http://www.daogukj.com/2594309)
-- [王楚然 美成这种程度的我只想下跪](http://www.daogukj.com/qdasdjom/)
-- [市民花 750 元为空调移机，5 年后拆机才发现铜管被换成铝管，铜管和铝管有啥不同？还能维权吗？](http://www.daogukj.com/3136388)
-- [被AI融脸后永远删不干净](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
-- [网红甲亢哥百米跑出 10.35 秒，前 15 米加速度比博尔特还快，这一成绩含金量如何？](http://www.daogukj.com/4275576)
-- [周杰伦转发中国台北帖文绿媒破防](http://www.daogukj.com/lpknevub/)
-- [向太自曝弟弟妹妹相继烧炭离世](http://www.daogukj.com/3012939)
-- [【三国杀周年庆前瞻】神奇黄豆年来袭！冥赵云首发！版本内容抢先看！](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
-- [【纪录片】人生一串 第四季 04 边城浪子](http://www.movie.hkepx.cn/xiju/9870181.htm)
-- [中国神华股价创19年新高](http://www.movie.hkepx.cn/movie/2656535.htm)
-- [俄空天军副总司令被捕](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
-- [家人们，我被猪拱了！！！](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
+- [哪个大学没名气但某领域顶尖](http://www.movie.hkepx.cn/movie/7696059.htm)
+- [PEL竞男不知情被拍](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
+- [企业学习胖东来员工涨薪45%](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
+- [斗鱼及陈少杰被执行超 1.9 亿，从巅峰到接连踩雷，斗鱼这些年衰落的核心原因是什么？](http://www.daogukj.com/xbqcnyun/)
+- [「第一人称」真实的《西游记》有多恐怖？【AI全民制作人】](http://www.daogukj.com/3076909)
+- [男篮世预赛，中国男篮80-82 不敌沙特阿拉伯男篮，出线形式堪忧，如何评价本场比赛？](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
+- [怀孕本质是你一个人的事](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
+- [高市早苗获颁最佳着装奖遭群嘲](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
+- [什么样的男孩子长大了最有出息？](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
+- [【蓝色星原】公测版本 这些角色必练！角色强度榜+各体系队伍搭配+养成+操作详解](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
+- [研究：咖啡加牛奶抗炎效果或翻倍](http://www.daogukj.com/7832374)
+- [警方通报3人可可西里失联被找到](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
+- [新郎发言落泪 新娘大喊不要哭冷死了](http://www.movie.hkepx.cn/movie/5380543.htm)
+- [武大通报：教师曾某某被免职](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
+- [网飞版《三体》第二季预告曝光，定档 2027 年 1 月 14 日，你在本季里最期待看到哪些内容？](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
+- [胡明轩 中国男篮](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
+- [75岁正部级蔡赴朝被开除党籍](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
+- [印度豪华婚宴变“抢饭现场”](http://www.daogukj.com/whdogfom/)
+- [车卖疯了 钱去哪了](http://www.daogukj.com/owjemlxs/)
+- [我把Steam复刻搬进了B站游玩Toy【点击即玩】ToyToy【B站AI创造公开赛】](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
+- [如何看待网警通报有人针对华为、鸿蒙、问界发布数百条不实评论，捏造“千亿营销”虚假信息被行政处罚？](http://www.movie.hkepx.cn/xiju/8272307.htm)
+- [厦航年利润7亿人民币，现在却突然订了74亿美元波音飞机，相当70 年利润，这笔账风险落在谁身上？](http://www.movie.hkepx.cn/xiju/5503803.htm)
+- [高中生武术比赛滑倒尝试鲤鱼打挺失败仍获亚军，官方称仅 3 人参赛无违规，该结果是否合理？](http://www.movie.hkepx.cn/movie/5517829.htm)
+- [重庆小升初有内部选拔？不实](http://www.daogukj.com/kfcenimf/)
+- [俄空天军副总司令被捕](http://www.movie.hkepx.cn/xiju/1284306.htm)
+- [如何评价极客湾发布的手机影像大横评视频？](http://www.movie.hkepx.cn/movie/9628674.htm)
+- [三只松鼠致歉声明](http://www.daogukj.com/1857926)
+- [武汉大学](http://www.daogukj.com/dauszqqt/)
+- [出生我妈就跑了，9岁我爸也死了，且我还没身份证，长期靠打黑工度日](http://www.movie.hkepx.cn/movie/0907691.htm)
+- [《我怎么又穿越了》](http://www.daogukj.com/5817227)
+- [《英雄联盟电竞经理》宣布将于 27 年 1 月份停服，如何评价这款游戏的运营历程？](http://www.daogukj.com/wotljoso/)
+- [从世界经济版图看中国经济之韧](http://www.daogukj.com/8049323)
+- [小学校长常年带六年级数学课](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
+- [两地通报女教授介入已婚副校长家庭事件，安大副校长付某、武大曾某某被免职，有哪些值得关注的信息？](http://www.movie.hkepx.cn/xiju/0261792.htm)
+- [网红甲亢哥百米跑出 10.35 秒，前 15 米加速度比博尔特还快，这一成绩含金量如何？](http://www.movie.hkepx.cn/movie/6726833.htm)
+- [如何评价蓝色星原不在地铁站投放广告反而雇人发传单？是降本增效还是新的游戏营销方式？](http://www.movie.hkepx.cn/xiju/1828380.htm)
+- [全球首个乙肝功能性治愈新药中国获批](http://www.movie.hkepx.cn/xiju/1222939.htm)
+- [越南直播卖货太抽象了](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
+- [U17国足8比0斐济](http://www.daogukj.com/2594309)
+- [U17国足vs斐济U17](http://www.daogukj.com/qdasdjom/)
+- [中方要求菲方拖走非法坐滩军舰](http://www.daogukj.com/3136388)
+- [“MJ宇宙之最正能量的一集”](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
+- [一组数据看世界屋脊上的中国速度](http://www.daogukj.com/4275576)
+- [湖北一网民微信群内造谣被处罚](http://www.daogukj.com/lpknevub/)
+- [三只松鼠员工必须用鼠取名](http://www.daogukj.com/3012939)
+- [业主搜索发现有 WiFi 名诅咒自家 8 岁孩子，怀疑是楼下邻居所为，该如何合法维权？](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
+- [U17世界杯男足小组赛，中国U17男足 8-0 斐济U17男足，如何评价本场比赛？](http://www.movie.hkepx.cn/xiju/9870181.htm)
+- [东北老丈人搭大炕全村围观](http://www.movie.hkepx.cn/movie/2656535.htm)
+- [153分钟超长大合集！【末日来临，我从吃丧尸开始成神！】第1季+第2季完整版【AI全民制作人】](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
+- [网友爆料小米YU7车型前视摄像头集中故障，行车录像无法录制，前向防碰撞失效，是批次质量问题吗？](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
 
 </details>
 
 ## 原始来源
 
-- [厦航年利润7亿人民币，现在却突然订了74亿美元波音飞机，相当70 年利润，这笔账风险落在谁身上？](https://www.zhihu.com/question/2108699823377589259)
+- [张靓颖演唱会舞台换装炸场](https://www.toutiao.com/trending/7712367302452494372/?category_name=topic_innerflow&event_type=hot_board&log_pb=%7B%22category_name%22%3A%22topic_innerflow%22%2C%22cluster_type%22%3A%229%22%2C%22enter_from%22%3A%22click_category%22%2C%22entrance_hotspot%22%3A%22outside%22%2C%22event_type%22%3A%22hot_board%22%2C%22hot_board_cluster_id%22%3A%227712367302452494372%22%2C%22hot_board_impr_id%22%3A%2220261127052920634CF2BD432293D1A22A%22%2C%22jump_page%22%3A%22hot_board_page%22%2C%22location%22%3A%22n)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: bb03b07ef7e64f842550 -->
+<!-- content-fingerprint: 109c65fe72995407e8dc -->
