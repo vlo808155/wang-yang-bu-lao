@@ -1,14 +1,14 @@
 [热点索引](README.md)
 
-# 梁靖崑将赴俄超打球，怎样看待他的选择？对他职业生涯发展有哪些影响？
+# 模特七海发博表示 「我的脸已经成 AI 短剧里的赛博恶役」，AI 融脸为什么维权难？
 
-> 来源：知乎热榜 · 排名：第 13 位 · 热度：243 万热度 · 分类：问答 · 更新：2026-11-28T20:27:44+08:00
+> 来源：知乎热榜 · 排名：第 13 位 · 热度：73 万热度 · 分类：问答 · 更新：2026-11-29T04:29:49+08:00
 
 ## 热点正文
 
-根据知乎热榜当前公开榜单，“梁靖崑将赴俄超打球，怎样看待他的选择？对他职业生涯发展有哪些影响？”位列第 13 位，公开热度指标为 243 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
+根据知乎热榜当前公开榜单，“模特七海发博表示 「我的脸已经成 AI 短剧里的赛博恶役」，AI 融脸为什么维权难？”位列第 13 位，公开热度指标为 73 万热度，榜单分类为“问答”。这些数据说明该话题正在获得集中关注，但榜单位置只代表阶段性热度，不等同于对事件事实或观点的确认。
 
-来源公开摘要显示：中国乒乓球运动员梁靖崑28日向新华社记者证实，他已与火炬-天然气工业俱乐部达成加盟协议，将代表球队出战2026—2027赛季俄罗斯乒乓球超级联赛。按照赛程，他将于近期到达俄罗斯。 火炬-天然气工业队是俄罗斯乒坛传统劲旅，曾多次夺得欧洲冠军联赛冠军，奥恰洛夫、萨姆索诺夫等名将曾效力于此。新赛季该队与目前积分榜领跑的乌拉尔冶金队同处争冠集团，后者拥有达科·约奇克等欧洲顶尖选手。 梁靖崑1996年10月生，右手横板进攻型打法，2014年进入国家一队。2026年6月，梁靖崑出任国乒男队副队长。今年上半年他随队出征伦敦世乒赛，半决赛对阵法国选手艾利克斯·勒布伦、决
+来源公开摘要显示：曾指控AI短剧《桃花簪》盗脸侵权的模特“七海”，发帖表示“我的脸已经成AI短剧里的赛博恶役了”，并晒出网友质疑《火狐》融脸其面部的图文。她表示，自己的脸已经被融进模型大数据里，基本AI短剧里的丑角或反派和自己有80%相似，但维权困难。 据悉，“七海”此前已起诉《桃花簪》方，至今仍未宣判。其代理律师赵一婕表示，“七海”的诉求很简单，把面部特征从数据库里移出，不想再看到任何的反派角色脸上有自己的痕迹。但是法律不支持预期权利的主张以及立案起诉，这并不是法律的错误，因为能最大程度地减少诉累，但是从实际操作的角度，当事人的脸已经被融了，这是所有人都看到并且认可的事
 
 阅读这一话题时，可继续关注原始页面中的最新报道、当事方回应和权威机构发布。若榜单排名、公开摘要或来源信息发生变化，本页会在后续采集周期中同步更新。
 
@@ -18,81 +18,81 @@
 
 ## 相关热点
 
-- [有性生殖：基因的自私博弈](nang-ying-ying-xue.md)
-- [订单飙涨80%！义乌又爆单了](cheng-men-li-xue.md)
-- [塞尔维亚反对派为何迅速清算武契奇](shou-bu-shi-juan.md)
-- [模特七海发博表示 「我的脸已经成 AI 短剧里的赛博恶役」，AI 融脸为什么维权难？](xue-fu-wu-che.md)
+- [在B站就能玩到的搜打撤游戏，点击即玩！【B站AI创造公开赛】](nang-ying-ying-xue.md)
+- [多平台下架“纸质短剧”](cheng-men-li-xue.md)
+- [曼联vs布伦特福德](shou-bu-shi-juan.md)
+- [乌克兰男性为躲征召和岳母结婚](xue-fu-wu-che.md)
 
 ## 站内推荐
 
-- [我国河湖面貌发生历史性改善](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
-- [实测小米海信海尔电视开机仍有广告](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
+- [“冰雪+”释放消费热动能](https://github.com/vlo808155/hua-she-tian-zu/blob/main/wan-zi-qian-hong.md)
+- [厌蠢症这个词为啥让我生理不适？](https://github.com/vlo808155/shou-zhu-dai-tu/blob/main/cao-mu-jie-bing.md)
 - [董明珠直播中数次训斥员工，魏建军帮忙解围，怎样看待魏建军的处理和董明珠对员工的管理方式？](https://github.com/vlo808155/ke-zhou-qiu-jian/blob/main/han-dan-xue-bu.md)
-- [一块很宽很宽很宽很宽的人......](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
-- [3名航天员回家将带回“神秘礼物”](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
+- [读过的书记不住内容，是不是书就白读了？读书还有何意义，如何改善？](https://github.com/vlo808155/wang-yang-bu-lao/blob/main/qu-chang-bu-duan.md)
+- [如何看待女子称因年龄超 40 岁被酒店拒绝入住？预订平台没有醒目提示，这种规定合法吗？](https://github.com/vlo808155/jing-di-zhi-wa/blob/main/jin-shang-tian-hua.md)
 
 ## 相关资讯
 
 <details>
 <summary>展开更多相关内容</summary>
 
-- [【绝区零】挽昼+知更鸟综合测评：虚狩+结使级强者！三合一超级加倍！武器对比+技能解读+驱动盘选择+影画提升！](http://www.movie.hkepx.cn/movie/7696059.htm)
-- [如何评价 DC 超级英雄电影《泥面人》？](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
-- [陈吉宁等被查 中纪委发声](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
-- [男子因女友出轨患抑郁症 追砍第三者](http://www.daogukj.com/xbqcnyun/)
-- [刷新新地点~再三声明！选择中文和日文，无任何不良引导！！](http://www.daogukj.com/3076909)
-- [【第四十六赛季·精华2】 故事视频公开：——“那颗千疮百孔的灵魂，究竟有没有属于自己的重量……”](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
+- [岳云鹏在开演唱会的场地办相声专场](http://www.movie.hkepx.cn/movie/7696059.htm)
+- [女子将40万黄金放车顶开一路忘拿](http://www.play.hengshemaoyi.cn/xiju/1587319.htm)
+- [何洁演唱会全开麦唱跳稳如CD](http://www.play.hengshemaoyi.cn/xiju/5542551.htm)
+- [两个人随便吃点就是一百多，为什么现在的烧烤这么贵？](http://www.daogukj.com/xbqcnyun/)
+- [循环歌单|《人类进化史の小曲》Human Legacy“人类智慧的巅峰”](http://www.daogukj.com/3076909)
+- [根本没有这样的干员](http://www.play.hengshemaoyi.cn/xiju/9097132.htm)
 - [新疆一高速公路发生泥石流？假的](http://www.play.hengshemaoyi.cn/xiju/3272598.htm)
-- [一块很宽很宽很宽很宽的人......](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
-- [许飞朋友和厉娜朋友发言对比](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
-- [戚薇林子君 短剧](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
-- [在B站就能玩到的搜打撤游戏，点击即玩！【B站AI创造公开赛】](http://www.daogukj.com/7832374)
-- [芒果要做浪妹了](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
-- [巴航天员为何只在中国空间站待几天](http://www.movie.hkepx.cn/movie/5380543.htm)
-- [《后会友期》「告密门」播出后，厉娜风评光速下滑，网友要求她向许飞道歉，她们的矛盾真的只是友情问题吗？](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
-- [3名航天员回家将带回“神秘礼物”](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
-- [模特七海发博表示 「我的脸已经成 AI 短剧里的赛博恶役」，AI 融脸为什么维权难？](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
-- [两架歼-11BS重型制空战机抵达珠海](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
-- [178万买房次日得知拆迁买方发声](http://www.daogukj.com/whdogfom/)
-- [小米回应电视开机仍有广告](http://www.daogukj.com/owjemlxs/)
-- [歼11BS女飞说开重型战机很有力量感](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
-- [有性生殖：基因的自私博弈](http://www.movie.hkepx.cn/xiju/8272307.htm)
-- [博士夫妻养出常年倒数第一儿子，父亲放下成绩执念支持孩子发展兴趣，这种思路值得参考吗？](http://www.movie.hkepx.cn/xiju/5503803.htm)
-- [如果把天山凿一个洞，让大西洋水汽进来，能否让新疆变成塞上江南？](http://www.movie.hkepx.cn/movie/5517829.htm)
+- [读过的书记不住内容，是不是书就白读了？读书还有何意义，如何改善？](http://www.play.hengshemaoyi.cn/xiju/3090965.htm)
+- [巨鳄生吞NPC？GTA6中把鳄鱼运到市中心到底多费劲！](http://www.play.hengshemaoyi.cn/xiju/8772928.htm)
+- [金狮大赏获奖名单](http://www.play.hengshemaoyi.cn/xiju/7162159.htm)
+- [为何要打穿天山建隧道](http://www.daogukj.com/7832374)
+- [霍家三个儿媳三种国籍](http://www.play.hengshemaoyi.cn/xiju/4228093.htm)
+- [52人摘橘仅留10元警方提级办理](http://www.movie.hkepx.cn/movie/5380543.htm)
+- [曝芒果要推新综艺“浪妹”](http://www.play.hengshemaoyi.cn/kongbu/9015142.htm)
+- [如何看待女子称因年龄超 40 岁被酒店拒绝入住？预订平台没有醒目提示，这种规定合法吗？](http://www.play.hengshemaoyi.cn/kongbu/2542930.htm)
+- [乌克兰男性为躲征召和岳母结婚](http://www.play.hengshemaoyi.cn/xiju/5495428.htm)
+- [2627赛季英超联赛英超第12轮曼联 0:4 布伦特福德，如何评价这场比赛？](http://www.play.hengshemaoyi.cn/xiju/4019710.htm)
+- [证监会严肃查处南京路宝宝总](http://www.daogukj.com/whdogfom/)
+- [实验猴价格飙涨至26万一只](http://www.daogukj.com/owjemlxs/)
+- [【海洋奇缘：启航】不谈恋爱只谈冒险！](http://www.play.hengshemaoyi.cn/kongbu/6964065.htm)
+- [在B站就能玩到的搜打撤游戏，点击即玩！【B站AI创造公开赛】](http://www.movie.hkepx.cn/xiju/8272307.htm)
+- [《爱的缄默法则》首曝PV丨归来](http://www.movie.hkepx.cn/xiju/5503803.htm)
+- [浙江一地被曝开始推行「1+5」模式，初中只读一年，就直接读高中课程，是真的吗？这种模式对学生真的好吗？](http://www.movie.hkepx.cn/movie/5517829.htm)
 - [董明珠直播中数次训斥员工，魏建军帮忙解围，怎样看待魏建军的处理和董明珠对员工的管理方式？](http://www.daogukj.com/kfcenimf/)
-- [中国一旦解决EUV光刻机技术，高端芯片能实现白菜价吗？](http://www.movie.hkepx.cn/xiju/1284306.htm)
-- [央行《大额存单管理办法》公布，个人投资人认购大额存单起点降为不低于10万元，如何解读？将带来哪些影响？](http://www.movie.hkepx.cn/movie/9628674.htm)
-- [后会友期未播路透](http://www.daogukj.com/1857926)
-- [极客湾预估 PC 版《GTA6》2K60 帧整机预算约 1.4 万元，你会为玩这款游戏升级整机吗？](http://www.daogukj.com/dauszqqt/)
-- [广电新规首日部分电视仍有开机广告](http://www.movie.hkepx.cn/movie/0907691.htm)
-- [泄露身份证后四位有多危险](http://www.daogukj.com/5817227)
-- [老版《西游记》里车迟国一战，为什么孙悟空会不认得三清雕像？](http://www.daogukj.com/wotljoso/)
-- [今年前10个月物流业总收入12.3万亿元](http://www.daogukj.com/8049323)
-- [广州车展吸引中小学生围观](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
-- [如何看待女子称因年龄超 40 岁被酒店拒绝入住？预订平台没有醒目提示，这种规定合法吗？](http://www.movie.hkepx.cn/xiju/0261792.htm)
-- [太唯美！歼-35A丝滑落地全程](http://www.movie.hkepx.cn/movie/6726833.htm)
-- [女子把40万黄金饰品忘车顶开了一路](http://www.movie.hkepx.cn/xiju/1828380.htm)
-- [50万亿元存款集中到期没“搬家”](http://www.movie.hkepx.cn/xiju/1222939.htm)
-- [为什么中国学生学了十几年英语，还是难以做到流利听说？](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
-- [大额存单10万元就能买了](http://www.daogukj.com/2594309)
-- [雅迪、爱玛、九号等15家电动自行车企业被点名，部分企业涉违法出售不合格产品情况，哪些信息值得关注？](http://www.daogukj.com/qdasdjom/)
-- [实测小米海信海尔电视开机仍有广告](http://www.daogukj.com/3136388)
-- [《绝区零》挽昼EP | Triple Threat](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
-- [我国河湖面貌发生历史性改善](http://www.daogukj.com/4275576)
-- [易烊千玺回复了王俊凯王源](http://www.daogukj.com/lpknevub/)
-- [3名回地球航天员收到天宫神秘礼物](http://www.daogukj.com/3012939)
-- [《下一个是谁》第七季（6）](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
+- [极客湾预估 PC 版《GTA6》2K60 帧整机预算约 1.4 万元，你会为玩这款游戏升级整机吗？](http://www.movie.hkepx.cn/xiju/1284306.htm)
+- [“机甲启动的轰鸣，是人类反击的号角！”](http://www.movie.hkepx.cn/movie/9628674.htm)
+- [户籍工作人员把刘招男改成刘照嫣](http://www.daogukj.com/1857926)
+- [为什么很少看到青海IP](http://www.daogukj.com/dauszqqt/)
+- [男子失明36年 种20亩地养21头猪](http://www.movie.hkepx.cn/movie/0907691.htm)
+- [教中国造车的德国师傅利润只剩零头](http://www.daogukj.com/5817227)
+- [我锻造了全宇宙最贵的剑](http://www.daogukj.com/wotljoso/)
+- [冰雪季来了 解锁今年新玩法](http://www.daogukj.com/8049323)
+- [巴基斯坦总理天地通话秀中文](http://www.play.hengshemaoyi.cn/kongbu/6556379.htm)
+- [怎么看DeepSeek 将多个核心算子优化至华为昇腾 950 的硬件极限，这对国产算力意味着什么？](http://www.movie.hkepx.cn/xiju/0261792.htm)
+- [你知道古代一些奇奇怪怪的冷知识吗？](http://www.movie.hkepx.cn/movie/6726833.htm)
+- [【传奇耐熬王】百日传奇💪荒野牛王🔪精讲罗兰百日生存....](http://www.movie.hkepx.cn/xiju/1828380.htm)
+- [如何看待BBC援引据称俄统计局泄露数据估算俄军死亡超49万，克宫回应只有俄国防部有权公布损失数据？](http://www.movie.hkepx.cn/xiju/1222939.htm)
+- [王安宇王楚然抽象开团秒跟](http://www.play.hengshemaoyi.cn/xiju/8927722.htm)
+- [曝寡姐美队卷入私密录像风波](http://www.daogukj.com/2594309)
+- [白小纯只记得沙特道歉的原因](http://www.daogukj.com/qdasdjom/)
+- [厌蠢症这个词为啥让我生理不适？](http://www.daogukj.com/3136388)
+- [胡锡进谈冯骥AI观点敲响警钟](http://www.play.hengshemaoyi.cn/kongbu/9463868.htm)
+- [“冰雪+”释放消费热动能](http://www.daogukj.com/4275576)
+- [曝柳岩取关厉娜](http://www.daogukj.com/lpknevub/)
+- [韩红在香港领取行政长官社区服务奖状](http://www.daogukj.com/3012939)
+- [7秒半的视频做1年？陶阿狗君的幕后有多离谱？](http://www.play.hengshemaoyi.cn/xiju/7964767.htm)
 - [安徽、上海等地借助 AI 抓贪官，具体是怎么抓的？有哪些优点和局限性？该如何应对不断变化的作案手法？](http://www.movie.hkepx.cn/xiju/9870181.htm)
-- [杨紫刘涛同框梦回欢乐颂](http://www.movie.hkepx.cn/movie/2656535.htm)
-- [东北话魔仙](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
-- [怎么看DeepSeek 将多个核心算子优化至华为昇腾 950 的硬件极限，这对国产算力意味着什么？](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
+- [专家提醒冰箱里的肉别再泡水化冻](http://www.movie.hkepx.cn/movie/2656535.htm)
+- [歼-35A被“护送” 歼-10C：我沉默哈](http://www.play.hengshemaoyi.cn/xiju/0242938.htm)
+- [曝一大厂裁员谈判时用信号干扰器防员工录音，录音能通过技术手段恢复正常吗？碰到这种情况员工如何维权？](http://www.play.hengshemaoyi.cn/kongbu/8755500.htm)
 
 </details>
 
 ## 原始来源
 
-- [梁靖崑将赴俄超打球，怎样看待他的选择？对他职业生涯发展有哪些影响？](https://www.zhihu.com/question/2109980344484982911)
+- [模特七海发博表示 「我的脸已经成 AI 短剧里的赛博恶役」，AI 融脸为什么维权难？](https://www.zhihu.com/question/2109242936701478494)
 
 完整信息及后续变化请以原始来源为准。
 
-<!-- content-fingerprint: 74af1c737b3a12a1decb -->
+<!-- content-fingerprint: 94646d35cda24b8d2d33 -->
